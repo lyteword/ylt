@@ -1,0 +1,31 @@
+# Chapter 2
+
+<sup>1</sup> Bend yourselves, yea, bend ye, O nation not desired,
+
+<sup>2</sup> Before the bringing forth of a statute, As chaff hath the day passed on, While yet not come in upon you doth the heat of the anger of Jehovah, While yet not come in upon you doth a day of the anger of Jehovah,
+
+<sup>3</sup> Seek Jehovah, all ye humble of the land, Who His judgment have done, Seek ye righteousness, seek humility, It may be ye are hidden in a day of the anger of Jehovah.
+
+<sup>4</sup> For Gaza is forsaken, And Ashkelon [is] for a desolation, Ashdod! at noon they do cast her forth, And Ekron is rooted up.
+
+<sup>5</sup> Ho! O inhabitants of the sea-coast, Nation of the Cherethites, A word of Jehovah [is] against you, Canaan, land of the Philistines, And I have destroyed thee without an inhabitant.
+
+<sup>6</sup> And the sea-coast hath been habitations, Cottages [for] shepherds, and folds [for] a flock.
+
+<sup>7</sup> And the coast hath been for the remnant of the house of Judah, By them they have pleasure, In houses of Ashkelon at even they lie down, For inspect them doth Jehovah their God, And He hath turned back [to] their captivity.
+
+<sup>8</sup> I have heard the reproach of Moab, And the revilings of the sons of Ammon, Wherewith they reproached My people, And magnify [themselves] against their border.
+
+<sup>9</sup> Therefore, I live, An affirmation of Jehovah of Hosts, God of Israel, Surely, Moab is as Sodom, And the sons of Ammon as Gomorrah, An overrunning of nettles and salt-pits, And a desolation — unto the age. A residue of My people do seize them, And a remnant of My nation inherit them.
+
+<sup>10</sup> This [is] to them for their arrogancy, Because they have reproached, And they magnify [themselves] against the people of Jehovah of Hosts.
+
+<sup>11</sup> Fearful [is] Jehovah against them, For He made bare all gods of the land, And bow themselves to Him, each from his place, Do all islanders of the nations.
+
+<sup>12</sup> Also ye, O Cushim, pierced of My sword [are] they.
+
+<sup>13</sup> And He stretcheth His hand against the north, And doth destroy Asshur, And he setteth Nineveh for a desolation, A dry land like a wilderness.
+
+<sup>14</sup> And crouched in her midst have droves, Every beast of the nation, Both pelican and hedge-hog in her knobs lodge, A voice doth sing at the window, 'Destruction [is] at the threshold, For the cedar-work is exposed.'
+
+<sup>15</sup> This [is] the exulting city that is dwelling confidently, That is saying in her heart, 'I [am], and beside me there is none,' How hath she been for a desolation, A crouching-place for beasts, Every one passing by her doth hiss, He doth shake his hand!

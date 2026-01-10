@@ -1,0 +1,99 @@
+# Chapter 20
+
+<sup>1</sup> And it cometh to pass, in the seventh year, in the fifth [month], in the tenth of the month, come in have certain of the elders of Israel to seek Jehovah, and they sit before me;
+
+<sup>2</sup> and there is a word of Jehovah unto me, saying,
+
+<sup>3</sup> 'Son of man, speak with the elders of Israel, and thou hast said unto them, Thus said the Lord Jehovah: To seek Me are ye coming in? I live — I am not sought by you — an affirmation of the Lord Jehovah.
+
+<sup>4</sup> Dost thou judge them? Dost thou judge, son of man? The abominations of their fathers cause them to know,
+
+<sup>5</sup> and thou hast said unto them: Thus said the Lord Jehovah: In the day of My fixing on Israel, I lift up My hand, To the seed of the house of Jacob, And am known to them in the land of Egypt, And I lift up My hand to them, Saying, I [am] Jehovah your God.
+
+<sup>6</sup> In that day I did lift up My hand to them, To bring them forth from the land of Egypt, Unto a land that I spied out for them, Flowing with milk and honey, A beauty it [is] to all the lands,
+
+<sup>7</sup> And I say unto them, Let each cast away the detestable things of his eyes, And with the idols of Egypt be not defiled, I [am] Jehovah your God.
+
+<sup>8</sup> And — they rebel against Me, And have not been willing to hearken to Me, Each, the detestable things of their eyes, They have not cast away, And the idols of Egypt have not forsaken, And I say — to pour out My fury on them, To complete Mine anger against them, In the midst of the land of Egypt.
+
+<sup>9</sup> And I do [it] for My name's sake, Not to pollute [it] before the eyes of the nations, In whose midst they [are], Before whose eyes I became known to them, To bring them out from the land of Egypt.
+
+<sup>10</sup> And I bring them out of the land of Egypt, And I bring them in unto the wilderness,
+
+<sup>11</sup> And I give to them My statutes, And my judgments I caused them to know, Which the man who doth — liveth by them.
+
+<sup>12</sup> And also My sabbaths I have given to them, To be for a sign between Me and them, To know that I [am] Jehovah their sanctifier.
+
+<sup>13</sup> And — rebel against me do the house of Israel in the wilderness, In My statutes they have not walked, And My judgments they have despised, Which the man who doth — liveth by them. And My sabbaths they have greatly polluted, And I say to pour out My fury on them in the wilderness, to consume them.
+
+<sup>14</sup> And I do [it] for My name's sake, Not to pollute [it] before the eyes of the nations, Before whose eyes I brought them forth.
+
+<sup>15</sup> And also, I, I have lifted up My hand to them in the wilderness, Not to bring them in to the land that I had given, Flowing with milk and honey, A beauty it [is] to all the lands,
+
+<sup>16</sup> Because against My judgments they did kick, And in My statutes they have not walked, And My sabbaths they have polluted, For after their idols their heart is going.
+
+<sup>17</sup> And Mine eye hath pity on them — against destroying them, And I have not made of them an end in the wilderness.
+
+<sup>18</sup> And I say to their sons in the wilderness: In the statutes of your fathers ye walk not, And their judgments ye do not observe, And with their idols ye are not defiled.
+
+<sup>19</sup> I [am] Jehovah your God, in My statutes walk, And My judgments observe, and do them,
+
+<sup>20</sup> And My sabbaths sanctify, And they have been for a sign between Me and you, To know that I, Jehovah, [am] your God.
+
+<sup>21</sup> And — the sons rebel against Me, In My statutes they have not walked, And My judgments they have not observed — to do them, Which the man who doth — liveth by them. My sabbaths they have polluted, And I say to pour out My fury upon them, To complete Mine anger against them in the wilderness.
+
+<sup>22</sup> And I have turned back My hand, And I do [it] for My name's sake, Not to pollute [it] before the eyes of the nations, Before whose eyes I brought them out.
+
+<sup>23</sup> I also, I have lifted up My hand to them in the wilderness, To scatter them among nations, And to spread them through lands.
+
+<sup>24</sup> Because My judgments they have not done, And My statutes they have despised, And My sabbaths they have polluted, And after idols of their fathers have their eyes been.
+
+<sup>25</sup> And I also, I have given to them statutes not good, And judgments by which they do not live.
+
+<sup>26</sup> And I defile them by their own gifts, By causing to pass away every opener of a womb, So that I make them desolate, So that they know that I [am] Jehovah.
+
+<sup>27</sup> Therefore, speak unto the house of Israel, son of man, and thou hast said unto them, Thus said the Lord Jehovah: Still in this have your fathers reviled Me, In their committing against Me a trespass.
+
+<sup>28</sup> And I bring them in unto the land, That I did lift up My hand to give to them, And they see every high hill, and every thick tree, And they sacrifice there their sacrifices, And give there the provocation of their offering, And make there their sweet fragrance, And they pour out there their libations.
+
+<sup>29</sup> And I say unto them: What [is] the high place whither ye are going in? And its name is called 'high place' to this day.
+
+<sup>30</sup> Therefore, say unto the house of Israel: Thus said the Lord Jehovah: In the way of your fathers are ye defiled? And after their detestable things go a-whoring?
+
+<sup>31</sup> And in the offering of your gifts, In causing your sons to pass through fire, Ye are defiled by all your idols to this day, And I am sought by you, O house of Israel! I live — an affirmation of the Lord Jehovah, I am not sought by you.
+
+<sup>32</sup> And that which is going up on your mind, It is not at all — in that ye are saying: We will be as the nations, as the families of the lands, To serve wood and stone.
+
+<sup>33</sup> I live — an affirmation of the Lord Jehovah, Do not I, with a strong hand, And with a stretched-out arm, And with fury poured out — rule over you?
+
+<sup>34</sup> And I have brought you forth from the peoples, And assembled you from the lands In which ye have been scattered, With a strong hand and with a stretched-out arm, And with fury poured out.
+
+<sup>35</sup> And I have brought you in unto the wilderness of the peoples, And have been judged with you there face to face.
+
+<sup>36</sup> As I was judged with your fathers, In the wilderness of the land of Egypt, So I am judged with you, An affirmation of the Lord Jehovah.
+
+<sup>37</sup> And I have caused you to pass under the rod, And brought you into the bond of the covenant,
+
+<sup>38</sup> And cleared out from you the rebels, And them transgressing against Me, From the land of their sojournings I bring them out, And unto the land of Israel they come not, And ye have known that I [am] Jehovah.
+
+<sup>39</sup> And ye, O house of Israel, thus said the Lord Jehovah: Each his idols — go — serve ye, And, afterwards, if ye are not hearkening to me, And My holy name ye do not pollute any more by your gifts, and by your idols.
+
+<sup>40</sup> For, in My holy mountain, In the mountain of the height of Israel, An affirmation of the Lord Jehovah, There serve Me do all the house of Israel, All of it, in the land — there I accept them, And there I do seek your heave-offerings, And with the first-fruit of your gifts, With all your holy things.
+
+<sup>41</sup> With sweet fragrance I do accept you, In My bringing you out from the peoples, And I have assembled you from the lands In which ye have been scattered, And I have been sanctified in you Before the eyes of the nations.
+
+<sup>42</sup> And ye have known that I [am] Jehovah, In My bringing you to the ground of Israel, Unto the land that I did lift up My hand To give it to your fathers,
+
+<sup>43</sup> And ye have remembered there your ways, And all your doings, In which ye have been defiled, And ye have been loathsome in your own faces, For all your evils that ye have done.
+
+<sup>44</sup> And ye have known that I [am] Jehovah, In My dealing with you for My name's sake, Not according to your evil ways, And according to your corrupt doings, O house of Israel, An affirmation of the Lord Jehovah.'
+
+<sup>45</sup> And there is a word of Jehovah unto me, saying,
+
+<sup>46</sup> Son of man, set thy face the way of Teman, and prophesy unto the south, and prophesy unto the forest of the field — the south;
+
+<sup>47</sup> and thou hast said to the forest of the south: Hear a word of Jehovah: Thus said the Lord Jehovah: Lo, I am kindling in thee a fire, And it hath devoured in thee every moist tree, and every dry tree, Not quenched is the glowing flames, And burnt by it have been all faces from south to north.
+
+<sup>48</sup> And seen have all flesh, that I, Jehovah, have kindled it — it is not quenched.'
+
+<sup>49</sup> And I say, 'Ah, Lord Jehovah, They are saying of me, Is he not using similes?

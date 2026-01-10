@@ -1,0 +1,21 @@
+# Chapter 11
+
+<sup>1</sup> Send forth thy bread on the face of the waters, For in the multitude of the days thou dost find it.
+
+<sup>2</sup> Give a portion to seven, and even to eight, For thou knowest not what evil is on the earth.
+
+<sup>3</sup> If the thick clouds are full of rain, On the earth they empty [themselves]; And if a tree doth fall in the south or to the north, The place where the tree falleth, there it is.
+
+<sup>4</sup> Whoso is observing the wind soweth not, And whoso is looking on the thick clouds reapeth not.
+
+<sup>5</sup> As thou knowest not what [is] the way of the spirit, How — bones in the womb of the full one, So thou knowest not the work of God who maketh the whole.
+
+<sup>6</sup> In the morning sow thy seed, And at even withdraw not thy hand, For thou knowest not which is right, this or that, Or whether both of them alike [are] good.
+
+<sup>7</sup> Sweet also [is] the light, And good for the eyes to see the sun.
+
+<sup>8</sup> But, if man liveth many years, In all of them let him rejoice, And remember the days of darkness, For they are many! all that is coming [is] vanity.
+
+<sup>9</sup> Rejoice, O young man, in thy childhood, And let thy heart gladden thee in days of thy youth, And walk in the ways of thy heart, And in the sight of thine eyes, And know thou that for all these, Doth God bring thee into judgment.
+
+<sup>10</sup> And turn aside anger from thy heart, And cause evil to pass from thy flesh, For the childhood and the age [are] vanity!

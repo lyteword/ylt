@@ -1,0 +1,45 @@
+# Chapter 14
+
+<sup>1</sup> That which hath been the word of Jehovah unto Jeremiah concerning the matters of the dearths:
+
+<sup>2</sup> Mourned hath Judah, and her gates have languished, They have mourned to the earth, And the cry of Jerusalem hath gone up.
+
+<sup>3</sup> And their honourable ones have sent their little ones to the water, They have come unto ditches, They have not found water, They have turned back — their vessels empty! They have been ashamed, And have blushed and covered their head.
+
+<sup>4</sup> Because the ground hath been broken, For there hath been no rain in the land, Ashamed have been husbandmen, They have covered their head.
+
+<sup>5</sup> For even the hind in the field hath brought forth — to forsake [it!] For there hath been no grass.
+
+<sup>6</sup> And wild asses have stood on high places, They have swallowed up wind like dragons, Consumed have been their eyes, for there is no herb.
+
+<sup>7</sup> Surely our iniquities have testified against us, O Jehovah, work for Thy name's sake, For many have been our backslidings, Against Thee we have sinned.
+
+<sup>8</sup> O Hope of Israel — its saviour in time of trouble, Why art Thou as a sojourner in the land? And as a traveller turned aside to lodge?
+
+<sup>9</sup> Why art Thou as one dumb? As a mighty one not able to save? And Thou [art] in our midst, O Jehovah, And Thy name over us is called, leave us not.
+
+<sup>10</sup> Thus said Jehovah concerning this people: Well they have loved to wander, Their feet they have not restrained, And Jehovah hath not accepted them, Now doth He remember their iniquity, And inspect their sin.
+
+<sup>11</sup> And Jehovah saith unto me: Thou dost not pray for this people for good,
+
+<sup>12</sup> When they fast, I hearken not unto their cry, And when they cause to ascend burnt-offering and present, I accept them not, For by sword, and by famine, And by pestilence, I am consuming them.
+
+<sup>13</sup> And I say, 'Ah, Lord Jehovah, Lo, the prophets are saying to them: Ye do not see a sword, yea, famine is not to you, For true peace I give to you in this place.'
+
+<sup>14</sup> And Jehovah saith unto me: Falsehood the prophets are prophesying in My name, I did not send them, nor command them, Nor have I spoken unto them: A false vision, and divination, and vanity, And the deceit of their own heart, they are prophesying to you.
+
+<sup>15</sup> Therefore, thus said Jehovah concerning the prophets who are prophesying in My name, and I have not sent them, and they are saying, Sword and famine is not in this land: By sword and by famine are these prophets consumed.
+
+<sup>16</sup> And the people to whom they are prophesying, Are cast into out-places of Jerusalem, Because of the famine, and of the sword, And they have none burying them, Them, their wives, and their sons, and their daughters, And I have poured out upon them this evil.
+
+<sup>17</sup> And thou hast said unto them this word: Tears come down mine eyes night and day, And they do not cease, For, [with] a great breach, Broken hath been the virgin daughter of my people, A very grievous stroke.
+
+<sup>18</sup> If I have gone forth to the field, Then, lo, the pierced of the sword! And if I have entered the city, Then, lo, the diseased of famine! For both prophet and priest have gone up and down Unto a land that they knew not.
+
+<sup>19</sup> Hast Thou utterly rejected Judah? Zion hath Thy soul loathed? Wherefore hast Thou smitten us, And there is no healing to us? Looking for peace, and there is no good, And for a time of healing, and lo, terror.
+
+<sup>20</sup> We have known, O Jehovah, our wickedness, The iniquity of our fathers, For we have sinned against Thee.
+
+<sup>21</sup> Do not despise, for Thy name's sake, Dishonour not the throne of Thine honour, Remember, break not Thy covenant with us.
+
+<sup>22</sup> Are there among the vanities of the nations any causing rain? And do the heavens give showers? Art not Thou He, O Jehovah our God? And we wait for thee, for Thou — Thou hast done all these!

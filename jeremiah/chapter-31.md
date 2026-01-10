@@ -1,0 +1,81 @@
+# Chapter 31
+
+<sup>1</sup> At that time, an affirmation of Jehovah, I am for God to all families of Israel, And they — they are to Me for a people.
+
+<sup>2</sup> Thus said Jehovah: Found grace in the wilderness Hath a people remaining from the sword Going to cause it to rest — Israel.
+
+<sup>3</sup> From afar Jehovah hath appeared to me, With love age-during I have loved thee, Therefore I have drawn thee [with] kindness.
+
+<sup>4</sup> Again do I build thee, And thou hast been built, O virgin of Israel, Again thou puttest on thy tabrets, And hast gone out in the chorus of the playful.
+
+<sup>5</sup> Again thou dost plant vineyards In mountains of Samaria, Planters have planted, and made common.
+
+<sup>6</sup> For there is a day, Cried have watchmen on mount Ephraim, 'Rise, and we go up to Zion, unto Jehovah our God;
+
+<sup>7</sup> For thus said Jehovah: Sing, O ye to Jacob, [with] joy, And cry aloud at the head of the nations, Sound ye, praise ye, and say, Save, O Jehovah, thy people, the remnant of Israel.
+
+<sup>8</sup> Lo, I am bringing them in from the north country, And have gathered them from the sides of the earth, Among them [are] blind and lame, Conceiving and travailing one — together, A great assembly — they turn back hither.
+
+<sup>9</sup> With weeping they come in, And with supplications I bring them, I cause them to go unto streams of waters, In a right way — they stumble not in it, For I have been to Israel for a father, And Ephraim — My first-born [is] he.
+
+<sup>10</sup> Hear a word of Jehovah, O nations, And declare ye among isles afar off, and say: He who is scattering Israel doth gather him, And hath kept him as a shepherd [doth] his flock,
+
+<sup>11</sup> For Jehovah hath ransomed Jacob, And redeemed him from a hand stronger than he.
+
+<sup>12</sup> And they have come in, And have sung in the high place of Zion, And flowed unto the goodness of Jehovah, For wheat, and for new wine, and for oil, And for the young of the flock and herd, And their soul hath been as a watered garden, And they add not to grieve any more.
+
+<sup>13</sup> Then rejoice doth a virgin in a chorus, Both young men and old men — together, And I have turned their mourning to joy, And have comforted them, And gladdened them above their sorrow,
+
+<sup>14</sup> And satisfied the soul of the priests [with] fatness, And My people with My goodness are satisfied, An affirmation of Jehovah.
+
+<sup>15</sup> Thus said Jehovah, A voice in Ramah is heard, wailing, weeping most bitter, Rachel is weeping for her sons, She hath refused to be comforted for her sons, because they are not.
+
+<sup>16</sup> Thus said Jehovah: Withhold thy voice from weeping, and thine eyes from tears, For there is a reward for thy work, An affirmation of Jehovah, And they have turned back from the land of the enemy.
+
+<sup>17</sup> And there is hope for thy latter end, An affirmation of Jehovah, And the sons have turned back [to] their border.
+
+<sup>18</sup> I have surely heard Ephraim bemoaning himself, 'Thou hast chastised me, And I am chastised, as a heifer not taught, Turn me back, and I turn back, For thou [art] Jehovah my God.
+
+<sup>19</sup> For after my turning back I repented, And after my being instructed I struck on the thigh, I have been ashamed, I have also blushed, For I have borne the reproach of my youth.
+
+<sup>20</sup> A precious son is Ephraim to Me? A child of delights? For since My speaking against him, I do thoroughly remember him still, Therefore have My bowels been moved for him, I do greatly love him, An affirmation of Jehovah.
+
+<sup>21</sup> Set up for thee signs, make for thee heaps, Set thy heart to the highway, the way thou wentest, Turn back, O virgin of Israel, Turn back unto these thy cities.
+
+<sup>22</sup> Till when dost thou withdraw thyself, O backsliding daughter? For Jehovah hath prepared a new thing in the land, Woman doth compass man.
+
+<sup>23</sup> Thus said Jehovah of Hosts, God of Israel, Still they say this word in the land of Judah, And in its cities, In My turning back [to] their captivity, Jehovah doth bless thee, habitation of righteousness, Mountain of holiness.
+
+<sup>24</sup> And dwelt in Judah have husbandmen, and in all its cities together, And they have journeyed in order.
+
+<sup>25</sup> For I have satiated the weary soul, And every grieved soul I have filled.'
+
+<sup>26</sup> On this I have awaked, and I behold, and my sleep hath been sweet to me.
+
+<sup>27</sup> Lo, days are coming, an affirmation of Jehovah, And I have sown the house of Israel, And the house of Judah, With seed of man, and seed of beast.
+
+<sup>28</sup> And it hath been, as I watched over them to pluck up, And to break down, and to throw down, And to destroy, and to afflict; So do I watch over them to build, and to plant, An affirmation of Jehovah.
+
+<sup>29</sup> In those days they do not say any more: Fathers have eaten unripe fruit, And the sons' teeth are blunted.
+
+<sup>30</sup> But — each for his own iniquity doth die, Every man who is eating the unripe fruit, Blunted are his teeth.
+
+<sup>31</sup> Lo, days are coming, an affirmation of Jehovah, And I have made with the house of Israel And with the house of Judah a new covenant,
+
+<sup>32</sup> Not like the covenant that I made with their fathers, In the day of My laying hold on their hand, To bring them out of the land of Egypt, In that they made void My covenant, And I ruled over them — an affirmation of Jehovah.
+
+<sup>33</sup> For this [is] the covenant that I make, With the house of Israel, after those days, An affirmation of Jehovah, I have given My law in their inward part, And on their heart I do write it, And I have been to them for God, And they are to me for a people.
+
+<sup>34</sup> And they do not teach any more Each his neighbour, and each his brother, Saying, Know ye Jehovah, For they all know Me, from their least unto their greatest, An affirmation of Jehovah; For I pardon their iniquity, And of their sin I make mention no more.
+
+<sup>35</sup> Thus said Jehovah, Who is giving the sun for a light by day, The statutes of moon and stars for a light by night, Quieting the sea when its billows roar, Jehovah of Hosts [is] His name:
+
+<sup>36</sup> If these statutes depart from before Me, An affirmation of Jehovah, Even the seed of Israel doth cease From being a nation before Me all the days.
+
+<sup>37</sup> Thus said Jehovah: If the heavens above be measured, And the foundations of earth below searched, Even I kick against all the seed of Israel, For all that they have done, An affirmation of Jehovah.
+
+<sup>38</sup> Lo, days [are coming], an affirmation of Jehovah, And the city hath been built to Jehovah, From the tower of Hananeel to the gate of the corner.
+
+<sup>39</sup> And gone out again hath the measuring line Over-against it, unto the height of Gareb, And it hath compassed to Goah.
+
+<sup>40</sup> And all the valley of the carcases and of the ashes, And all the fields unto the brook Kidron, Unto the corner of the horse-gate eastward, [Are] holy to Jehovah, it is not plucked up, Nor is it thrown down any more to the age!

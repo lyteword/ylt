@@ -1,0 +1,43 @@
+# Chapter 12
+
+<sup>1</sup> In the seventh year of Jehu reigned hath Jehoash, and forty years he hath reigned in Jerusalem, and the name of his mother [is] Zibiah of Beer-Sheba,
+
+<sup>2</sup> and Jehoash doth that which is right in the eyes of Jehovah all his days in which Jehoiada the priest directed him,
+
+<sup>3</sup> only, the high places have not turned aside, still are the people sacrificing and making perfume in high places.
+
+<sup>4</sup> And Jehoash saith unto the priests, 'All the money of the sanctified things that is brought in to the house of Jehovah, the money of him who is passing over, each the money of his valuation, all the money that it goeth up on the heart of a man to bring in to the house of Jehovah,
+
+<sup>5</sup> do the priests take to them, each from his acquaintance, and they strengthen the breach of the house, in all [places] where there is found a breach.'
+
+<sup>6</sup> And it cometh to pass, in the twenty and third year of king Jehoash, the priests have not strengthened the breach of the house,
+
+<sup>7</sup> and king Jehoash calleth to Jehoiada the priest, and to the priests, and saith unto them, 'Wherefore are ye not strengthening the breach of the house? and now, receive no money from your acquaintances, but for the breach of the house give it.'
+
+<sup>8</sup> And the priests consent not to receive money from the people, nor to strengthen the breach of the house,
+
+<sup>9</sup> and Jehoiada the priest taketh a chest, and pierceth a hole in its lid, and putteth it near the altar, on the right side, as one cometh in to the house of Jehovah, and the priests keeping the threshold have put there all the money that is brought in to the house of Jehovah.
+
+<sup>10</sup> And it cometh to pass, at their seeing that the money [is] abundant in the chest, that there goeth up a scribe of the king, and of the high priest, and they bind [it] up, and count the money that is found [in] the house of Jehovah,
+
+<sup>11</sup> and have given the weighed money into the hands of those doing the work, those inspecting the house of Jehovah, and they bring it out to those working in the wood, and to builders who are working in the house of Jehovah,
+
+<sup>12</sup> and to those [repairing] the wall, and to hewers of stone, and to buy wood and hewn stones to strengthen the breach of the house of Jehovah, and for all that goeth out on the house, to strengthen it.
+
+<sup>13</sup> Only, there is not made for the house of Jehovah basins of silver, snuffers, bowls, trumpets, any vessel of gold, and vessel of silver, out of the money that is brought into the house of Jehovah;
+
+<sup>14</sup> for to those doing the work they give it, and they have strengthened with it the house of Jehovah,
+
+<sup>15</sup> and they do not reckon with the men into whose hand they give the money to give to those doing the work, for in faithfulness they are dealing.
+
+<sup>16</sup> The money of a trespass-offering, and the money of sin-offerings is not brought in to the house of Jehovah — for the priests it is.
+
+<sup>17</sup> Then go up doth Hazael king of Aram, and fighteth against Gath, and captureth it, and Hazael setteth his face to go up against Jerusalem;
+
+<sup>18</sup> and Jehoash king of Judah taketh all the sanctified things that Jehoshaphat, and Jehoram, and Ahaziah, his fathers, kings of Judah, had sanctified, and his own sanctified things, and all the gold that is found in the treasures of the house of Jehovah and of the house of the king, and sendeth to Hazael king of Aram, and he goeth up from off Jerusalem.
+
+<sup>19</sup> And the rest of the matters of Joash, and all that he did, are they not written on the book of the Chronicles of the kings of Judah?
+
+<sup>20</sup> And his servants rise, and make a conspiracy, and smite Joash in the house of Millo, that is going down to Silla:
+
+<sup>21</sup> yea, Jozachar son of Shimeath, and Jehozabad son of Shemer, his servants, have smitten him, and he dieth, and they bury him with his fathers in the city of David, and reign doth Amaziah his son, in his stead.

@@ -1,0 +1,45 @@
+# Chapter 42
+
+<sup>1</sup> And they come nigh — all the heads of the forces, and Johanan son of Kareah, and Jezaniah son of Hoshaiah, and all the people from the least even unto the greatest —
+
+<sup>2</sup> and they say unto Jeremiah the prophet, 'Let, we pray thee, our supplication fall before thee, and pray for us unto Jehovah thy God, for all this remnant; for we have been left a few out of many, as thine eyes do see us;
+
+<sup>3</sup> and Jehovah thy God doth declare to us the way in which we walk, and the thing that we do.'
+
+<sup>4</sup> And Jeremiah the prophet saith unto them, 'I have heard: lo, I am praying unto Jehovah your God according to your words, and it hath come to pass, the whole word that Jehovah answereth you, I declare to you — I do not withhold from you a word.'
+
+<sup>5</sup> And they have said to Jeremiah, 'Jehovah is against us for a witness true and faithful, if — according to all the word with which Jehovah thy God doth send thee unto us — we do not so.
+
+<sup>6</sup> Whether good or evil, to the voice of Jehovah our God, to whom we are sending thee, we do hearken; because it is good for us when we hearken to the voice of Jehovah our God.'
+
+<sup>7</sup> And it cometh to pass, at the end of ten days, that there is a word of Jehovah unto Jeremiah,
+
+<sup>8</sup> and he calleth unto Johanan son of Kareah, and unto all the heads of the forces that [are] with him, and to all the people, from the least even unto the greatest,
+
+<sup>9</sup> and he saith unto them, 'Thus said Jehovah, God of Israel, unto whom ye sent me, to cause your supplication to fall before Him:
+
+<sup>10</sup> 'If ye do certainly dwell in this land, then I have builded you up, and I throw not down; and I have planted you, and I pluck not up; for I have repented concerning the evil that I have done to you.
+
+<sup>11</sup> Be not afraid of the king of Babylon, whom ye are afraid of; be not afraid of him — an affirmation of Jehovah — for with you [am] I, to save you, and to deliver you from his hand.
+
+<sup>12</sup> And I give to you mercies, and he hath pitied you, and caused you to turn back unto your own ground.
+
+<sup>13</sup> 'And if ye are saying, We do not dwell in this land — not to hearken to the voice of Jehovah your God,
+
+<sup>14</sup> saying, No; but the land of Egypt we enter, that we see no war, and the sound of a trumpet do not hear, and for bread be not hungry; and there do we dwell.
+
+<sup>15</sup> And now, therefore, hear ye a word of Jehovah, O remnant of Judah: Thus said Jehovah of Hosts, God of Israel: If ye really set your faces to enter Egypt, and have gone in to sojourn there,
+
+<sup>16</sup> then it hath come to pass, the sword that ye are afraid of, doth there overtake you, in the land of Egypt; and the hunger, because of which ye are sorrowful, doth there cleave after you in Egypt, and there ye die.
+
+<sup>17</sup> 'Thus are all the men who have set their faces to enter Egypt to sojourn there; they die — by sword, by hunger, and by pestilence, and there is not to them a remnant and an escaped one, because of the evil that I am bringing in upon them;
+
+<sup>18</sup> for thus said Jehovah of Hosts, God of Israel: As poured out hath been Mine anger and My fury on the inhabitants of Jerusalem, so poured out is My fury upon you in your entering Egypt, and ye have been for an execration, and for an astonishment, and for a reviling, and for a reproach, and ye do not see any more this place.
+
+<sup>19</sup> 'Jehovah hath spoken against you, O remnant of Judah, do not enter Egypt: know certainly that I have testified against you to-day;
+
+<sup>20</sup> for ye have shewed yourselves perverse in your souls, for ye sent me unto Jehovah your God, saying, Pray for us unto Jehovah our God, and according to all that Jehovah our God saith, so declare to us, and we have done [it];
+
+<sup>21</sup> and I declare to you to-day, and ye have not hearkened to the voice of Jehovah your God, and to anything with which He hath sent me unto you.
+
+<sup>22</sup> And now, know ye certainly that by sword, by famine, and by pestilence ye die, in the place that ye have desired to go in to sojourn there.'

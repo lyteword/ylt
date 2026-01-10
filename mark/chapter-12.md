@@ -1,0 +1,89 @@
+# Chapter 12
+
+<sup>1</sup> And he began to speak to them in similes: 'A man planted a vineyard, and put a hedge around, and digged an under-wine-vat, and built a tower, and gave it out to husbandmen, and went abroad;
+
+<sup>2</sup> and he sent unto the husbandmen at the due time a servant, that from the husbandmen he may receive from the fruit of the vineyard,
+
+<sup>3</sup> and they, having taken him, did severely beat [him], and did send him away empty.
+
+<sup>4</sup> 'And again he sent unto them another servant, and at that one having cast stones, they wounded [him] in the head, and sent away — dishonoured.
+
+<sup>5</sup> 'And again he sent another, and that one they killed; and many others, some beating, and some killing.
+
+<sup>6</sup> 'Having yet therefore one son — his beloved — he sent also him unto them last, saying — They will reverence my son;
+
+<sup>7</sup> and those husbandmen said among themselves — This is the heir, come, we may kill him, and ours shall be the inheritance;
+
+<sup>8</sup> and having taken him, they did kill, and cast [him] forth without the vineyard.
+
+<sup>9</sup> 'What therefore shall the lord of the vineyard do? he will come and destroy the husbandmen, and will give the vineyard to others.
+
+<sup>10</sup> And this Writing did ye not read: A stone that the builders rejected, it did become the head of a corner:
+
+<sup>11</sup> from the Lord was this, and it is wonderful in our eyes.'
+
+<sup>12</sup> And they were seeking to lay hold on him, and they feared the multitude, for they knew that against them he spake the simile, and having left him, they went away;
+
+<sup>13</sup> and they send unto him certain of the Pharisees and of the Herodians, that they may ensnare him in discourse,
+
+<sup>14</sup> and they having come, say to him, 'Teacher, we have known that thou art true, and thou art not caring for any one, for thou dost not look to the face of men, but in truth the way of God dost teach; is it lawful to give tribute to Caesar or not? may we give, or may we not give?'
+
+<sup>15</sup> And he, knowing their hypocrisy, said to them, 'Why me do ye tempt? bring me a denary, that I may see;'
+
+<sup>16</sup> and they brought, and he saith to them, 'Whose [is] this image, and the inscription?' and they said to him, 'Caesar's;'
+
+<sup>17</sup> and Jesus answering said to them, 'Give back the things of Caesar to Caesar, and the things of God to God;' and they did wonder at him.
+
+<sup>18</sup> And the Sadducees come unto him, who say there is not a rising again, and they questioned him, saying,
+
+<sup>19</sup> 'Teacher, Moses wrote to us, that if any one's brother may die, and may leave a wife, and may leave no children, that his brother may take his wife, and raise up seed to his brother.
+
+<sup>20</sup> 'There were then seven brothers, and the first took a wife, and dying, he left no seed;
+
+<sup>21</sup> and the second took her, and died, neither left he seed, and the third in like manner,
+
+<sup>22</sup> and the seven took her, and left no seed, last of all died also the woman;
+
+<sup>23</sup> in the rising again, then, whenever they may rise, of which of them shall she be wife — for the seven had her as wife?'
+
+<sup>24</sup> And Jesus answering said to them, 'Do ye not because of this go astray, not knowing the Writings, nor the power of God?
+
+<sup>25</sup> for when they may rise out of the dead, they neither marry nor are they given in marriage, but are as messengers who are in the heavens.
+
+<sup>26</sup> 'And concerning the dead, that they rise: have ye not read in the Book of Moses (at The Bush), how God spake to him, saying, I [am] the God of Abraham, and the God of Isaac, and the God of Jacob;
+
+<sup>27</sup> he is not the God of dead men, but a God of living men; ye then go greatly astray.'
+
+<sup>28</sup> And one of the scribes having come near, having heard them disputing, knowing that he answered them well, questioned him, 'Which is the first command of all?'
+
+<sup>29</sup> and Jesus answered him — 'The first of all the commands [is], Hear, O Israel, the Lord is our God, the Lord is one;
+
+<sup>30</sup> and thou shalt love the Lord thy God out of all thy heart, and out of thy soul, and out of all thine understanding, and out of all thy strength — this [is] the first command;
+
+<sup>31</sup> and the second [is] like [it], this, Thou shalt love thy neighbour as thyself; — greater than these there is no other command.'
+
+<sup>32</sup> And the scribe said to him, 'Well, Teacher, in truth thou hast spoken that there is one God, and there is none other but He;
+
+<sup>33</sup> and to love Him out of all the heart, and out of all the understanding, and out of all the soul, and out of all the strength, and to love one's neighbour as one's self, is more than all the whole burnt-offerings and the sacrifices.'
+
+<sup>34</sup> And Jesus, having seen him that he answered with understanding, said to him, 'Thou art not far from the reign of God;' and no one any more durst question him.
+
+<sup>35</sup> And Jesus answering said, teaching in the temple, 'How say the scribes that the Christ is son of David?
+
+<sup>36</sup> for David himself said in the Holy Spirit, The Lord said to my lord, Sit thou on My right hand, till I place thine enemies — thy footstool;
+
+<sup>37</sup> therefore David himself saith of him Lord, and whence is he his son?' And the great multitude were hearing him gladly,
+
+<sup>38</sup> and he was saying to them in his teaching, 'Beware of the scribes, who will in long robes to walk, and love salutations in the market-places,
+
+<sup>39</sup> and first seats in the synagogues, and first couches in suppers,
+
+<sup>40</sup> who are devouring the widows' houses, and for a pretence are making long prayers; these shall receive more abundant judgment.'
+
+<sup>41</sup> And Jesus having sat down over-against the treasury, was beholding how the multitude do put brass into the treasury, and many rich were putting in much,
+
+<sup>42</sup> and having come, a poor widow did put in two mites, which are a farthing.
+
+<sup>43</sup> And having called near his disciples, he saith to them, 'Verily I say to you, that this poor widow hath put in more than all those putting into the treasury;
+
+<sup>44</sup> for all, out of their abundance, put in, but she, out of her want, all that she had put in — all her living.'

@@ -1,0 +1,37 @@
+# Chapter 4
+
+<sup>1</sup> The masters! that which is righteous and equal to the servants give ye, having known that ye also have a Master in the heavens.
+
+<sup>2</sup> In the prayer continue ye, watching in it in thanksgiving;
+
+<sup>3</sup> praying at the same time also for us, that God may open to us a door for the word, to speak the secret of the Christ, because of which also I have been bound,
+
+<sup>4</sup> that I may manifest it, as it behoveth me to speak;
+
+<sup>5</sup> in wisdom walk ye toward those without, the time forestalling;
+
+<sup>6</sup> your word always in grace — with salt being seasoned — to know how it behoveth you to answer each one.
+
+<sup>7</sup> All the things concerning me make known to you shall Tychicus — the beloved brother, and faithful ministrant, and fellow-servant in the Lord —
+
+<sup>8</sup> whom I did send unto you for this very thing, that he might know the things concerning you, and might comfort your hearts,
+
+<sup>9</sup> with Onesimus the faithful and beloved brother, who is of you; all things to you shall they make known that [are] here.
+
+<sup>10</sup> Salute you doth Aristarchus, my fellow-captive, and Marcus, the nephew of Barnabas, (concerning whom ye did receive commands — if he may come unto you receive him,)
+
+<sup>11</sup> and Jesus who is called Justus, who are of the circumcision: these only [are] fellow-workers for the reign of God who did become a comfort to me.
+
+<sup>12</sup> Salute you doth Epaphras, who [is] of you, a servant of Christ, always striving for you in the prayers, that ye may stand perfect and made full in all the will of God,
+
+<sup>13</sup> for I do testify to him, that he hath much zeal for you, and those in Laodicea, and those in Hierapolis.
+
+<sup>14</sup> Salute you doth Lukas, the beloved physician, and Demas;
+
+<sup>15</sup> salute ye those in Laodicea — brethren, and Nymphas, and the assembly in his house;
+
+<sup>16</sup> and when the epistle may be read with you, cause that also in the assembly of the Laodiceans it may be read, and the [epistle] from Laodicea that ye also may read;
+
+<sup>17</sup> and say to Archippus, 'See to the ministration that thou didst receive in the Lord, that thou mayest fulfil it.'
+
+<sup>18</sup> The salutation by the hand of me, Paul; remember my bonds; the grace [is] with you. Amen.

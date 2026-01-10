@@ -1,0 +1,23 @@
+# Psalm 63
+
+<sup>1</sup> A Psalm of David, in his being in the wilderness of Judah. O God, Thou [art] my God, earnestly do I seek Thee, Thirsted for Thee hath my soul, Longed for Thee hath my flesh, In a land dry and weary, without waters.
+
+<sup>2</sup> So in the sanctuary I have seen Thee, To behold Thy strength and Thine honour.
+
+<sup>3</sup> Because better [is] Thy kindness than life, My lips do praise Thee.
+
+<sup>4</sup> So I bless Thee in my life, in Thy name I lift up my hands.
+
+<sup>5</sup> As [with] milk and fatness is my soul satisfied, And [with] singing lips doth my mouth praise.
+
+<sup>6</sup> If I have remembered Thee on my couch, In the watches — I meditate on Thee.
+
+<sup>7</sup> For Thou hast been a help to me, And in the shadow of Thy wings I sing.
+
+<sup>8</sup> Cleaved hath my soul after Thee, On me hath Thy right hand taken hold.
+
+<sup>9</sup> And they who for desolation seek my soul, Go in to the lower parts of the earth.
+
+<sup>10</sup> They cause him to run on the edge of the sword, A portion for foxes they are.
+
+<sup>11</sup> And the king doth rejoice in God, Boast himself doth every one swearing by Him, But stopped is the mouth of those speaking lies!

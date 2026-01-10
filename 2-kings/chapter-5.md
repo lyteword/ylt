@@ -1,0 +1,55 @@
+# Chapter 5
+
+<sup>1</sup> And Naaman, head of the host of the king of Aram, was a great man before his lord, and accepted of face, for by him had Jehovah given salvation to Aram, and the man was mighty in valour — leprous.
+
+<sup>2</sup> And the Aramaeans have gone out [by] troops, and they take captive out of the land of Israel a little damsel, and she is before the wife of Naaman,
+
+<sup>3</sup> and she saith unto her mistress, 'O that my lord [were] before the prophet who [is] in Samaria; then he doth recover him from his leprosy.'
+
+<sup>4</sup> And [one] goeth in and declareth to his lord, saying, 'Thus and thus she hath spoken, the damsel who [is] from the land of Israel.'
+
+<sup>5</sup> And the king of Aram saith, 'Go thou, enter, and I send a letter unto the king of Israel;' and he goeth and taketh in his hand ten talents of silver, and six thousand [pieces] of gold, and ten changes of garments.
+
+<sup>6</sup> And he bringeth in the letter unto the king of Israel, saying, 'And now, at the coming in of this letter unto thee, lo, I have sent unto thee Naaman my servant, and thou hast recovered him from his leprosy.'
+
+<sup>7</sup> And it cometh to pass, at the king of Israel's reading the letter, that he rendeth his garments, and saith, 'Am I God, to put to death and to keep alive, that this [one] is sending unto me to recover a man from his leprosy? for surely know, I pray you, and see, for he is presenting himself to me.'
+
+<sup>8</sup> And it cometh to pass, at Elisha the man of God's hearing that the king of Israel hath rent his garments, that he sendeth unto the king, saying, 'Why hast thou rent thy garments? let him come, I pray thee, unto me, and he doth know that there is a prophet in Israel.'
+
+<sup>9</sup> And Naaman cometh, with his horses and with his chariot, and standeth at the opening of the house for Elisha;
+
+<sup>10</sup> and Elisha sendeth unto him a messenger, saying, 'Go, and thou hast washed seven times in Jordan, and thy flesh doth turn back to thee — and be thou clean.
+
+<sup>11</sup> And Naaman is wroth, and goeth on, and saith, 'Lo, I said, Unto me he doth certainly come out, and hath stood and called in the name of Jehovah his God, and waved his hand over the place, and recovered the leper.
+
+<sup>12</sup> Are not Abana and Pharpar, rivers of Damascus, better than all the waters of Israel? do I not wash in them and I have been clean?' and he turneth and goeth on in fury.
+
+<sup>13</sup> And his servants come nigh, and speak unto him, and say, 'My father, a great thing had the prophet spoken unto thee — dost thou not do [it]? and surely, when he hath said unto thee, Wash, and be clean.'
+
+<sup>14</sup> And he goeth down and dippeth in Jordan seven times, according to the word of the man of God, and his flesh doth turn back as the flesh of a little youth, and is clean.
+
+<sup>15</sup> And he turneth back unto the man of God, he and all his camp, and cometh in, and standeth before him, and saith, 'Lo, I pray thee, I have known that there is not a God in all the earth except in Israel; and now, take, I pray thee, a blessing from thy servant.'
+
+<sup>16</sup> And he saith, 'Jehovah liveth, before whom I have stood — if I take [it];' and he presseth on him to take, and he refuseth.
+
+<sup>17</sup> And Naaman saith, 'If not — let be given, I pray thee, to thy servant, a couple of mules' burden of earth, for thy servant doth make no more burnt-offering and sacrifice to other gods, but to Jehovah.
+
+<sup>18</sup> For this thing Jehovah be propitious to thy servant, in the coming in of my lord into the house of Rimmon to bow himself there, and he was supported by my hand, and I bowed myself [in] the house of Rimmon; for my bowing myself in the house of Rimmon Jehovah be propitious, I pray thee, to thy servant in this thing.'
+
+<sup>19</sup> And he saith to him, 'Go in peace.' And he goeth from him a kibrath of land,
+
+<sup>20</sup> And Gehazi, servant of Elisha the man of God, saith, 'Lo, my lord hath spared Naaman this Aramaean, not to receive from his hand that which he brought; Jehovah liveth; surely if I have run after him, then I have taken from him something.'
+
+<sup>21</sup> And Gehazi pursueth after Naaman, and Naaman seeth one running after him, and alighteth from off the chariot to meet him, and saith, 'Is there peace?'
+
+<sup>22</sup> And he saith, 'Peace; my lord hath sent me, saying, Lo, now, this, come unto me have two young men from the hill-country of Ephraim, of the sons of the prophets; give, I pray thee, to them, a talent of silver, and two changes of garments.'
+
+<sup>23</sup> And Naaman saith, 'Be pleased, take two talents;' and he urgeth on him, and bindeth two talents of silver in two purses, and two changes of garments, and giveth unto two of his young men, and they bear before him;
+
+<sup>24</sup> and he cometh in unto the high place, and taketh out of their hand, and layeth up in the house, and sendeth away the men, and they go.
+
+<sup>25</sup> And he hath come in, and doth stand by his lord, and Elisha saith unto him, 'Whence — Gehazi?' and he saith, 'Thy servant went not hither or thither.'
+
+<sup>26</sup> And he saith unto him, 'My heart went not when the man turned from off his chariot to meet thee; is it a time to take silver, and to take garments, and olives, and vines, and flock, and herd, and men-servants, and maid-servants?
+
+<sup>27</sup> yea, the leprosy of Naaman doth cleave to thee, and to thy seed, — to the age;' and he goeth out from before him — leprous as snow.
