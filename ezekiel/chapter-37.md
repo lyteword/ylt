@@ -1,57 +1,57 @@
 # Chapter 37
 
-<sup>1</sup> There hath been upon me a hand of Jehovah, and He taketh me forth in the Spirit of Jehovah, and doth place me in the midst of the valley, and it is full of bones,
+**¹** There hath been upon me a hand of Jehovah, and He taketh me forth in the Spirit of Jehovah, and doth place me in the midst of the valley, and it is full of bones,
 
-<sup>2</sup> and He causeth me to pass over by them, all round about, and lo, very many [are] on the face of the valley, and lo, very dry.
+**²** and He causeth me to pass over by them, all round about, and lo, very many [are] on the face of the valley, and lo, very dry.
 
-<sup>3</sup> And He saith unto me, 'Son of man, do these bones live?' And I say, 'O Lord Jehovah, Thou — Thou hast known.'
+**³** And He saith unto me, 'Son of man, do these bones live?' And I say, 'O Lord Jehovah, Thou — Thou hast known.'
 
-<sup>4</sup> And He saith unto me, 'Prophesy concerning these bones, and thou hast said unto them: O dry bones, hear a word of Jehovah:
+**⁴** And He saith unto me, 'Prophesy concerning these bones, and thou hast said unto them: O dry bones, hear a word of Jehovah:
 
-<sup>5</sup> Thus said the Lord Jehovah to these bones: Lo, I am bringing into you a spirit, and ye have lived,
+**⁵** Thus said the Lord Jehovah to these bones: Lo, I am bringing into you a spirit, and ye have lived,
 
-<sup>6</sup> and I have given on you sinews, and cause flesh to come up upon you, and covered you over with skin, and given in you a spirit, and ye have lived, and ye have known that I [am] Jehovah.'
+**⁶** and I have given on you sinews, and cause flesh to come up upon you, and covered you over with skin, and given in you a spirit, and ye have lived, and ye have known that I [am] Jehovah.'
 
-<sup>7</sup> And I have prophesied as I have been commanded, and there is a noise, as I am prophesying, and lo, a rushing, and draw near do the bones, bone unto its bone.
+**⁷** And I have prophesied as I have been commanded, and there is a noise, as I am prophesying, and lo, a rushing, and draw near do the bones, bone unto its bone.
 
-<sup>8</sup> And I beheld, and lo, on them [are] sinews, and flesh hath come up, and cover them doth skin over above — and spirit there is none in them.
+**⁸** And I beheld, and lo, on them [are] sinews, and flesh hath come up, and cover them doth skin over above — and spirit there is none in them.
 
-<sup>9</sup> And He saith unto me: 'Prophesy unto the Spirit, prophesy, son of man, and thou hast said unto the Spirit: Thus said the Lord Jehovah: From the four winds come in, O Spirit, and breathe on these slain, and they do live.'
+**⁹** And He saith unto me: 'Prophesy unto the Spirit, prophesy, son of man, and thou hast said unto the Spirit: Thus said the Lord Jehovah: From the four winds come in, O Spirit, and breathe on these slain, and they do live.'
 
-<sup>10</sup> And I have prophesied as He commanded me, and the Spirit cometh into them, and they live, and stand on their feet — a very very great force.
+**¹⁰** And I have prophesied as He commanded me, and the Spirit cometh into them, and they live, and stand on their feet — a very very great force.
 
-<sup>11</sup> And He saith unto me, 'Son of man, these bones are the whole house of Israel; lo, they are saying: Dried up have our bones, And perished hath our hope, We have been cut off by ourselves.
+**¹¹** And He saith unto me, 'Son of man, these bones are the whole house of Israel; lo, they are saying: Dried up have our bones, And perished hath our hope, We have been cut off by ourselves.
 
-<sup>12</sup> Therefore, prophesy, and thou hast said unto them, thus said the Lord Jehovah: Lo, I am opening your graves, And have brought you up out of your graves, O My people, And brought you in unto the land of Israel.
+**¹²** Therefore, prophesy, and thou hast said unto them, thus said the Lord Jehovah: Lo, I am opening your graves, And have brought you up out of your graves, O My people, And brought you in unto the land of Israel.
 
-<sup>13</sup> And ye have known that I [am] Jehovah, In My opening your graves, And in My bringing you up out of your graves, O My people.
+**¹³** And ye have known that I [am] Jehovah, In My opening your graves, And in My bringing you up out of your graves, O My people.
 
-<sup>14</sup> And I have given My Spirit in you, and ye have lived, And I have caused you to rest on your land, And ye have known that I Jehovah, I have spoken, and I have done [it], An affirmation of Jehovah.'
+**¹⁴** And I have given My Spirit in you, and ye have lived, And I have caused you to rest on your land, And ye have known that I Jehovah, I have spoken, and I have done [it], An affirmation of Jehovah.'
 
-<sup>15</sup> And there is a word of Jehovah unto me, saying,
+**¹⁵** And there is a word of Jehovah unto me, saying,
 
-<sup>16</sup> 'And thou, son of man, take to thee one stick, and write on it, For Judah, and for the sons of Israel, his companions; and take another stick, and write on it, For Joseph, the stick of Ephraim, and all the house of Israel, his companions,
+**¹⁶** 'And thou, son of man, take to thee one stick, and write on it, For Judah, and for the sons of Israel, his companions; and take another stick, and write on it, For Joseph, the stick of Ephraim, and all the house of Israel, his companions,
 
-<sup>17</sup> and bring them near one unto another, to thee, for one stick, and they have become one in thy hand.
+**¹⁷** and bring them near one unto another, to thee, for one stick, and they have become one in thy hand.
 
-<sup>18</sup> 'And when sons of thy people speak unto thee, saying, Dost thou not declare to us what these [are] to thee?
+**¹⁸** 'And when sons of thy people speak unto thee, saying, Dost thou not declare to us what these [are] to thee?
 
-<sup>19</sup> Speak unto them, Thus said the Lord Jehovah: Lo, I am taking the stick of Joseph, that [is] in the hand of Ephraim, and the tribes of Israel his companions, and have given them unto him, with the stick of Judah, and have made them become one stick, and they have been one in My hand.
+**¹⁹** Speak unto them, Thus said the Lord Jehovah: Lo, I am taking the stick of Joseph, that [is] in the hand of Ephraim, and the tribes of Israel his companions, and have given them unto him, with the stick of Judah, and have made them become one stick, and they have been one in My hand.
 
-<sup>20</sup> And the sticks on which thou writest have been in thy hand before thine eyes,
+**²⁰** And the sticks on which thou writest have been in thy hand before thine eyes,
 
-<sup>21</sup> and speak thou unto them: Thus said the Lord Jehovah: Lo, I am taking the sons of Israel, From among the nations whither they have gone, And have gathered them from round about, And I have brought them in unto their land.
+**²¹** and speak thou unto them: Thus said the Lord Jehovah: Lo, I am taking the sons of Israel, From among the nations whither they have gone, And have gathered them from round about, And I have brought them in unto their land.
 
-<sup>22</sup> And I have made them become one nation in the land, on mountains of Israel, And one king is to them all for king, And they are no more as two nations, Nor are they divided any more into two kingdoms again.
+**²²** And I have made them become one nation in the land, on mountains of Israel, And one king is to them all for king, And they are no more as two nations, Nor are they divided any more into two kingdoms again.
 
-<sup>23</sup> Nor are they defiled any more with their idols, And with their abominations, And with any of their transgressions, And I have saved them out of all their dwellings, In which they have sinned, And I have cleansed them, And they have been to Me for a people, And I — I am to them for God.
+**²³** Nor are they defiled any more with their idols, And with their abominations, And with any of their transgressions, And I have saved them out of all their dwellings, In which they have sinned, And I have cleansed them, And they have been to Me for a people, And I — I am to them for God.
 
-<sup>24</sup> And My servant David [is] king over them, And one shepherd have they all, And in My judgments they go, And My statutes they keep, and have done them.
+**²⁴** And My servant David [is] king over them, And one shepherd have they all, And in My judgments they go, And My statutes they keep, and have done them.
 
-<sup>25</sup> And they have dwelt on the land that I gave to My servant, to Jacob, In which your fathers have dwelt, And they have dwelt on it, they and their sons, And their son's sons — unto the age, And David My servant [is] their prince — to the age.
+**²⁵** And they have dwelt on the land that I gave to My servant, to Jacob, In which your fathers have dwelt, And they have dwelt on it, they and their sons, And their son's sons — unto the age, And David My servant [is] their prince — to the age.
 
-<sup>26</sup> And I have made to them a covenant of peace, A covenant age-during it is with them, And I have placed them, and multiplied them, And placed My sanctuary in their midst — to the age.
+**²⁶** And I have made to them a covenant of peace, A covenant age-during it is with them, And I have placed them, and multiplied them, And placed My sanctuary in their midst — to the age.
 
-<sup>27</sup> And My tabernacle hath been over them, And I have been to them for God, And they have been to Me for a people.
+**²⁷** And My tabernacle hath been over them, And I have been to them for God, And they have been to Me for a people.
 
-<sup>28</sup> And known have the nations that I Jehovah am sanctifying Israel, In My sanctuary being in their midst — to the age!'
+**²⁸** And known have the nations that I Jehovah am sanctifying Israel, In My sanctuary being in their midst — to the age!'

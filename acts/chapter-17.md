@@ -1,69 +1,69 @@
 # Chapter 17
 
-<sup>1</sup> And having passed through Amphipolis, and Apollonia, they came to Thessalonica, where was the synagogue of the Jews,
+**¹** And having passed through Amphipolis, and Apollonia, they came to Thessalonica, where was the synagogue of the Jews,
 
-<sup>2</sup> and according to the custom of Paul, he went in unto them, and for three sabbaths he was reasoning with them from the Writings,
+**²** and according to the custom of Paul, he went in unto them, and for three sabbaths he was reasoning with them from the Writings,
 
-<sup>3</sup> opening and alleging, 'That the Christ it behoved to suffer, and to rise again out of the dead, and that this is the Christ — Jesus whom I proclaim to you.'
+**³** opening and alleging, 'That the Christ it behoved to suffer, and to rise again out of the dead, and that this is the Christ — Jesus whom I proclaim to you.'
 
-<sup>4</sup> And certain of them did believe, and attached themselves to Paul and to Silas, also of the worshipping Greeks a great multitude, of the principal women also not a few.
+**⁴** And certain of them did believe, and attached themselves to Paul and to Silas, also of the worshipping Greeks a great multitude, of the principal women also not a few.
 
-<sup>5</sup> And the unbelieving Jews, having been moved with envy, and having taken to them of the loungers certain evil men, and having made a crowd, were setting the city in an uproar; having assailed also the house of Jason, they were seeking them to bring [them] to the populace,
+**⁵** And the unbelieving Jews, having been moved with envy, and having taken to them of the loungers certain evil men, and having made a crowd, were setting the city in an uproar; having assailed also the house of Jason, they were seeking them to bring [them] to the populace,
 
-<sup>6</sup> and not having found them, they drew Jason and certain brethren unto the city rulers, calling aloud — 'These, having put the world in commotion, are also here present,
+**⁶** and not having found them, they drew Jason and certain brethren unto the city rulers, calling aloud — 'These, having put the world in commotion, are also here present,
 
-<sup>7</sup> whom Jason hath received; and these all do contrary to the decrees of Caesar, saying another to be king — Jesus.'
+**⁷** whom Jason hath received; and these all do contrary to the decrees of Caesar, saying another to be king — Jesus.'
 
-<sup>8</sup> And they troubled the multitude and the city rulers, hearing these things,
+**⁸** And they troubled the multitude and the city rulers, hearing these things,
 
-<sup>9</sup> and having taking security from Jason and the rest, they let them go.
+**⁹** and having taking security from Jason and the rest, they let them go.
 
-<sup>10</sup> And the brethren immediately, through the night, sent forth both Paul and Silas to Berea, who having come, went to the synagogue of the Jews;
+**¹⁰** And the brethren immediately, through the night, sent forth both Paul and Silas to Berea, who having come, went to the synagogue of the Jews;
 
-<sup>11</sup> and these were more noble than those in Thessalonica, they received the word with all readiness of mind, every day examining the Writings whether those things were so;
+**¹¹** and these were more noble than those in Thessalonica, they received the word with all readiness of mind, every day examining the Writings whether those things were so;
 
-<sup>12</sup> many, indeed, therefore, of them did believe, and of the honourable Greek women and men not a few.
+**¹²** many, indeed, therefore, of them did believe, and of the honourable Greek women and men not a few.
 
-<sup>13</sup> And when the Jews from Thessalonica knew that also in Berea was the word of God declared by Paul, they came thither also, agitating the multitudes;
+**¹³** And when the Jews from Thessalonica knew that also in Berea was the word of God declared by Paul, they came thither also, agitating the multitudes;
 
-<sup>14</sup> and then immediately the brethren sent forth Paul, to go on as it were to the sea, but both Silas and Timothy were remaining there.
+**¹⁴** and then immediately the brethren sent forth Paul, to go on as it were to the sea, but both Silas and Timothy were remaining there.
 
-<sup>15</sup> And those conducting Paul, brought him unto Athens, and having received a command unto Silas and Timotheus that with all speed they may come unto him, they departed;
+**¹⁵** And those conducting Paul, brought him unto Athens, and having received a command unto Silas and Timotheus that with all speed they may come unto him, they departed;
 
-<sup>16</sup> and Paul waiting for them in Athens, his spirit was stirred in him, beholding the city wholly given to idolatry,
+**¹⁶** and Paul waiting for them in Athens, his spirit was stirred in him, beholding the city wholly given to idolatry,
 
-<sup>17</sup> therefore, indeed, he was reasoning in the synagogue with the Jews, and with the worshipping persons, and in the market-place every day with those who met with him.
+**¹⁷** therefore, indeed, he was reasoning in the synagogue with the Jews, and with the worshipping persons, and in the market-place every day with those who met with him.
 
-<sup>18</sup> And certain of the Epicurean and of the Stoic philosophers, were meeting together to see him, and some were saying, 'What would this seed picker wish to say?' and others, 'Of strange demons he doth seem to be an announcer;' because Jesus and the rising again he did proclaim to them as good news,
+**¹⁸** And certain of the Epicurean and of the Stoic philosophers, were meeting together to see him, and some were saying, 'What would this seed picker wish to say?' and others, 'Of strange demons he doth seem to be an announcer;' because Jesus and the rising again he did proclaim to them as good news,
 
-<sup>19</sup> having also taken him, unto the Areopagus they brought [him], saying, 'Are we able to know what [is] this new teaching that is spoken by thee,
+**¹⁹** having also taken him, unto the Areopagus they brought [him], saying, 'Are we able to know what [is] this new teaching that is spoken by thee,
 
-<sup>20</sup> for certain strange things thou dost bring to our ears? we wish, then, to know what these things would wish to be;'
+**²⁰** for certain strange things thou dost bring to our ears? we wish, then, to know what these things would wish to be;'
 
-<sup>21</sup> and all Athenians, and the strangers sojourning, for nothing else were at leisure but to say something, and to hear some newer thing.
+**²¹** and all Athenians, and the strangers sojourning, for nothing else were at leisure but to say something, and to hear some newer thing.
 
-<sup>22</sup> And Paul, having stood in the midst of the Areopagus, said, 'Men, Athenians, in all things I perceive you as over-religious;
+**²²** And Paul, having stood in the midst of the Areopagus, said, 'Men, Athenians, in all things I perceive you as over-religious;
 
-<sup>23</sup> for passing through and contemplating your objects of worship, I found also an erection on which had been inscribed: To God — unknown; whom, therefore — not knowing — ye do worship, this One I announce to you.
+**²³** for passing through and contemplating your objects of worship, I found also an erection on which had been inscribed: To God — unknown; whom, therefore — not knowing — ye do worship, this One I announce to you.
 
-<sup>24</sup> 'God, who did make the world, and all things in it, this One, of heaven and of earth being Lord, in temples made with hands doth not dwell,
+**²⁴** 'God, who did make the world, and all things in it, this One, of heaven and of earth being Lord, in temples made with hands doth not dwell,
 
-<sup>25</sup> neither by the hands of men is He served — needing anything, He giving to all life, and breath, and all things;
+**²⁵** neither by the hands of men is He served — needing anything, He giving to all life, and breath, and all things;
 
-<sup>26</sup> He made also of one blood every nation of men, to dwell upon all the face of the earth — having ordained times before appointed, and the bounds of their dwellings —
+**²⁶** He made also of one blood every nation of men, to dwell upon all the face of the earth — having ordained times before appointed, and the bounds of their dwellings —
 
-<sup>27</sup> to seek the Lord, if perhaps they did feel after Him and find, — though, indeed, He is not far from each one of us,
+**²⁷** to seek the Lord, if perhaps they did feel after Him and find, — though, indeed, He is not far from each one of us,
 
-<sup>28</sup> for in Him we live, and move, and are; as also certain of your poets have said: For of Him also we are offspring.
+**²⁸** for in Him we live, and move, and are; as also certain of your poets have said: For of Him also we are offspring.
 
-<sup>29</sup> 'Being, therefore, offspring of God, we ought not to think the Godhead to be like to gold, or silver, or stone, graving of art and device of man;
+**²⁹** 'Being, therefore, offspring of God, we ought not to think the Godhead to be like to gold, or silver, or stone, graving of art and device of man;
 
-<sup>30</sup> the times, indeed, therefore, of the ignorance God having overlooked, doth now command all men everywhere to reform,
+**³⁰** the times, indeed, therefore, of the ignorance God having overlooked, doth now command all men everywhere to reform,
 
-<sup>31</sup> because He did set a day in which He is about to judge the world in righteousness, by a man whom He did ordain, having given assurance to all, having raised him out of the dead.'
+**³¹** because He did set a day in which He is about to judge the world in righteousness, by a man whom He did ordain, having given assurance to all, having raised him out of the dead.'
 
-<sup>32</sup> And having heard of a rising again of the dead, some, indeed, were mocking, but others said, 'We will hear thee again concerning this;'
+**³²** And having heard of a rising again of the dead, some, indeed, were mocking, but others said, 'We will hear thee again concerning this;'
 
-<sup>33</sup> and so Paul went forth from the midst of them,
+**³³** and so Paul went forth from the midst of them,
 
-<sup>34</sup> and certain men having cleaved to him, did believe, among whom [is] also Dionysius the Areopagite, and a woman, by name Damaris, and others with them.
+**³⁴** and certain men having cleaved to him, did believe, among whom [is] also Dionysius the Areopagite, and a woman, by name Damaris, and others with them.

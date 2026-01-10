@@ -1,85 +1,85 @@
 # Chapter 6
 
-<sup>1</sup> Then said Solomon, 'Jehovah said — to dwell in thick darkness,
+**¹** Then said Solomon, 'Jehovah said — to dwell in thick darkness,
 
-<sup>2</sup> and I — I have built a house of habitation for Thee, and a fixed place for Thy dwelling to the ages.'
+**²** and I — I have built a house of habitation for Thee, and a fixed place for Thy dwelling to the ages.'
 
-<sup>3</sup> And the king turneth round his face, and blesseth the whole assembly of Israel, and the whole assembly of Israel is standing,
+**³** And the king turneth round his face, and blesseth the whole assembly of Israel, and the whole assembly of Israel is standing,
 
-<sup>4</sup> and he saith, 'Blessed [is] Jehovah, God of Israel, who hath spoken with His mouth with David my father, and with His hands hath fulfilled [it], saying:
+**⁴** and he saith, 'Blessed [is] Jehovah, God of Israel, who hath spoken with His mouth with David my father, and with His hands hath fulfilled [it], saying:
 
-<sup>5</sup> 'From the day that I brought out My people from the land of Egypt, I have not fixed on a city out of any of the tribes of Israel to build a house for my name being there, and I have not fixed on a man to be leader over My people Israel;
+**⁵** 'From the day that I brought out My people from the land of Egypt, I have not fixed on a city out of any of the tribes of Israel to build a house for my name being there, and I have not fixed on a man to be leader over My people Israel;
 
-<sup>6</sup> and I fix on Jerusalem for My name being there, and I fix on David to be over My people Israel.
+**⁶** and I fix on Jerusalem for My name being there, and I fix on David to be over My people Israel.
 
-<sup>7</sup> 'And it is with the heart of David my father to build a house for the name of Jehovah God of Israel,
+**⁷** 'And it is with the heart of David my father to build a house for the name of Jehovah God of Israel,
 
-<sup>8</sup> and Jehovah saith unto David my father, Because that it hath been with thy heart to build a house for My name, thou hast done well that it hath been with thy heart,
+**⁸** and Jehovah saith unto David my father, Because that it hath been with thy heart to build a house for My name, thou hast done well that it hath been with thy heart,
 
-<sup>9</sup> but thou dost not build the house, for thy son who cometh forth out from thy loins, he doth build the house for My name.
+**⁹** but thou dost not build the house, for thy son who cometh forth out from thy loins, he doth build the house for My name.
 
-<sup>10</sup> 'And Jehovah doth establish His word that He spake, and I rise up in the stead of David my father, and sit on the throne of Israel, as Jehovah spake, and I build the house for the name of Jehovah, God of Israel,
+**¹⁰** 'And Jehovah doth establish His word that He spake, and I rise up in the stead of David my father, and sit on the throne of Israel, as Jehovah spake, and I build the house for the name of Jehovah, God of Israel,
 
-<sup>11</sup> and I place there the ark, where [is] the covenant of Jehovah that He made with the sons of Israel.'
+**¹¹** and I place there the ark, where [is] the covenant of Jehovah that He made with the sons of Israel.'
 
-<sup>12</sup> And he standeth before the altar of Jehovah, over-against all the assembly of Israel, and spreadeth out his hand, —
+**¹²** And he standeth before the altar of Jehovah, over-against all the assembly of Israel, and spreadeth out his hand, —
 
-<sup>13</sup> for Solomon hath made a scaffold of brass, and putteth it in the midst of the court, five cubits its length, and five cubits its breadth, and three cubits its height, and he standeth upon it, and kneeleth on his knees over-against all the assembly of Israel, and spreadeth forth his hands towards the heavens —
+**¹³** for Solomon hath made a scaffold of brass, and putteth it in the midst of the court, five cubits its length, and five cubits its breadth, and three cubits its height, and he standeth upon it, and kneeleth on his knees over-against all the assembly of Israel, and spreadeth forth his hands towards the heavens —
 
-<sup>14</sup> and saith, 'O Jehovah God of Israel, there is not like Thee a god in the heavens and in the earth, keeping the covenant and the kindness for Thy servants who are walking before Thee with all their heart;
+**¹⁴** and saith, 'O Jehovah God of Israel, there is not like Thee a god in the heavens and in the earth, keeping the covenant and the kindness for Thy servants who are walking before Thee with all their heart;
 
-<sup>15</sup> who hast kept for Thy servant David my father that which Thou didst speak to him; yea, Thou dost speak with Thy mouth, and with Thy hand hast fulfilled [it], as at this day.
+**¹⁵** who hast kept for Thy servant David my father that which Thou didst speak to him; yea, Thou dost speak with Thy mouth, and with Thy hand hast fulfilled [it], as at this day.
 
-<sup>16</sup> 'And now, O Jehovah, God of Israel, keep for Thy servant David my father that which Thou didst speak to him, saying, There is not cut off to thee a man from before Me, sitting on the throne of Israel, only, if thy sons watch their way to walk in My law, as thou hast walked before Me.
+**¹⁶** 'And now, O Jehovah, God of Israel, keep for Thy servant David my father that which Thou didst speak to him, saying, There is not cut off to thee a man from before Me, sitting on the throne of Israel, only, if thy sons watch their way to walk in My law, as thou hast walked before Me.
 
-<sup>17</sup> 'And now, O Jehovah, God of Israel, is Thy word stedfast that Thou hast spoken to Thy servant, to David,
+**¹⁷** 'And now, O Jehovah, God of Israel, is Thy word stedfast that Thou hast spoken to Thy servant, to David,
 
-<sup>18</sup> (for is it true? — God dwelleth with man on the earth! Lo, the heavens, and the heavens of the heavens, do not contain Thee, how much less this house that I have built?)
+**¹⁸** (for is it true? — God dwelleth with man on the earth! Lo, the heavens, and the heavens of the heavens, do not contain Thee, how much less this house that I have built?)
 
-<sup>19</sup> 'And Thou hast turned unto the prayer of Thy servant, and unto his supplication, O Jehovah my God, to hearken unto the cry and unto the prayer that Thy servant is praying before Thee,
+**¹⁹** 'And Thou hast turned unto the prayer of Thy servant, and unto his supplication, O Jehovah my God, to hearken unto the cry and unto the prayer that Thy servant is praying before Thee,
 
-<sup>20</sup> for Thine eyes being open towards this house by day and by night, towards the place that Thou hast said to put Thy name there, to hearken unto the prayer that Thy servant prayeth towards this place.
+**²⁰** for Thine eyes being open towards this house by day and by night, towards the place that Thou hast said to put Thy name there, to hearken unto the prayer that Thy servant prayeth towards this place.
 
-<sup>21</sup> 'And Thou hast hearkened unto the supplications of Thy servant, and of Thy people Israel, that they pray towards this place, and Thou dost hear from the place of Thy dwelling, from the heavens, and hast hearkened, and forgiven.
+**²¹** 'And Thou hast hearkened unto the supplications of Thy servant, and of Thy people Israel, that they pray towards this place, and Thou dost hear from the place of Thy dwelling, from the heavens, and hast hearkened, and forgiven.
 
-<sup>22</sup> 'If a man doth sin against his neighbour, and he hath lifted up on him an oath to cause him to swear, and the oath hath come in before Thine altar in this house —
+**²²** 'If a man doth sin against his neighbour, and he hath lifted up on him an oath to cause him to swear, and the oath hath come in before Thine altar in this house —
 
-<sup>23</sup> then Thou dost hear from the heavens, and hast done, and hast judged Thy servants, to give back to the wicked, to put his way on his head, and to declare righteous the righteous, to give to him according to his righteousness.
+**²³** then Thou dost hear from the heavens, and hast done, and hast judged Thy servants, to give back to the wicked, to put his way on his head, and to declare righteous the righteous, to give to him according to his righteousness.
 
-<sup>24</sup> 'And if Thy people Israel is smitten before an enemy, because they sin against Thee, and they have turned back and confessed Thy name, and prayed and made supplication before Thee in this house —
+**²⁴** 'And if Thy people Israel is smitten before an enemy, because they sin against Thee, and they have turned back and confessed Thy name, and prayed and made supplication before Thee in this house —
 
-<sup>25</sup> then Thou dost hear from the heavens, and hast forgiven the sin of Thy people Israel, and caused them to turn back unto the ground that Thou hast given to them, and to their fathers.
+**²⁵** then Thou dost hear from the heavens, and hast forgiven the sin of Thy people Israel, and caused them to turn back unto the ground that Thou hast given to them, and to their fathers.
 
-<sup>26</sup> 'In the heavens being restrained, and there is no rain, because they sin against Thee, and they have prayed towards this place, and confessed Thy name — from their sin they turn back because Thou dost afflict them —
+**²⁶** 'In the heavens being restrained, and there is no rain, because they sin against Thee, and they have prayed towards this place, and confessed Thy name — from their sin they turn back because Thou dost afflict them —
 
-<sup>27</sup> then Thou dost hear in the heavens, and hast forgiven the sin of Thy servants, and of Thy people Israel, because Thou directest them unto the good way in which they walk, and hast given rain on Thy land that Thou hast given to Thy people for an inheritance.
+**²⁷** then Thou dost hear in the heavens, and hast forgiven the sin of Thy servants, and of Thy people Israel, because Thou directest them unto the good way in which they walk, and hast given rain on Thy land that Thou hast given to Thy people for an inheritance.
 
-<sup>28</sup> 'Famine, when it is in the land, pestilence, when it is, blasting, and mildew, locust, and caterpillar, when they are, when its enemies have distressed it in the land — its gates, any plague and any sickness;
+**²⁸** 'Famine, when it is in the land, pestilence, when it is, blasting, and mildew, locust, and caterpillar, when they are, when its enemies have distressed it in the land — its gates, any plague and any sickness;
 
-<sup>29</sup> any prayer, any supplication that is for any man, and for all Thy people Israel, when they know each his own plague, and his own pain, and he hath spread out his hands towards this house:
+**²⁹** any prayer, any supplication that is for any man, and for all Thy people Israel, when they know each his own plague, and his own pain, and he hath spread out his hands towards this house:
 
-<sup>30</sup> then Thou dost hear from the heavens, the settled place of Thy dwelling, and hast forgiven, and hast given to each according to all his ways (because Thou knowest his heart, for Thou — Thou only — hast known the heart of the sons of men),
+**³⁰** then Thou dost hear from the heavens, the settled place of Thy dwelling, and hast forgiven, and hast given to each according to all his ways (because Thou knowest his heart, for Thou — Thou only — hast known the heart of the sons of men),
 
-<sup>31</sup> so that they fear Thee, to walk in Thy ways, all the days that they are living on the face of the ground that Thou hast given to our fathers.
+**³¹** so that they fear Thee, to walk in Thy ways, all the days that they are living on the face of the ground that Thou hast given to our fathers.
 
-<sup>32</sup> 'And also, unto the stranger who is not of Thy people Israel, and he hath come from a land afar off for the sake of Thy great name, and Thy strong hand, and Thy stretched-out arm, and they have come in and prayed towards this house:
+**³²** 'And also, unto the stranger who is not of Thy people Israel, and he hath come from a land afar off for the sake of Thy great name, and Thy strong hand, and Thy stretched-out arm, and they have come in and prayed towards this house:
 
-<sup>33</sup> then Thou dost hear from the heavens, from the settled place of Thy dwelling, and hast done according to all that the stranger calleth unto Thee for: so that all the peoples of the earth do know Thy name, so as to fear Thee, as Thy people Israel, and to know that Thy name is called on this house that I have built.
+**³³** then Thou dost hear from the heavens, from the settled place of Thy dwelling, and hast done according to all that the stranger calleth unto Thee for: so that all the peoples of the earth do know Thy name, so as to fear Thee, as Thy people Israel, and to know that Thy name is called on this house that I have built.
 
-<sup>34</sup> 'When Thy people doth go out to battle against its enemies in the way that Thou dost send them, and they have prayed unto Thee the way of this city that Thou hast fixed on, and the house that I have built for Thy name:
+**³⁴** 'When Thy people doth go out to battle against its enemies in the way that Thou dost send them, and they have prayed unto Thee the way of this city that Thou hast fixed on, and the house that I have built for Thy name:
 
-<sup>35</sup> then Thou hast heard from the heavens their prayer and their supplication, and hast maintained their cause.
+**³⁵** then Thou hast heard from the heavens their prayer and their supplication, and hast maintained their cause.
 
-<sup>36</sup> 'When they sin against Thee — for there is not a man who sinneth not — and Thou hast been angry with them, and hast given them before an enemy, and taken them captive have their captors, unto a land far off or near;
+**³⁶** 'When they sin against Thee — for there is not a man who sinneth not — and Thou hast been angry with them, and hast given them before an enemy, and taken them captive have their captors, unto a land far off or near;
 
-<sup>37</sup> and they have turned [it] back unto their heart in the land whither they have been taken captive, and have turned back, and made supplication unto Thee in the land of their captivity, saying, We have sinned, we have done perversely, and have done wickedly;
+**³⁷** and they have turned [it] back unto their heart in the land whither they have been taken captive, and have turned back, and made supplication unto Thee in the land of their captivity, saying, We have sinned, we have done perversely, and have done wickedly;
 
-<sup>38</sup> yea, they have turned back unto Thee with all their heart, and with all their soul, in the land of their captivity, whither they have taken them captive, and they have prayed the way of their land that Thou hast given to their fathers, and of the city that Thou hast chosen, and of the house that I have built for Thy name:
+**³⁸** yea, they have turned back unto Thee with all their heart, and with all their soul, in the land of their captivity, whither they have taken them captive, and they have prayed the way of their land that Thou hast given to their fathers, and of the city that Thou hast chosen, and of the house that I have built for Thy name:
 
-<sup>39</sup> then Thou hast heard from the heavens, from the settled place of Thy dwelling, their prayer and their supplications, and hast maintained their cause, and forgiven Thy people who have sinned against Thee.
+**³⁹** then Thou hast heard from the heavens, from the settled place of Thy dwelling, their prayer and their supplications, and hast maintained their cause, and forgiven Thy people who have sinned against Thee.
 
-<sup>40</sup> 'Now, my God, let, I beseech Thee, Thine eyes be open, and Thine ears attentive, to the prayer of this place:
+**⁴⁰** 'Now, my God, let, I beseech Thee, Thine eyes be open, and Thine ears attentive, to the prayer of this place:
 
-<sup>41</sup> and now, rise, O Jehovah God, to Thy rest, Thou, and the ark of Thy strength; Thy priests, O Jehovah God, are clothed with salvation, and Thy saints rejoice in the goodness,
+**⁴¹** and now, rise, O Jehovah God, to Thy rest, Thou, and the ark of Thy strength; Thy priests, O Jehovah God, are clothed with salvation, and Thy saints rejoice in the goodness,
 
-<sup>42</sup> O Jehovah God, turn not back the face of Thine anointed, be mindful of the kind acts of David Thy servant.'
+**⁴²** O Jehovah God, turn not back the face of Thine anointed, be mindful of the kind acts of David Thy servant.'

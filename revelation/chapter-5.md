@@ -1,29 +1,29 @@
 # Chapter 5
 
-<sup>1</sup> And I saw upon the right hand of Him who is sitting upon the throne a scroll, written within and on the back, sealed with seven seals;
+**¹** And I saw upon the right hand of Him who is sitting upon the throne a scroll, written within and on the back, sealed with seven seals;
 
-<sup>2</sup> and I saw a strong messenger crying with a great voice, 'Who is worthy to open the scroll and to loose the seals of it?'
+**²** and I saw a strong messenger crying with a great voice, 'Who is worthy to open the scroll and to loose the seals of it?'
 
-<sup>3</sup> and no one was able in the heaven, nor upon the earth, nor under the earth, to open the scroll, nor to behold it.
+**³** and no one was able in the heaven, nor upon the earth, nor under the earth, to open the scroll, nor to behold it.
 
-<sup>4</sup> And I was weeping much, because no one was found worthy to open and to read the scroll, nor to behold it,
+**⁴** And I was weeping much, because no one was found worthy to open and to read the scroll, nor to behold it,
 
-<sup>5</sup> and one of the elders saith to me, 'Weep not; lo, overcome did the Lion, who is of the tribe of Judah, the root of David, to open the scroll, and to loose the seven seals of it;
+**⁵** and one of the elders saith to me, 'Weep not; lo, overcome did the Lion, who is of the tribe of Judah, the root of David, to open the scroll, and to loose the seven seals of it;
 
-<sup>6</sup> and I saw, and lo, in the midst of the throne, and of the four living creatures, and in the midst of the elders, a Lamb hath stood as it had been slain, having seven horns and seven eyes, which are the Seven Spirits of God, which are sent to all the earth,
+**⁶** and I saw, and lo, in the midst of the throne, and of the four living creatures, and in the midst of the elders, a Lamb hath stood as it had been slain, having seven horns and seven eyes, which are the Seven Spirits of God, which are sent to all the earth,
 
-<sup>7</sup> and he came and took the scroll out of the right hand of Him who is sitting upon the throne.
+**⁷** and he came and took the scroll out of the right hand of Him who is sitting upon the throne.
 
-<sup>8</sup> And when he took the scroll, the four living creatures and the twenty-four elders fell before the Lamb, having each one harps and golden vials full of perfumes, which are the prayers of the saints,
+**⁸** And when he took the scroll, the four living creatures and the twenty-four elders fell before the Lamb, having each one harps and golden vials full of perfumes, which are the prayers of the saints,
 
-<sup>9</sup> and they sing a new song, saying, 'Worthy art thou to take the scroll, and to open the seals of it, because thou wast slain, and didst redeem us to God in thy blood, out of every tribe, and tongue, and people, and nation,
+**⁹** and they sing a new song, saying, 'Worthy art thou to take the scroll, and to open the seals of it, because thou wast slain, and didst redeem us to God in thy blood, out of every tribe, and tongue, and people, and nation,
 
-<sup>10</sup> and didst make us to our God kings and priests, and we shall reign upon the earth.'
+**¹⁰** and didst make us to our God kings and priests, and we shall reign upon the earth.'
 
-<sup>11</sup> And I saw, and I heard the voice of many messengers round the throne, and the living creatures, and the elders — and the number of them was myriads of myriads, and thousands of thousands —
+**¹¹** And I saw, and I heard the voice of many messengers round the throne, and the living creatures, and the elders — and the number of them was myriads of myriads, and thousands of thousands —
 
-<sup>12</sup> saying with a great voice, 'Worthy is the Lamb that was slain to receive the power, and riches, and wisdom, and strength, and honour, and glory, and blessing!'
+**¹²** saying with a great voice, 'Worthy is the Lamb that was slain to receive the power, and riches, and wisdom, and strength, and honour, and glory, and blessing!'
 
-<sup>13</sup> and every creature that is in the heaven, and in the earth, and under the earth, and the things that are upon the sea, and the all things in them, heard I saying, 'To Him who is sitting upon the throne, and to the Lamb, [is] the blessing, and the honour, and the glory, and the might — to the ages of the ages!'
+**¹³** and every creature that is in the heaven, and in the earth, and under the earth, and the things that are upon the sea, and the all things in them, heard I saying, 'To Him who is sitting upon the throne, and to the Lamb, [is] the blessing, and the honour, and the glory, and the might — to the ages of the ages!'
 
-<sup>14</sup> and the four living creatures said, 'Amen!' and the twenty-four elders fell down and they bow before Him who is living to the ages of the ages.
+**¹⁴** and the four living creatures said, 'Amen!' and the twenty-four elders fell down and they bow before Him who is living to the ages of the ages.

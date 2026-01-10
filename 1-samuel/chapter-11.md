@@ -1,31 +1,31 @@
 # Chapter 11
 
-<sup>1</sup> And Nahash the Ammonite cometh up, and encampeth against Jabesh-Gilead, and all the men of Jabesh say unto Nahash, 'Make with us a covenant, and we serve thee.'
+**¹** And Nahash the Ammonite cometh up, and encampeth against Jabesh-Gilead, and all the men of Jabesh say unto Nahash, 'Make with us a covenant, and we serve thee.'
 
-<sup>2</sup> And Nahash the Ammonite saith unto them, 'For this I covenant with you, by picking out to you every right eye — and I have put it a reproach on all Israel.'
+**²** And Nahash the Ammonite saith unto them, 'For this I covenant with you, by picking out to you every right eye — and I have put it a reproach on all Israel.'
 
-<sup>3</sup> And the elders of Jabesh say to him, 'Let us alone seven days, and we send messengers into all the border of Israel: and if there is none saving us — then we have come out unto thee.'
+**³** And the elders of Jabesh say to him, 'Let us alone seven days, and we send messengers into all the border of Israel: and if there is none saving us — then we have come out unto thee.'
 
-<sup>4</sup> And the messengers come to Gibeah of Saul, and speak the words in the ears of the people, and all the people lift up their voice and weep;
+**⁴** And the messengers come to Gibeah of Saul, and speak the words in the ears of the people, and all the people lift up their voice and weep;
 
-<sup>5</sup> and lo, Saul hath come after the herd out of the field, and Saul saith, 'What — to the people, that they weep?' and they recount to him the words of the men of Jabesh.
+**⁵** and lo, Saul hath come after the herd out of the field, and Saul saith, 'What — to the people, that they weep?' and they recount to him the words of the men of Jabesh.
 
-<sup>6</sup> And the Spirit of God doth prosper over Saul, in his hearing these words, and his anger burneth greatly,
+**⁶** And the Spirit of God doth prosper over Saul, in his hearing these words, and his anger burneth greatly,
 
-<sup>7</sup> and he taketh a couple of oxen, and cutteth them in pieces, and sendeth through all the border of Israel, by the hand of the messengers, saying, 'He who is not coming out after Saul and after Samuel — thus it is done to his oxen;' and the fear of Jehovah falleth on the people, and they come out as one man.
+**⁷** and he taketh a couple of oxen, and cutteth them in pieces, and sendeth through all the border of Israel, by the hand of the messengers, saying, 'He who is not coming out after Saul and after Samuel — thus it is done to his oxen;' and the fear of Jehovah falleth on the people, and they come out as one man.
 
-<sup>8</sup> And he inspecteth them in Bezek, and the sons of Israel are three hundred thousand, and the men of Judah thirty thousand.
+**⁸** And he inspecteth them in Bezek, and the sons of Israel are three hundred thousand, and the men of Judah thirty thousand.
 
-<sup>9</sup> And they say to the messengers who are coming, 'Thus do ye say to the men of Jabesh-Gilead: To-morrow ye have safety — by the heat of the sun;' and the messengers come and declare to the men of Jabesh, and they rejoice;
+**⁹** And they say to the messengers who are coming, 'Thus do ye say to the men of Jabesh-Gilead: To-morrow ye have safety — by the heat of the sun;' and the messengers come and declare to the men of Jabesh, and they rejoice;
 
-<sup>10</sup> and the men of Jabesh say [to the Ammonites], 'To-morrow we come out unto you, and ye have done to us according to all that [is] good in your eyes.'
+**¹⁰** and the men of Jabesh say [to the Ammonites], 'To-morrow we come out unto you, and ye have done to us according to all that [is] good in your eyes.'
 
-<sup>11</sup> And it cometh to pass, on the morrow, that Saul putteth the people in three detachments, and they come into the midst of the camp in the morning-watch, and smite Ammon till the heat of the day; and it cometh to pass that those left are scattered, and there have not been left of them two together.
+**¹¹** And it cometh to pass, on the morrow, that Saul putteth the people in three detachments, and they come into the midst of the camp in the morning-watch, and smite Ammon till the heat of the day; and it cometh to pass that those left are scattered, and there have not been left of them two together.
 
-<sup>12</sup> And the people say unto Samuel, 'Who is he that saith, Saul doth reign over us! give ye up the men, and we put them to death.'
+**¹²** And the people say unto Samuel, 'Who is he that saith, Saul doth reign over us! give ye up the men, and we put them to death.'
 
-<sup>13</sup> And Saul saith, 'There is no man put to death on this day, for to-day hath Jehovah wrought salvation in Israel.'
+**¹³** And Saul saith, 'There is no man put to death on this day, for to-day hath Jehovah wrought salvation in Israel.'
 
-<sup>14</sup> And Samuel saith unto the people, 'Come and we go to Gilgal, and renew the kingdom there;'
+**¹⁴** And Samuel saith unto the people, 'Come and we go to Gilgal, and renew the kingdom there;'
 
-<sup>15</sup> and all the people go to Gilgal, and cause Saul to reign there before Jehovah in Gilgal, and sacrifice there sacrifices of peace-offerings before Jehovah, and there Saul rejoiceth — and all the men of Israel — very greatly.
+**¹⁵** and all the people go to Gilgal, and cause Saul to reign there before Jehovah in Gilgal, and sacrifice there sacrifices of peace-offerings before Jehovah, and there Saul rejoiceth — and all the men of Israel — very greatly.

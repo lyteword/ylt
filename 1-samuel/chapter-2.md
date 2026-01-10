@@ -1,73 +1,73 @@
 # Chapter 2
 
-<sup>1</sup> And Hannah prayeth, and saith: 'My heart hath exulted in Jehovah, My horn hath been high in Jehovah, My mouth hath been large over mine enemies, For I have rejoiced in Thy salvation.
+**¹** And Hannah prayeth, and saith: 'My heart hath exulted in Jehovah, My horn hath been high in Jehovah, My mouth hath been large over mine enemies, For I have rejoiced in Thy salvation.
 
-<sup>2</sup> There is none holy like Jehovah, For there is none save Thee, And there is no rock like our God.
+**²** There is none holy like Jehovah, For there is none save Thee, And there is no rock like our God.
 
-<sup>3</sup> Ye multiply not — ye speak haughtily — The old saying goeth out from your mouth, For a God of knowledge [is] Jehovah, And by Him actions are weighed.
+**³** Ye multiply not — ye speak haughtily — The old saying goeth out from your mouth, For a God of knowledge [is] Jehovah, And by Him actions are weighed.
 
-<sup>4</sup> Bows of the mighty are broken, And the stumbling have girded on strength.
+**⁴** Bows of the mighty are broken, And the stumbling have girded on strength.
 
-<sup>5</sup> The satiated for bread hired themselves, And the hungry have ceased. While the barren hath borne seven, And she abounding with sons hath languished.
+**⁵** The satiated for bread hired themselves, And the hungry have ceased. While the barren hath borne seven, And she abounding with sons hath languished.
 
-<sup>6</sup> Jehovah putteth to death, and keepeth alive, He bringeth down to Sheol, and bringeth up.
+**⁶** Jehovah putteth to death, and keepeth alive, He bringeth down to Sheol, and bringeth up.
 
-<sup>7</sup> Jehovah dispossesseth, and He maketh rich, He maketh low, yea, He maketh high.
+**⁷** Jehovah dispossesseth, and He maketh rich, He maketh low, yea, He maketh high.
 
-<sup>8</sup> He raiseth from the dust the poor, From a dunghill He lifteth up the needy, To cause [them] to sit with nobles, Yea, a throne of honour He doth cause them to inherit, For to Jehovah [are] the fixtures of earth, And He setteth on them the habitable world.
+**⁸** He raiseth from the dust the poor, From a dunghill He lifteth up the needy, To cause [them] to sit with nobles, Yea, a throne of honour He doth cause them to inherit, For to Jehovah [are] the fixtures of earth, And He setteth on them the habitable world.
 
-<sup>9</sup> The feet of His saints He keepeth, And the wicked in darkness are silent, For not by power doth man become mighty.
+**⁹** The feet of His saints He keepeth, And the wicked in darkness are silent, For not by power doth man become mighty.
 
-<sup>10</sup> Jehovah — broken down are His adversaries, Against them in the heavens He thundereth: Jehovah judgeth the ends of earth, And giveth strength to His king, And exalteth the horn of His anointed.'
+**¹⁰** Jehovah — broken down are His adversaries, Against them in the heavens He thundereth: Jehovah judgeth the ends of earth, And giveth strength to His king, And exalteth the horn of His anointed.'
 
-<sup>11</sup> And Elkanah goeth to Ramath, unto his house, and the youth hath been serving Jehovah, [in] the presence of Eli the priest;
+**¹¹** And Elkanah goeth to Ramath, unto his house, and the youth hath been serving Jehovah, [in] the presence of Eli the priest;
 
-<sup>12</sup> and the sons of Eli [are] sons of worthlessness, they have not known Jehovah.
+**¹²** and the sons of Eli [are] sons of worthlessness, they have not known Jehovah.
 
-<sup>13</sup> And the custom of the priests with the people [is]: any man sacrificing a sacrifice — then hath the servant of the priest come in when the flesh is boiling, and the hook of three teeth in his hand,
+**¹³** And the custom of the priests with the people [is]: any man sacrificing a sacrifice — then hath the servant of the priest come in when the flesh is boiling, and the hook of three teeth in his hand,
 
-<sup>14</sup> and hath struck [it] into the pan, or kettle, or caldron, or pot; all that the hook bringeth up doth the priest take for himself; thus they do to all Israel who are coming in, there, in Shiloh.
+**¹⁴** and hath struck [it] into the pan, or kettle, or caldron, or pot; all that the hook bringeth up doth the priest take for himself; thus they do to all Israel who are coming in, there, in Shiloh.
 
-<sup>15</sup> Also before they make perfume with the fat — then hath the priest's servant come in, and said to the man who is sacrificing, 'Give flesh to roast for the priest, and he doth not take of thee flesh boiled, but raw;'
+**¹⁵** Also before they make perfume with the fat — then hath the priest's servant come in, and said to the man who is sacrificing, 'Give flesh to roast for the priest, and he doth not take of thee flesh boiled, but raw;'
 
-<sup>16</sup> and the man saith unto him, 'Let them surely make a perfume (as to-day) with the fat, then take to thee as thy soul desireth;' and he hath said to him, 'Surely now thou dost give; and if not — I have taken by strength.'
+**¹⁶** and the man saith unto him, 'Let them surely make a perfume (as to-day) with the fat, then take to thee as thy soul desireth;' and he hath said to him, 'Surely now thou dost give; and if not — I have taken by strength.'
 
-<sup>17</sup> And the sin of the young men is very great [in] the presence of Jehovah, for the men have despised the offering of Jehovah.
+**¹⁷** And the sin of the young men is very great [in] the presence of Jehovah, for the men have despised the offering of Jehovah.
 
-<sup>18</sup> And Samuel is ministering [in] the presence of Jehovah, a youth girt [with] an ephod of linen;
+**¹⁸** And Samuel is ministering [in] the presence of Jehovah, a youth girt [with] an ephod of linen;
 
-<sup>19</sup> and a small upper coat doth his mother make to him, and she hath brought it up to him from time to time, in her coming up with her husband to sacrifice the sacrifice of the time.
+**¹⁹** and a small upper coat doth his mother make to him, and she hath brought it up to him from time to time, in her coming up with her husband to sacrifice the sacrifice of the time.
 
-<sup>20</sup> And Eli blessed Elkanah, and his wife, and said, 'Jehovah doth appoint for thee seed of this woman, for the petition which she asked for Jehovah;' and they have gone to their place.
+**²⁰** And Eli blessed Elkanah, and his wife, and said, 'Jehovah doth appoint for thee seed of this woman, for the petition which she asked for Jehovah;' and they have gone to their place.
 
-<sup>21</sup> When Jehovah hath looked after Hannah, then she conceiveth and beareth three sons and two daughters; and the youth Samuel groweth up with Jehovah.
+**²¹** When Jehovah hath looked after Hannah, then she conceiveth and beareth three sons and two daughters; and the youth Samuel groweth up with Jehovah.
 
-<sup>22</sup> And Eli [is] very old, and hath heard all that his sons do to all Israel, and how that they lie with the women who are assembling [at] the opening of the tent of meeting,
+**²²** And Eli [is] very old, and hath heard all that his sons do to all Israel, and how that they lie with the women who are assembling [at] the opening of the tent of meeting,
 
-<sup>23</sup> and he saith to them, 'Why do ye things like these? for I am hearing of your evil words from all the people — these!
+**²³** and he saith to them, 'Why do ye things like these? for I am hearing of your evil words from all the people — these!
 
-<sup>24</sup> Nay, my sons; for the report which I am hearing is not good causing the people of Jehovah to transgress. —
+**²⁴** Nay, my sons; for the report which I am hearing is not good causing the people of Jehovah to transgress. —
 
-<sup>25</sup> If a man sin against a man, then hath God judged him; but if against Jehovah a man sin, who doth pray for him?' and they hearken not to the voice of their father, though Jehovah hath delighted to put them to death.
+**²⁵** If a man sin against a man, then hath God judged him; but if against Jehovah a man sin, who doth pray for him?' and they hearken not to the voice of their father, though Jehovah hath delighted to put them to death.
 
-<sup>26</sup> And the youth Samuel is going on and growing up, and [is] good both with Jehovah, and also with men.
+**²⁶** And the youth Samuel is going on and growing up, and [is] good both with Jehovah, and also with men.
 
-<sup>27</sup> And there cometh a man of God unto Eli, and saith unto him, 'Thus said Jehovah, Was I really revealed unto the house of thy father in their being in Egypt, before Pharaoh's house,
+**²⁷** And there cometh a man of God unto Eli, and saith unto him, 'Thus said Jehovah, Was I really revealed unto the house of thy father in their being in Egypt, before Pharaoh's house,
 
-<sup>28</sup> even to choose him out of all the tribes of Israel to Me for a priest, to go up on Mine altar, to make a perfume, to bear an ephod before Me, and I give to the house of thy father all the fire-offerings of the sons of Israel?
+**²⁸** even to choose him out of all the tribes of Israel to Me for a priest, to go up on Mine altar, to make a perfume, to bear an ephod before Me, and I give to the house of thy father all the fire-offerings of the sons of Israel?
 
-<sup>29</sup> Why do ye kick at My sacrifice, and at Mine offering which I commanded [in] My habitation, and dost honour thy sons above Me, to make yourselves fat from the first part of every offering of Israel, of My people?
+**²⁹** Why do ye kick at My sacrifice, and at Mine offering which I commanded [in] My habitation, and dost honour thy sons above Me, to make yourselves fat from the first part of every offering of Israel, of My people?
 
-<sup>30</sup> 'Therefore — the affirmation of Jehovah, God of Israel — I certainly said, Thy house and the house of thy father, do walk up and down before Me to the age; and now — the affirmation of Jehovah — Far be it from Me! for he who is honouring Me, I honour, and those despising Me, are lightly esteemed.
+**³⁰** 'Therefore — the affirmation of Jehovah, God of Israel — I certainly said, Thy house and the house of thy father, do walk up and down before Me to the age; and now — the affirmation of Jehovah — Far be it from Me! for he who is honouring Me, I honour, and those despising Me, are lightly esteemed.
 
-<sup>31</sup> 'Lo, days [are] coming, and I have cut off thine arm, and the arm of the house of thy father, that an old man is not in thy house;
+**³¹** 'Lo, days [are] coming, and I have cut off thine arm, and the arm of the house of thy father, that an old man is not in thy house;
 
-<sup>32</sup> and thou hast beheld an adversary [in My] habitation, in all that He doth good with Israel, and there is not an old man in thy house all the days.
+**³²** and thou hast beheld an adversary [in My] habitation, in all that He doth good with Israel, and there is not an old man in thy house all the days.
 
-<sup>33</sup> 'And the man I cut not off of thine from Mine altar, [is] to consume thine eyes, and to grieve thy soul; and all the increase of thy house do die men;
+**³³** 'And the man I cut not off of thine from Mine altar, [is] to consume thine eyes, and to grieve thy soul; and all the increase of thy house do die men;
 
-<sup>34</sup> and this [is] to thee the sign that cometh unto thy two sons, unto Hophni and Phinehas — in one day they die both of them;
+**³⁴** and this [is] to thee the sign that cometh unto thy two sons, unto Hophni and Phinehas — in one day they die both of them;
 
-<sup>35</sup> and I have raised up for Me a stedfast priest; as in My heart and in My soul he doth do; and I have built for him a stedfast house, and he hath walked up and down before Mine anointed all the days;
+**³⁵** and I have raised up for Me a stedfast priest; as in My heart and in My soul he doth do; and I have built for him a stedfast house, and he hath walked up and down before Mine anointed all the days;
 
-<sup>36</sup> and it hath been, every one who is left in thy house doth come in to bow himself to him, for a wage of silver, and a cake of bread, and hath said, Admit me, I pray thee, unto one of the priest's offices, to eat a morsel of bread.'
+**³⁶** and it hath been, every one who is left in thy house doth come in to bow himself to him, for a wage of silver, and a cake of bread, and hath said, Admit me, I pray thee, unto one of the priest's offices, to eat a morsel of bread.'

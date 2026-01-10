@@ -1,29 +1,29 @@
 # Chapter 16
 
-<sup>1</sup> In the thirty and sixth year of the reign of Asa, come up hath Baasha king of Israel, against Judah, and buildeth Ramah, so as not to permit any going out and coming in to Asa king of Judah.
+**¹** In the thirty and sixth year of the reign of Asa, come up hath Baasha king of Israel, against Judah, and buildeth Ramah, so as not to permit any going out and coming in to Asa king of Judah.
 
-<sup>2</sup> And Asa bringeth out silver and gold from the treasures of the house of Jehovah, and of the house of the king, and sendeth unto Ben-Hadad king of Aram, who is dwelling in Damascus, saying,
+**²** And Asa bringeth out silver and gold from the treasures of the house of Jehovah, and of the house of the king, and sendeth unto Ben-Hadad king of Aram, who is dwelling in Damascus, saying,
 
-<sup>3</sup> 'A covenant [is] between me and thee, and between my father and thy father, lo, I have sent to thee silver and gold; go, break thy covenant with Baasha king of Israel, and he doth go up from off me.'
+**³** 'A covenant [is] between me and thee, and between my father and thy father, lo, I have sent to thee silver and gold; go, break thy covenant with Baasha king of Israel, and he doth go up from off me.'
 
-<sup>4</sup> And Ben-Hadad hearkeneth unto king Asa, and sendeth the heads of the forces that he hath unto cities of Israel, and they smite Ijon, and Dan, and Abel-Maim, and all the stores, cities of Naphtali.
+**⁴** And Ben-Hadad hearkeneth unto king Asa, and sendeth the heads of the forces that he hath unto cities of Israel, and they smite Ijon, and Dan, and Abel-Maim, and all the stores, cities of Naphtali.
 
-<sup>5</sup> And it cometh to pass, at Baasha's hearing, that he ceaseth from building Ramah, and letteth his work rest;
+**⁵** And it cometh to pass, at Baasha's hearing, that he ceaseth from building Ramah, and letteth his work rest;
 
-<sup>6</sup> and Asa the king hath taken all Judah, and they bear away the stones of Ramah, and its wood, that Baasha hath built, and he buildeth with them Geba and Mizpah.
+**⁶** and Asa the king hath taken all Judah, and they bear away the stones of Ramah, and its wood, that Baasha hath built, and he buildeth with them Geba and Mizpah.
 
-<sup>7</sup> And at that time hath Hanani the seer come in unto Asa king of Judah, and saith unto him, 'Because of thy leaning on the king of Aram, and thou hast not leaned on Jehovah thy God, therefore hath the force of the king of Aram escaped from thy hand.
+**⁷** And at that time hath Hanani the seer come in unto Asa king of Judah, and saith unto him, 'Because of thy leaning on the king of Aram, and thou hast not leaned on Jehovah thy God, therefore hath the force of the king of Aram escaped from thy hand.
 
-<sup>8</sup> Did not the Cushim and the Lubim become a very great force for multitude, for chariot, and for horsemen? and in thy leaning on Jehovah He gave them into thy hand,
+**⁸** Did not the Cushim and the Lubim become a very great force for multitude, for chariot, and for horsemen? and in thy leaning on Jehovah He gave them into thy hand,
 
-<sup>9</sup> for Jehovah — His eyes go to and fro in all the earth, to show Himself strong [for] a people whose heart [is] perfect towards Him; thou hast been foolish concerning this, because — henceforth there are with thee wars.'
+**⁹** for Jehovah — His eyes go to and fro in all the earth, to show Himself strong [for] a people whose heart [is] perfect towards Him; thou hast been foolish concerning this, because — henceforth there are with thee wars.'
 
-<sup>10</sup> And Asa is angry at the seer, and giveth him to the house of torture, for [he is] in a rage with him for this; and Asa oppresseth [some] of the people at that time.
+**¹⁰** And Asa is angry at the seer, and giveth him to the house of torture, for [he is] in a rage with him for this; and Asa oppresseth [some] of the people at that time.
 
-<sup>11</sup> And lo, the matters of Asa, the first and the last, lo, they are written on the book of the kings of Judah and Israel.
+**¹¹** And lo, the matters of Asa, the first and the last, lo, they are written on the book of the kings of Judah and Israel.
 
-<sup>12</sup> And Asa is diseased — in the thirty and ninth year of his reign — in his feet, till his disease is excessive, and also in his disease he hath not sought Jehovah, but among physicians.
+**¹²** And Asa is diseased — in the thirty and ninth year of his reign — in his feet, till his disease is excessive, and also in his disease he hath not sought Jehovah, but among physicians.
 
-<sup>13</sup> And Asa lieth with his fathers, and dieth in the forty and first year of his reign,
+**¹³** And Asa lieth with his fathers, and dieth in the forty and first year of his reign,
 
-<sup>14</sup> and they bury him in [one of] his graves, that he had prepared for himself in the city of David, and they cause him to lie on a bed that [one] hath filled [with] spices, and divers kinds of mixtures, with perfumed work; and they burn for him a burning — very great.
+**¹⁴** and they bury him in [one of] his graves, that he had prepared for himself in the city of David, and they cause him to lie on a bed that [one] hath filled [with] spices, and divers kinds of mixtures, with perfumed work; and they burn for him a burning — very great.

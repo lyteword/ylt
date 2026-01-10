@@ -1,63 +1,63 @@
 # Chapter 9
 
-<sup>1</sup> And the queen of Sheba hath heard of the fame of Solomon, and cometh in to try Solomon with acute sayings, to Jerusalem, with a very great company, and camels bearing spices and gold in abundance, and precious stone; and she cometh in unto Solomon, and speaketh with him all that hath been with her heart,
+**¹** And the queen of Sheba hath heard of the fame of Solomon, and cometh in to try Solomon with acute sayings, to Jerusalem, with a very great company, and camels bearing spices and gold in abundance, and precious stone; and she cometh in unto Solomon, and speaketh with him all that hath been with her heart,
 
-<sup>2</sup> and Solomon declareth to her all her matters, and there hath not been hid a thing from Solomon that he hath not declared to her.
+**²** and Solomon declareth to her all her matters, and there hath not been hid a thing from Solomon that he hath not declared to her.
 
-<sup>3</sup> And the queen of Sheba seeth the wisdom of Solomon, and the house that he hath built,
+**³** And the queen of Sheba seeth the wisdom of Solomon, and the house that he hath built,
 
-<sup>4</sup> and the food of his table, and the sitting of his servants, and the standing of his ministers, and their clothing, and his stewards, and their clothing, an his burnt-offering that he offered up in the house of Jehovah, and there hath not been any more spirit in her.
+**⁴** and the food of his table, and the sitting of his servants, and the standing of his ministers, and their clothing, and his stewards, and their clothing, an his burnt-offering that he offered up in the house of Jehovah, and there hath not been any more spirit in her.
 
-<sup>5</sup> And she saith unto the king, 'True [is] the word that I heard in my land concerning thy matters and concerning thy wisdom,
+**⁵** And she saith unto the king, 'True [is] the word that I heard in my land concerning thy matters and concerning thy wisdom,
 
-<sup>6</sup> and I have given no credence to their words, till that I have come, and mine eyes see, and lo, there hath not been declared to me the half of the abundance of thy wisdom — thou hast added unto the report that I heard.
+**⁶** and I have given no credence to their words, till that I have come, and mine eyes see, and lo, there hath not been declared to me the half of the abundance of thy wisdom — thou hast added unto the report that I heard.
 
-<sup>7</sup> 'O the happiness of thy men, and the happiness of thy servants — these — who are standing before thee continually, and hearing thy wisdom.
+**⁷** 'O the happiness of thy men, and the happiness of thy servants — these — who are standing before thee continually, and hearing thy wisdom.
 
-<sup>8</sup> Let Jehovah thy God be blessed who hath delighted in thee, to put thee on His throne for king for Jehovah thy God; in the love of thy God to Israel, to establish it to the age, He hath put thee over them for king, to do judgment and righteousness.'
+**⁸** Let Jehovah thy God be blessed who hath delighted in thee, to put thee on His throne for king for Jehovah thy God; in the love of thy God to Israel, to establish it to the age, He hath put thee over them for king, to do judgment and righteousness.'
 
-<sup>9</sup> And she giveth to the king a hundred and twenty talents of gold, and spices in great abundance, and precious stone; and there hath not been any such spice as the queen of Sheba hath given to king Solomon.
+**⁹** And she giveth to the king a hundred and twenty talents of gold, and spices in great abundance, and precious stone; and there hath not been any such spice as the queen of Sheba hath given to king Solomon.
 
-<sup>10</sup> And also, servants of Huram, and servants of Solomon, who brought in gold from Ophir, have brought in algum-trees and precious stone.
+**¹⁰** And also, servants of Huram, and servants of Solomon, who brought in gold from Ophir, have brought in algum-trees and precious stone.
 
-<sup>11</sup> And the king maketh the algum-trees staircases for the house of Jehovah, and for the house of the king, and harps and psalteries for singers; and there have been none seen like these before in the land of Judah.
+**¹¹** And the king maketh the algum-trees staircases for the house of Jehovah, and for the house of the king, and harps and psalteries for singers; and there have been none seen like these before in the land of Judah.
 
-<sup>12</sup> And king Solomon hath given to the queen of Sheba all her desire that she asked, apart from that which she had brought unto the king, and she turneth and goeth to her land, she and her servants.
+**¹²** And king Solomon hath given to the queen of Sheba all her desire that she asked, apart from that which she had brought unto the king, and she turneth and goeth to her land, she and her servants.
 
-<sup>13</sup> And the weight of the gold that is coming to Solomon in one year is six hundred and sixty and six talents of gold,
+**¹³** And the weight of the gold that is coming to Solomon in one year is six hundred and sixty and six talents of gold,
 
-<sup>14</sup> apart from [what] the tourists, and the merchants, are bringing in; and all the kings of Arabia, and the governors of the land, are bringing in gold and silver to Solomon.
+**¹⁴** apart from [what] the tourists, and the merchants, are bringing in; and all the kings of Arabia, and the governors of the land, are bringing in gold and silver to Solomon.
 
-<sup>15</sup> And king Solomon maketh two hundred targets of alloyed gold, six hundred [shekels] of alloyed gold he causeth to go up on the one target;
+**¹⁵** And king Solomon maketh two hundred targets of alloyed gold, six hundred [shekels] of alloyed gold he causeth to go up on the one target;
 
-<sup>16</sup> and three hundred shields of alloyed gold, three hundred [shekels] of gold he causeth to go up on the one shield, and the king putteth them in the house of the forest of Lebanon.
+**¹⁶** and three hundred shields of alloyed gold, three hundred [shekels] of gold he causeth to go up on the one shield, and the king putteth them in the house of the forest of Lebanon.
 
-<sup>17</sup> And the king maketh a great throne of ivory, and overlayeth it with pure gold;
+**¹⁷** And the king maketh a great throne of ivory, and overlayeth it with pure gold;
 
-<sup>18</sup> and six steps [are] to the throne, and a footstool of gold, to the throne they are fastened, and hands [are] on this [side] and on that on the place of the sitting, and two lions are standing near the hands,
+**¹⁸** and six steps [are] to the throne, and a footstool of gold, to the throne they are fastened, and hands [are] on this [side] and on that on the place of the sitting, and two lions are standing near the hands,
 
-<sup>19</sup> and twelve lions are standing there on the six steps on this [side], and on that: it hath not been made so for any kingdom.
+**¹⁹** and twelve lions are standing there on the six steps on this [side], and on that: it hath not been made so for any kingdom.
 
-<sup>20</sup> And all the drinking vessels of king Solomon [are] of gold, and all the vessels of the house of the forest of Lebanon [are] of refined gold — silver is not reckoned in the days of Solomon for anything;
+**²⁰** And all the drinking vessels of king Solomon [are] of gold, and all the vessels of the house of the forest of Lebanon [are] of refined gold — silver is not reckoned in the days of Solomon for anything;
 
-<sup>21</sup> for ships of the king are going to Tarshish, with servants of Huram: once in three years come do the ships of Tarshish bearing gold, and silver, ivory, apes, and peacocks.
+**²¹** for ships of the king are going to Tarshish, with servants of Huram: once in three years come do the ships of Tarshish bearing gold, and silver, ivory, apes, and peacocks.
 
-<sup>22</sup> And king Solomon becometh greater than any of the kings of the earth for riches and wisdom;
+**²²** And king Solomon becometh greater than any of the kings of the earth for riches and wisdom;
 
-<sup>23</sup> and all the kings of the earth are seeking the presence of Solomon to hear his wisdom that God hath put in his heart,
+**²³** and all the kings of the earth are seeking the presence of Solomon to hear his wisdom that God hath put in his heart,
 
-<sup>24</sup> and they are bringing in each his present, vessels of silver, and vessels of gold, and garments, harness, and spices, horses, and mules, a rate year by year.
+**²⁴** and they are bringing in each his present, vessels of silver, and vessels of gold, and garments, harness, and spices, horses, and mules, a rate year by year.
 
-<sup>25</sup> And there are to Solomon four thousand stalls for horses and chariots, and twelve thousand horsemen, and he placed them in cities of the chariot, and with the king in Jerusalem.
+**²⁵** And there are to Solomon four thousand stalls for horses and chariots, and twelve thousand horsemen, and he placed them in cities of the chariot, and with the king in Jerusalem.
 
-<sup>26</sup> And he is ruling over all the kings from the River even unto the land of the Philistines, and unto the border of Egypt.
+**²⁶** And he is ruling over all the kings from the River even unto the land of the Philistines, and unto the border of Egypt.
 
-<sup>27</sup> And the king maketh the silver in Jerusalem as stones, and the cedars he hath made as sycamores, that [are] in the low country, for abundance,
+**²⁷** And the king maketh the silver in Jerusalem as stones, and the cedars he hath made as sycamores, that [are] in the low country, for abundance,
 
-<sup>28</sup> and they are bringing out horses from Egypt to Solomon, and from all the lands.
+**²⁸** and they are bringing out horses from Egypt to Solomon, and from all the lands.
 
-<sup>29</sup> And the rest of the matters of Solomon, the first and the last, are they not written beside the matters of Nathan the prophet, and beside the prophecy of Ahijah the Shilonite, and with the visions of Iddo the seer concerning Jeroboam son of Nebat?
+**²⁹** And the rest of the matters of Solomon, the first and the last, are they not written beside the matters of Nathan the prophet, and beside the prophecy of Ahijah the Shilonite, and with the visions of Iddo the seer concerning Jeroboam son of Nebat?
 
-<sup>30</sup> And Solomon reigneth in Jerusalem over all Israel forty years,
+**³⁰** And Solomon reigneth in Jerusalem over all Israel forty years,
 
-<sup>31</sup> and Solomon lieth with his fathers, and they bury him in the city of David his father, and reign doth Rehoboam his son in his stead.
+**³¹** and Solomon lieth with his fathers, and they bury him in the city of David his father, and reign doth Rehoboam his son in his stead.

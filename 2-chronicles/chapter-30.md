@@ -1,55 +1,55 @@
 # Chapter 30
 
-<sup>1</sup> And Hezekiah sendeth unto all Israel and Judah, and also letters he hath written unto Ephraim and Manasseh, to come in to the house of Jehovah in Jerusalem, to make a passover to Jehovah, God of Israel.
+**¹** And Hezekiah sendeth unto all Israel and Judah, and also letters he hath written unto Ephraim and Manasseh, to come in to the house of Jehovah in Jerusalem, to make a passover to Jehovah, God of Israel.
 
-<sup>2</sup> And the king taketh counsel, and his heads, and all the assembly in Jerusalem, to make the passover in the second month,
+**²** And the king taketh counsel, and his heads, and all the assembly in Jerusalem, to make the passover in the second month,
 
-<sup>3</sup> for they have not been able to make it at that time, for the priests have not sanctified themselves sufficiently, and the people have not been gathered to Jerusalem.
+**³** for they have not been able to make it at that time, for the priests have not sanctified themselves sufficiently, and the people have not been gathered to Jerusalem.
 
-<sup>4</sup> And the thing is right in the eyes of the king, and in the eyes of all the assembly,
+**⁴** And the thing is right in the eyes of the king, and in the eyes of all the assembly,
 
-<sup>5</sup> and they establish the thing, to cause to pass over an intimation into all Israel, from Beer-Sheba even unto Dan, to come in to make a passover to Jehovah, God of Israel, in Jerusalem, for not for a long time had they done as it is written.
+**⁵** and they establish the thing, to cause to pass over an intimation into all Israel, from Beer-Sheba even unto Dan, to come in to make a passover to Jehovah, God of Israel, in Jerusalem, for not for a long time had they done as it is written.
 
-<sup>6</sup> And the runners go with letters from the hand of the king and his heads, into all Israel and Judah, even according to the command of the king, saying, 'O sons of Israel, turn back unto Jehovah, God of Abraham, Isaac, and Israel, and He doth turn back unto the escaped part that is left of you from the hand of the kings of Asshur;
+**⁶** And the runners go with letters from the hand of the king and his heads, into all Israel and Judah, even according to the command of the king, saying, 'O sons of Israel, turn back unto Jehovah, God of Abraham, Isaac, and Israel, and He doth turn back unto the escaped part that is left of you from the hand of the kings of Asshur;
 
-<sup>7</sup> and do not be like your fathers, and like your brethren, who trespassed against Jehovah, God of their fathers, and He giveth them to desolation, as ye do see.
+**⁷** and do not be like your fathers, and like your brethren, who trespassed against Jehovah, God of their fathers, and He giveth them to desolation, as ye do see.
 
-<sup>8</sup> 'Now, harden not your neck like your fathers, give a hand to Jehovah, and come in to His sanctuary, that He hath sanctified to the age, and serve Jehovah your God, and the fierceness of His anger doth turn back from you;
+**⁸** 'Now, harden not your neck like your fathers, give a hand to Jehovah, and come in to His sanctuary, that He hath sanctified to the age, and serve Jehovah your God, and the fierceness of His anger doth turn back from you;
 
-<sup>9</sup> for in your turning back unto Jehovah, your brethren and your sons have mercies before their captors, even to return to this land, for gracious and merciful [is] Jehovah your God, and He doth not turn aside the face from you, if ye turn back unto Him.'
+**⁹** for in your turning back unto Jehovah, your brethren and your sons have mercies before their captors, even to return to this land, for gracious and merciful [is] Jehovah your God, and He doth not turn aside the face from you, if ye turn back unto Him.'
 
-<sup>10</sup> And the runners are passing over from city to city, in the land of Ephraim and Manasseh, even unto Zebulun: and they are laughing at them, and mocking at them,
+**¹⁰** And the runners are passing over from city to city, in the land of Ephraim and Manasseh, even unto Zebulun: and they are laughing at them, and mocking at them,
 
-<sup>11</sup> only, certain from Asher, and Manasseh, and from Zebulun, have been humbled, and come in to Jerusalem.
+**¹¹** only, certain from Asher, and Manasseh, and from Zebulun, have been humbled, and come in to Jerusalem.
 
-<sup>12</sup> Also, in Judah hath the hand of God been to give to them one heart to do the command of the king and of the heads, in the matter of Jehovah;
+**¹²** Also, in Judah hath the hand of God been to give to them one heart to do the command of the king and of the heads, in the matter of Jehovah;
 
-<sup>13</sup> and much people are gathered to Jerusalem, to make the feast of unleavened things in the second month — a mighty assembly for multitude.
+**¹³** and much people are gathered to Jerusalem, to make the feast of unleavened things in the second month — a mighty assembly for multitude.
 
-<sup>14</sup> And they arise and turn aside the altars that [are] in Jerusalem, and all the perfume altars they have turned aside, and cast [them] to the brook Kidron;
+**¹⁴** And they arise and turn aside the altars that [are] in Jerusalem, and all the perfume altars they have turned aside, and cast [them] to the brook Kidron;
 
-<sup>15</sup> and they slaughter the passover-offering on the fourteenth of the second month, and the priests and the Levites have been ashamed, and sanctify themselves, and bring in burnt-offerings to the house of Jehovah.
+**¹⁵** and they slaughter the passover-offering on the fourteenth of the second month, and the priests and the Levites have been ashamed, and sanctify themselves, and bring in burnt-offerings to the house of Jehovah.
 
-<sup>16</sup> And they stand on their station according to their ordinance; according to the law of Moses the man of God the priests are sprinkling the blood out of the hand of the Levites,
+**¹⁶** And they stand on their station according to their ordinance; according to the law of Moses the man of God the priests are sprinkling the blood out of the hand of the Levites,
 
-<sup>17</sup> for many [are] in the assembly who have not sanctified themselves, and the Levites [are] over the slaughtering of the passover-offerings for every one not clean, to sanctify [him] to Jehovah:
+**¹⁷** for many [are] in the assembly who have not sanctified themselves, and the Levites [are] over the slaughtering of the passover-offerings for every one not clean, to sanctify [him] to Jehovah:
 
-<sup>18</sup> for a multitude of the people, many from Ephraim and Manasseh, Issachar, and Zebulun, have not been cleansed, but have eaten the passover otherwise than it is written; but Hezekiah prayed for them, saying, 'Jehovah, who [is] good, doth receive atonement for every one
+**¹⁸** for a multitude of the people, many from Ephraim and Manasseh, Issachar, and Zebulun, have not been cleansed, but have eaten the passover otherwise than it is written; but Hezekiah prayed for them, saying, 'Jehovah, who [is] good, doth receive atonement for every one
 
-<sup>19</sup> who hath prepared his heart to seek God — Jehovah, God of his fathers — yet not according to the cleansing of the sanctuary;'
+**¹⁹** who hath prepared his heart to seek God — Jehovah, God of his fathers — yet not according to the cleansing of the sanctuary;'
 
-<sup>20</sup> and Jehovah hearkeneth unto Hezekiah, and healeth the people.
+**²⁰** and Jehovah hearkeneth unto Hezekiah, and healeth the people.
 
-<sup>21</sup> And the sons of Israel, those found in Jerusalem, make the feast of unleavened things seven days with great joy; and giving praise to Jehovah day by day are the Levites and the priests, with instruments of praise before Jehovah.
+**²¹** And the sons of Israel, those found in Jerusalem, make the feast of unleavened things seven days with great joy; and giving praise to Jehovah day by day are the Levites and the priests, with instruments of praise before Jehovah.
 
-<sup>22</sup> And Hezekiah speaketh unto the heart of all the Levites, those giving good understanding concerning Jehovah, and they eat the appointed thing seven days; sacrificing sacrifices of peace-offerings, and making confession to Jehovah, God of their fathers.
+**²²** And Hezekiah speaketh unto the heart of all the Levites, those giving good understanding concerning Jehovah, and they eat the appointed thing seven days; sacrificing sacrifices of peace-offerings, and making confession to Jehovah, God of their fathers.
 
-<sup>23</sup> And all the assembly take counsel to keep other seven days, and they keep seven days [with] joy;
+**²³** And all the assembly take counsel to keep other seven days, and they keep seven days [with] joy;
 
-<sup>24</sup> for Hezekiah king of Judah hath presented to the assembly a thousand bullocks, and seven thousand sheep; and the heads have presented to the assembly bullocks a thousand, and sheep ten thousand; and priests sanctify themselves in abundance.
+**²⁴** for Hezekiah king of Judah hath presented to the assembly a thousand bullocks, and seven thousand sheep; and the heads have presented to the assembly bullocks a thousand, and sheep ten thousand; and priests sanctify themselves in abundance.
 
-<sup>25</sup> And all the assembly of Judah rejoice, and the priests, and the Levites, and all the assembly, those coming in from Israel, and the sojourners, those coming in from the land of Israel, and those dwelling in Judah,
+**²⁵** And all the assembly of Judah rejoice, and the priests, and the Levites, and all the assembly, those coming in from Israel, and the sojourners, those coming in from the land of Israel, and those dwelling in Judah,
 
-<sup>26</sup> and there is great joy in Jerusalem; for from the days of Solomon son of David king of Israel there is not like this in Jerusalem,
+**²⁶** and there is great joy in Jerusalem; for from the days of Solomon son of David king of Israel there is not like this in Jerusalem,
 
-<sup>27</sup> and the priests, the Levites, rise and bless the people, and their voice is heard, and their prayer cometh in to His holy habitation, to the heavens.
+**²⁷** and the priests, the Levites, rise and bless the people, and their voice is heard, and their prayer cometh in to His holy habitation, to the heavens.

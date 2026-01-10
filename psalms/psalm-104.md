@@ -1,71 +1,71 @@
 # Psalm 104
 
-<sup>1</sup> Bless, O my soul, Jehovah! Jehovah, my God, Thou hast been very great, Honour and majesty Thou hast put on.
+**¹** Bless, O my soul, Jehovah! Jehovah, my God, Thou hast been very great, Honour and majesty Thou hast put on.
 
-<sup>2</sup> Covering himself [with] light as a garment, Stretching out the heavens as a curtain,
+**²** Covering himself [with] light as a garment, Stretching out the heavens as a curtain,
 
-<sup>3</sup> Who is laying the beam of His upper chambers in the waters, Who is making thick clouds His chariot, Who is walking on wings of wind,
+**³** Who is laying the beam of His upper chambers in the waters, Who is making thick clouds His chariot, Who is walking on wings of wind,
 
-<sup>4</sup> Making His messengers — the winds, His ministers — the flaming fire.
+**⁴** Making His messengers — the winds, His ministers — the flaming fire.
 
-<sup>5</sup> He hath founded earth on its bases, It is not moved to the age and for ever.
+**⁵** He hath founded earth on its bases, It is not moved to the age and for ever.
 
-<sup>6</sup> The abyss! as with clothing Thou hast covered it, Above hills do waters stand.
+**⁶** The abyss! as with clothing Thou hast covered it, Above hills do waters stand.
 
-<sup>7</sup> From Thy rebuke they flee, From the voice of Thy thunder haste away.
+**⁷** From Thy rebuke they flee, From the voice of Thy thunder haste away.
 
-<sup>8</sup> They go up hills — they go down valleys, Unto a place Thou hast founded for them.
+**⁸** They go up hills — they go down valleys, Unto a place Thou hast founded for them.
 
-<sup>9</sup> A border Thou hast set, they pass not over, They turn not back to cover the earth.
+**⁹** A border Thou hast set, they pass not over, They turn not back to cover the earth.
 
-<sup>10</sup> Who is sending forth fountains in valleys, Between hills they go on.
+**¹⁰** Who is sending forth fountains in valleys, Between hills they go on.
 
-<sup>11</sup> They water every beast of the field, Wild asses break their thirst.
+**¹¹** They water every beast of the field, Wild asses break their thirst.
 
-<sup>12</sup> By them the fowl of the heavens doth dwell, From between the branches They give forth the voice.
+**¹²** By them the fowl of the heavens doth dwell, From between the branches They give forth the voice.
 
-<sup>13</sup> Watering hills from His upper chambers, From the fruit of Thy works is the earth satisfied.
+**¹³** Watering hills from His upper chambers, From the fruit of Thy works is the earth satisfied.
 
-<sup>14</sup> Causing grass to spring up for cattle, And herb for the service of man, To bring forth bread from the earth,
+**¹⁴** Causing grass to spring up for cattle, And herb for the service of man, To bring forth bread from the earth,
 
-<sup>15</sup> And wine — it rejoiceth the heart of man, To cause the face to shine from oil, And bread — the heart of man it supporteth.
+**¹⁵** And wine — it rejoiceth the heart of man, To cause the face to shine from oil, And bread — the heart of man it supporteth.
 
-<sup>16</sup> Satisfied [are] the trees of Jehovah, Cedars of Lebanon that He hath planted,
+**¹⁶** Satisfied [are] the trees of Jehovah, Cedars of Lebanon that He hath planted,
 
-<sup>17</sup> Where birds do make nests, The stork — the firs [are] her house.
+**¹⁷** Where birds do make nests, The stork — the firs [are] her house.
 
-<sup>18</sup> The high hills [are] for wild goats, Rocks [are] a refuge for conies,
+**¹⁸** The high hills [are] for wild goats, Rocks [are] a refuge for conies,
 
-<sup>19</sup> He made the moon for seasons, The sun hath known his place of entrance.
+**¹⁹** He made the moon for seasons, The sun hath known his place of entrance.
 
-<sup>20</sup> Thou settest darkness, and it is night, In it doth every beast of the forest creep.
+**²⁰** Thou settest darkness, and it is night, In it doth every beast of the forest creep.
 
-<sup>21</sup> The young lions are roaring for prey, And to seek from God their food.
+**²¹** The young lions are roaring for prey, And to seek from God their food.
 
-<sup>22</sup> The sun riseth, they are gathered, And in their dens they crouch.
+**²²** The sun riseth, they are gathered, And in their dens they crouch.
 
-<sup>23</sup> Man goeth forth to his work, And to his service — till evening.
+**²³** Man goeth forth to his work, And to his service — till evening.
 
-<sup>24</sup> How many have been Thy works, O Jehovah, All of them in wisdom Thou hast made, Full is the earth of thy possessions.
+**²⁴** How many have been Thy works, O Jehovah, All of them in wisdom Thou hast made, Full is the earth of thy possessions.
 
-<sup>25</sup> This, the sea, great and broad of sides, There [are] moving things — innumerable, Living creatures — small with great.
+**²⁵** This, the sea, great and broad of sides, There [are] moving things — innumerable, Living creatures — small with great.
 
-<sup>26</sup> There do ships go: leviathan, That Thou hast formed to play in it.
+**²⁶** There do ships go: leviathan, That Thou hast formed to play in it.
 
-<sup>27</sup> All of them unto Thee do look, To give their food in its season.
+**²⁷** All of them unto Thee do look, To give their food in its season.
 
-<sup>28</sup> Thou dost give to them — they gather, Thou dost open Thy hand — they [are] satisfied [with] good.
+**²⁸** Thou dost give to them — they gather, Thou dost open Thy hand — they [are] satisfied [with] good.
 
-<sup>29</sup> Thou hidest Thy face — they are troubled, Thou gatherest their spirit — they expire, And unto their dust they turn back.
+**²⁹** Thou hidest Thy face — they are troubled, Thou gatherest their spirit — they expire, And unto their dust they turn back.
 
-<sup>30</sup> Thou sendest out Thy Spirit, they are created, And Thou renewest the face of the ground.
+**³⁰** Thou sendest out Thy Spirit, they are created, And Thou renewest the face of the ground.
 
-<sup>31</sup> The honour of Jehovah is to the age, Jehovah rejoiceth in His works,
+**³¹** The honour of Jehovah is to the age, Jehovah rejoiceth in His works,
 
-<sup>32</sup> Who is looking to earth, and it trembleth, He cometh against hills, and they smoke.
+**³²** Who is looking to earth, and it trembleth, He cometh against hills, and they smoke.
 
-<sup>33</sup> I sing to Jehovah during my life, I sing praise to my God while I exist.
+**³³** I sing to Jehovah during my life, I sing praise to my God while I exist.
 
-<sup>34</sup> Sweet is my meditation on Him, I — I do rejoice in Jehovah.
+**³⁴** Sweet is my meditation on Him, I — I do rejoice in Jehovah.
 
-<sup>35</sup> Consumed are sinners from the earth, And the wicked are no more. Bless, O my soul, Jehovah. Praise ye Jehovah!
+**³⁵** Consumed are sinners from the earth, And the wicked are no more. Bless, O my soul, Jehovah. Praise ye Jehovah!

@@ -1,119 +1,119 @@
 # Chapter 12
 
-<sup>1</sup> At which time the myriads of the multitude having been gathered together, so as to tread upon one another, he began to say unto his disciples, first, 'Take heed to yourselves of the leaven of the Pharisees, which is hypocrisy;
+**¹** At which time the myriads of the multitude having been gathered together, so as to tread upon one another, he began to say unto his disciples, first, 'Take heed to yourselves of the leaven of the Pharisees, which is hypocrisy;
 
-<sup>2</sup> and there is nothing covered, that shall not be revealed; and hid, that shall not be known;
+**²** and there is nothing covered, that shall not be revealed; and hid, that shall not be known;
 
-<sup>3</sup> because whatever in the darkness ye said, in the light shall be heard: and what to the ear ye spake in the inner-chambers, shall be proclaimed upon the house-tops.
+**³** because whatever in the darkness ye said, in the light shall be heard: and what to the ear ye spake in the inner-chambers, shall be proclaimed upon the house-tops.
 
-<sup>4</sup> 'And I say to you, my friends, be not afraid of those killing the body, and after these things are not having anything over to do;
+**⁴** 'And I say to you, my friends, be not afraid of those killing the body, and after these things are not having anything over to do;
 
-<sup>5</sup> but I will show to you, whom ye may fear; Fear him who, after the killing, is having authority to cast to the gehenna; yes, I say to you, Fear ye Him.
+**⁵** but I will show to you, whom ye may fear; Fear him who, after the killing, is having authority to cast to the gehenna; yes, I say to you, Fear ye Him.
 
-<sup>6</sup> 'Are not five sparrows sold for two assars? and one of them is not forgotten before God,
+**⁶** 'Are not five sparrows sold for two assars? and one of them is not forgotten before God,
 
-<sup>7</sup> but even the hairs of your head have been all numbered; therefore fear ye not, than many sparrows ye are of more value.
+**⁷** but even the hairs of your head have been all numbered; therefore fear ye not, than many sparrows ye are of more value.
 
-<sup>8</sup> 'And I say to you, Every one — whoever may confess with me before men, the Son of Man also shall confess with him before the messengers of God,
+**⁸** 'And I say to you, Every one — whoever may confess with me before men, the Son of Man also shall confess with him before the messengers of God,
 
-<sup>9</sup> and he who hath denied me before men, shall be denied before the messengers of God,
+**⁹** and he who hath denied me before men, shall be denied before the messengers of God,
 
-<sup>10</sup> and every one whoever shall say a word to the Son of Man, it shall be forgiven to him, but to him who to the Holy Spirit did speak evil, it shall not be forgiven.
+**¹⁰** and every one whoever shall say a word to the Son of Man, it shall be forgiven to him, but to him who to the Holy Spirit did speak evil, it shall not be forgiven.
 
-<sup>11</sup> 'And when they bring you before the synagogues, and the rulers, and the authorities, be not anxious how or what ye may reply, or what ye may say,
+**¹¹** 'And when they bring you before the synagogues, and the rulers, and the authorities, be not anxious how or what ye may reply, or what ye may say,
 
-<sup>12</sup> for the Holy Spirit shall teach you in that hour what it behoveth [you] to say.'
+**¹²** for the Holy Spirit shall teach you in that hour what it behoveth [you] to say.'
 
-<sup>13</sup> And a certain one said to him, out of the multitude, 'Teacher, say to my brother to divide with me the inheritance.'
+**¹³** And a certain one said to him, out of the multitude, 'Teacher, say to my brother to divide with me the inheritance.'
 
-<sup>14</sup> And he said to him, 'Man, who set me a judge or a divider over you?'
+**¹⁴** And he said to him, 'Man, who set me a judge or a divider over you?'
 
-<sup>15</sup> And he said unto them, 'Observe, and beware of the covetousness, because not in the abundance of one's goods is his life.'
+**¹⁵** And he said unto them, 'Observe, and beware of the covetousness, because not in the abundance of one's goods is his life.'
 
-<sup>16</sup> And he spake a simile unto them, saying, 'Of a certain rich man the field brought forth well;
+**¹⁶** And he spake a simile unto them, saying, 'Of a certain rich man the field brought forth well;
 
-<sup>17</sup> and he was reasoning within himself, saying, What shall I do, because I have not where I shall gather together my fruits?
+**¹⁷** and he was reasoning within himself, saying, What shall I do, because I have not where I shall gather together my fruits?
 
-<sup>18</sup> and he said, This I will do, I will take down my storehouses, and greater ones I will build, and I will gather together there all my products and my good things,
+**¹⁸** and he said, This I will do, I will take down my storehouses, and greater ones I will build, and I will gather together there all my products and my good things,
 
-<sup>19</sup> and I will say to my soul, Soul, thou hast many good things laid up for many years, be resting, eat, drink, be merry.
+**¹⁹** and I will say to my soul, Soul, thou hast many good things laid up for many years, be resting, eat, drink, be merry.
 
-<sup>20</sup> 'And God said to him, Unthinking one! this night thy soul they shall require from thee, and what things thou didst prepare — to whom shall they be?
+**²⁰** 'And God said to him, Unthinking one! this night thy soul they shall require from thee, and what things thou didst prepare — to whom shall they be?
 
-<sup>21</sup> so [is] he who is treasuring up to himself, and is not rich toward God.'
+**²¹** so [is] he who is treasuring up to himself, and is not rich toward God.'
 
-<sup>22</sup> And he said unto his disciples, 'Because of this, to you I say, Be not anxious for your life, what ye may eat; nor for the body, what ye may put on;
+**²²** And he said unto his disciples, 'Because of this, to you I say, Be not anxious for your life, what ye may eat; nor for the body, what ye may put on;
 
-<sup>23</sup> the life is more than the nourishment, and the body than the clothing.
+**²³** the life is more than the nourishment, and the body than the clothing.
 
-<sup>24</sup> 'Consider the ravens, that they sow not, nor reap, to which there is no barn nor storehouse, and God doth nourish them; how much better are ye than the fowls?
+**²⁴** 'Consider the ravens, that they sow not, nor reap, to which there is no barn nor storehouse, and God doth nourish them; how much better are ye than the fowls?
 
-<sup>25</sup> and who of you, being anxious, is able to add to his age one cubit?
+**²⁵** and who of you, being anxious, is able to add to his age one cubit?
 
-<sup>26</sup> If, then, ye are not able for the least — why for the rest are ye anxious?
+**²⁶** If, then, ye are not able for the least — why for the rest are ye anxious?
 
-<sup>27</sup> 'Consider the lilies, how do they grow? they labour not, nor do they spin, and I say to you, not even Solomon in all his glory was arrayed as one of these;
+**²⁷** 'Consider the lilies, how do they grow? they labour not, nor do they spin, and I say to you, not even Solomon in all his glory was arrayed as one of these;
 
-<sup>28</sup> and if the herbage in the field, that to-day is, and to-morrow into an oven is cast, God doth so clothe, how much more you — ye of little faith?
+**²⁸** and if the herbage in the field, that to-day is, and to-morrow into an oven is cast, God doth so clothe, how much more you — ye of little faith?
 
-<sup>29</sup> 'And ye — seek not what ye may eat, or what ye may drink, and be not in suspense,
+**²⁹** 'And ye — seek not what ye may eat, or what ye may drink, and be not in suspense,
 
-<sup>30</sup> for all these things do the nations of the world seek after, and your Father hath known that ye have need of these things;
+**³⁰** for all these things do the nations of the world seek after, and your Father hath known that ye have need of these things;
 
-<sup>31</sup> but, seek ye the reign of God, and all these things shall be added to you.
+**³¹** but, seek ye the reign of God, and all these things shall be added to you.
 
-<sup>32</sup> 'Fear not, little flock, because your Father did delight to give you the reign;
+**³²** 'Fear not, little flock, because your Father did delight to give you the reign;
 
-<sup>33</sup> sell your goods, and give alms, make to yourselves bags that become not old, a treasure unfailing in the heavens, where thief doth not come near, nor moth destroy;
+**³³** sell your goods, and give alms, make to yourselves bags that become not old, a treasure unfailing in the heavens, where thief doth not come near, nor moth destroy;
 
-<sup>34</sup> for where your treasure is, there also your heart will be.
+**³⁴** for where your treasure is, there also your heart will be.
 
-<sup>35</sup> 'Let your loins be girded, and the lamps burning,
+**³⁵** 'Let your loins be girded, and the lamps burning,
 
-<sup>36</sup> and ye like to men waiting for their lord, when he shall return out of the wedding feasts, that he having come and knocked, immediately they may open to him.
+**³⁶** and ye like to men waiting for their lord, when he shall return out of the wedding feasts, that he having come and knocked, immediately they may open to him.
 
-<sup>37</sup> 'Happy those servants, whom the lord, having come, shall find watching; verily I say to you, that he will gird himself, and will cause them to recline (at meat), and having come near, will minister to them;
+**³⁷** 'Happy those servants, whom the lord, having come, shall find watching; verily I say to you, that he will gird himself, and will cause them to recline (at meat), and having come near, will minister to them;
 
-<sup>38</sup> and if he may come in the second watch, and in the third watch he may come, and may find [it] so, happy are those servants.
+**³⁸** and if he may come in the second watch, and in the third watch he may come, and may find [it] so, happy are those servants.
 
-<sup>39</sup> 'And this know, that if the master of the house had known what hour the thief doth come, he would have watched, and would not have suffered his house to be broken through;
+**³⁹** 'And this know, that if the master of the house had known what hour the thief doth come, he would have watched, and would not have suffered his house to be broken through;
 
-<sup>40</sup> and ye, then, become ye ready, because at the hour ye think not, the Son of Man doth come.'
+**⁴⁰** and ye, then, become ye ready, because at the hour ye think not, the Son of Man doth come.'
 
-<sup>41</sup> And Peter said to him, 'Sir, unto us this simile dost thou speak, or also unto all?'
+**⁴¹** And Peter said to him, 'Sir, unto us this simile dost thou speak, or also unto all?'
 
-<sup>42</sup> And the Lord said, 'Who, then, is the faithful and prudent steward whom the lord shall set over his household, to give in season the wheat measure?
+**⁴²** And the Lord said, 'Who, then, is the faithful and prudent steward whom the lord shall set over his household, to give in season the wheat measure?
 
-<sup>43</sup> Happy that servant, whom his lord, having come, shall find doing so;
+**⁴³** Happy that servant, whom his lord, having come, shall find doing so;
 
-<sup>44</sup> truly I say to you, that over all his goods he will set him.
+**⁴⁴** truly I say to you, that over all his goods he will set him.
 
-<sup>45</sup> 'And if that servant may say in his heart, My lord doth delay to come, and may begin to beat the men-servants and the maid-servants, to eat also, and to drink, and to be drunken;
+**⁴⁵** 'And if that servant may say in his heart, My lord doth delay to come, and may begin to beat the men-servants and the maid-servants, to eat also, and to drink, and to be drunken;
 
-<sup>46</sup> the lord of that servant will come in a day in which he doth not look for [him], and in an hour that he doth not know, and will cut him off, and his portion with the unfaithful he will appoint.
+**⁴⁶** the lord of that servant will come in a day in which he doth not look for [him], and in an hour that he doth not know, and will cut him off, and his portion with the unfaithful he will appoint.
 
-<sup>47</sup> 'And that servant, who having known his lord's will, and not having prepared, nor having gone according to his will, shall be beaten with many stripes,
+**⁴⁷** 'And that servant, who having known his lord's will, and not having prepared, nor having gone according to his will, shall be beaten with many stripes,
 
-<sup>48</sup> and he who, not having known, and having done things worthy of stripes, shall be beaten with few; and to every one to whom much was given, much shall be required from him; and to whom they did commit much, more abundantly they will ask of him.
+**⁴⁸** and he who, not having known, and having done things worthy of stripes, shall be beaten with few; and to every one to whom much was given, much shall be required from him; and to whom they did commit much, more abundantly they will ask of him.
 
-<sup>49</sup> 'Fire I came to cast to the earth, and what will I if already it was kindled?
+**⁴⁹** 'Fire I came to cast to the earth, and what will I if already it was kindled?
 
-<sup>50</sup> but I have a baptism to be baptized with, and how am I pressed till it may be completed!
+**⁵⁰** but I have a baptism to be baptized with, and how am I pressed till it may be completed!
 
-<sup>51</sup> 'Think ye that peace I came to give in the earth? no, I say to you, but rather division;
+**⁵¹** 'Think ye that peace I came to give in the earth? no, I say to you, but rather division;
 
-<sup>52</sup> for there shall be henceforth five in one house divided — three against two, and two against three;
+**⁵²** for there shall be henceforth five in one house divided — three against two, and two against three;
 
-<sup>53</sup> a father shall be divided against a son, and a son against a father, a mother against a daughter, and a daughter against a mother, a mother-in-law against her daughter-in-law, and a daughter-in-law against her mother-in-law.'
+**⁵³** a father shall be divided against a son, and a son against a father, a mother against a daughter, and a daughter against a mother, a mother-in-law against her daughter-in-law, and a daughter-in-law against her mother-in-law.'
 
-<sup>54</sup> And he said also to the multitudes, 'When ye may see the cloud rising from the west, immediately ye say, A shower doth come, and it is so;
+**⁵⁴** And he said also to the multitudes, 'When ye may see the cloud rising from the west, immediately ye say, A shower doth come, and it is so;
 
-<sup>55</sup> and when — a south wind blowing, ye say, that there will be heat, and it is;
+**⁵⁵** and when — a south wind blowing, ye say, that there will be heat, and it is;
 
-<sup>56</sup> hypocrites! the face of the earth and of the heaven ye have known to make proof of, but this time — how do ye not make proof of [it]?
+**⁵⁶** hypocrites! the face of the earth and of the heaven ye have known to make proof of, but this time — how do ye not make proof of [it]?
 
-<sup>57</sup> 'And why, also, of yourselves, judge ye not what is righteous?
+**⁵⁷** 'And why, also, of yourselves, judge ye not what is righteous?
 
-<sup>58</sup> for, as thou art going away with thy opponent to the ruler, in the way give diligence to be released from him, lest he may drag thee unto the judge, and the judge may deliver thee to the officer, and the officer may cast thee into prison;
+**⁵⁸** for, as thou art going away with thy opponent to the ruler, in the way give diligence to be released from him, lest he may drag thee unto the judge, and the judge may deliver thee to the officer, and the officer may cast thee into prison;
 
-<sup>59</sup> I say to thee, thou mayest not come forth thence till even the last mite thou mayest give back.'
+**⁵⁹** I say to thee, thou mayest not come forth thence till even the last mite thou mayest give back.'

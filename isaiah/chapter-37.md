@@ -1,77 +1,77 @@
 # Chapter 37
 
-<sup>1</sup> And it cometh to pass, at the king Hezekiah's hearing, that he rendeth his garments, and covereth himself with sackcloth, and entereth the house of Jehovah,
+**¹** And it cometh to pass, at the king Hezekiah's hearing, that he rendeth his garments, and covereth himself with sackcloth, and entereth the house of Jehovah,
 
-<sup>2</sup> and sendeth Eliakim, who [is] over the house, and Shebna the scribe, and the elders of the priests, covering themselves with sackcloth, unto Isaiah son of Amoz the prophet,
+**²** and sendeth Eliakim, who [is] over the house, and Shebna the scribe, and the elders of the priests, covering themselves with sackcloth, unto Isaiah son of Amoz the prophet,
 
-<sup>3</sup> and they say unto him, 'Thus said Hezekiah, A day of distress, and rebuke, and despising, [is] this day; for come have sons unto the birth, and power there is not to bear.
+**³** and they say unto him, 'Thus said Hezekiah, A day of distress, and rebuke, and despising, [is] this day; for come have sons unto the birth, and power there is not to bear.
 
-<sup>4</sup> 'It may be Jehovah thy God doth hear the words of Rabshakeh with which the king of Asshur his lord hath sent him to reproach the living God, and hath decided concerning the words that Jehovah thy God hath heard, and thou hast lifted up prayer for the remnant that is found.'
+**⁴** 'It may be Jehovah thy God doth hear the words of Rabshakeh with which the king of Asshur his lord hath sent him to reproach the living God, and hath decided concerning the words that Jehovah thy God hath heard, and thou hast lifted up prayer for the remnant that is found.'
 
-<sup>5</sup> And the servants of king Hezekiah come in unto Isaiah,
+**⁵** And the servants of king Hezekiah come in unto Isaiah,
 
-<sup>6</sup> and Isaiah saith unto them, 'Thus do ye say unto your lord, Thus said Jehovah, Be not afraid because of the words that thou hast heard, with which the servants of the king of Asshur have reviled Me.
+**⁶** and Isaiah saith unto them, 'Thus do ye say unto your lord, Thus said Jehovah, Be not afraid because of the words that thou hast heard, with which the servants of the king of Asshur have reviled Me.
 
-<sup>7</sup> Lo, I am giving in him a spirit, and he hath heard a report, and hath turned back unto his land, and I have caused him to fall by the sword in his land.'
+**⁷** Lo, I am giving in him a spirit, and he hath heard a report, and hath turned back unto his land, and I have caused him to fall by the sword in his land.'
 
-<sup>8</sup> And Rabshakeh turneth back and findeth the king of Asshur fighting against Libnah, for he hath heard that he hath journeyed from Lachish.
+**⁸** And Rabshakeh turneth back and findeth the king of Asshur fighting against Libnah, for he hath heard that he hath journeyed from Lachish.
 
-<sup>9</sup> And he heareth concerning Tirhakah king of Cush, saying, 'He hath come out to fight with thee;' and he heareth, and sendeth messengers unto Hezekiah, saying,
+**⁹** And he heareth concerning Tirhakah king of Cush, saying, 'He hath come out to fight with thee;' and he heareth, and sendeth messengers unto Hezekiah, saying,
 
-<sup>10</sup> 'Thus do ye speak unto Hezekiah king of Judah, saying, Let not thy God lift thee up in whom thou art trusting, saying, Jerusalem is not given into the hand of the king of Asshur.
+**¹⁰** 'Thus do ye speak unto Hezekiah king of Judah, saying, Let not thy God lift thee up in whom thou art trusting, saying, Jerusalem is not given into the hand of the king of Asshur.
 
-<sup>11</sup> Lo, thou hast heard that which the kings of Asshur have done to all the lands — to devote them — and thou art delivered!
+**¹¹** Lo, thou hast heard that which the kings of Asshur have done to all the lands — to devote them — and thou art delivered!
 
-<sup>12</sup> Did the gods of the nations deliver them whom my fathers destroyed — Gozan, and Haran, and Rezeph, and the sons of Eden, who [are] in Telassar?
+**¹²** Did the gods of the nations deliver them whom my fathers destroyed — Gozan, and Haran, and Rezeph, and the sons of Eden, who [are] in Telassar?
 
-<sup>13</sup> Where [is] the king of Hamath, and the king of Arpad, and the king of the city of Sepharvaim, Hena, and Ivvah?'
+**¹³** Where [is] the king of Hamath, and the king of Arpad, and the king of the city of Sepharvaim, Hena, and Ivvah?'
 
-<sup>14</sup> And Hezekiah taketh the letters out of the hand of the messengers, and readeth them, and Hezekiah goeth up to the house of Jehovah, and Hezekiah spreadeth it before Jehovah.
+**¹⁴** And Hezekiah taketh the letters out of the hand of the messengers, and readeth them, and Hezekiah goeth up to the house of Jehovah, and Hezekiah spreadeth it before Jehovah.
 
-<sup>15</sup> And Hezekiah prayeth unto Jehovah, saying,
+**¹⁵** And Hezekiah prayeth unto Jehovah, saying,
 
-<sup>16</sup> 'Jehovah of Hosts, God of Israel, inhabiting the cherubs, Thou [art] God Himself — Thyself alone — to all kingdoms of the earth, Thou hast made the heavens and the earth.
+**¹⁶** 'Jehovah of Hosts, God of Israel, inhabiting the cherubs, Thou [art] God Himself — Thyself alone — to all kingdoms of the earth, Thou hast made the heavens and the earth.
 
-<sup>17</sup> Incline, O Jehovah, Thine ear, and hear; open, O Jehovah, Thine eyes and see; and hear Thou all the words of Sennacherib that he hath sent to reproach the living God.
+**¹⁷** Incline, O Jehovah, Thine ear, and hear; open, O Jehovah, Thine eyes and see; and hear Thou all the words of Sennacherib that he hath sent to reproach the living God.
 
-<sup>18</sup> 'Truly, O Jehovah, kings of Asshur have laid waste all the lands and their land,
+**¹⁸** 'Truly, O Jehovah, kings of Asshur have laid waste all the lands and their land,
 
-<sup>19</sup> so as to put their gods into fire — for they [are] no gods, but work of the hands of man, wood and stone — and they destroy them.
+**¹⁹** so as to put their gods into fire — for they [are] no gods, but work of the hands of man, wood and stone — and they destroy them.
 
-<sup>20</sup> And now, Jehovah our God, save us from his hand, and all kingdoms of the earth do know that Thou [art] Jehovah, Thyself alone.'
+**²⁰** And now, Jehovah our God, save us from his hand, and all kingdoms of the earth do know that Thou [art] Jehovah, Thyself alone.'
 
-<sup>21</sup> And Isaiah son of Amoz sendeth unto Hezekiah, saying, 'Thus said Jehovah, God of Israel, That which thou hast prayed unto me concerning Sennacherib king of Asshur —
+**²¹** And Isaiah son of Amoz sendeth unto Hezekiah, saying, 'Thus said Jehovah, God of Israel, That which thou hast prayed unto me concerning Sennacherib king of Asshur —
 
-<sup>22</sup> this [is] the word that Jehovah spake concerning him: Trampled on thee, laughed at thee, Hath the virgin daughter of Zion, Behind thee shaken the head hath the daughter of Jerusalem.
+**²²** this [is] the word that Jehovah spake concerning him: Trampled on thee, laughed at thee, Hath the virgin daughter of Zion, Behind thee shaken the head hath the daughter of Jerusalem.
 
-<sup>23</sup> Whom hast thou reproached and reviled? And against whom lifted up the voice? Yea, thou dost lift up on high thine eyes Against the Holy One of Israel.
+**²³** Whom hast thou reproached and reviled? And against whom lifted up the voice? Yea, thou dost lift up on high thine eyes Against the Holy One of Israel.
 
-<sup>24</sup> By the hand of thy servants Thou hast reviled the Lord, and sayest: In the multitude of my chariots I have come up to a high place of hills, The sides of Lebanon, And I cut down the height of its cedars, The choice of its firs, And I enter the high place of its extremity, The forest of its Carmel.
+**²⁴** By the hand of thy servants Thou hast reviled the Lord, and sayest: In the multitude of my chariots I have come up to a high place of hills, The sides of Lebanon, And I cut down the height of its cedars, The choice of its firs, And I enter the high place of its extremity, The forest of its Carmel.
 
-<sup>25</sup> I — I have dug and drunk waters, And I dry up with the sole of my steps All floods of a bulwark.
+**²⁵** I — I have dug and drunk waters, And I dry up with the sole of my steps All floods of a bulwark.
 
-<sup>26</sup> Hast thou not heard from afar? — it I did, From days of old — that I formed it. Now, I have brought it in, And it is to make desolate, Ruinous heaps — fenced cities,
+**²⁶** Hast thou not heard from afar? — it I did, From days of old — that I formed it. Now, I have brought it in, And it is to make desolate, Ruinous heaps — fenced cities,
 
-<sup>27</sup> And their inhabitants are feeble-handed, They were broken down, and are dried up. They have been the herb of the field, And the greenness of the tender grass, Grass of the roofs, And blasted corn, before it hath risen up.
+**²⁷** And their inhabitants are feeble-handed, They were broken down, and are dried up. They have been the herb of the field, And the greenness of the tender grass, Grass of the roofs, And blasted corn, before it hath risen up.
 
-<sup>28</sup> And thy sitting down, and thy going out, And thy coming in, I have known, And thy anger towards Me.
+**²⁸** And thy sitting down, and thy going out, And thy coming in, I have known, And thy anger towards Me.
 
-<sup>29</sup> Because of thy anger towards Me, And thy noise — it came up into Mine ears, I have put My hook in thy nose, And My bridle in thy lips, And I have caused thee to turn back In the way in which thou camest.
+**²⁹** Because of thy anger towards Me, And thy noise — it came up into Mine ears, I have put My hook in thy nose, And My bridle in thy lips, And I have caused thee to turn back In the way in which thou camest.
 
-<sup>30</sup> — And this to thee [is] the sign, Food of the year [is] self-sown grain, And in the second year the spontaneous growth, And in the third year, sow ye and reap, And plant vineyards, and eat their fruit.
+**³⁰** — And this to thee [is] the sign, Food of the year [is] self-sown grain, And in the second year the spontaneous growth, And in the third year, sow ye and reap, And plant vineyards, and eat their fruit.
 
-<sup>31</sup> And it hath continued — the escaped Of the house of Judah that hath been left — To take root beneath, And it hath made fruit upward.
+**³¹** And it hath continued — the escaped Of the house of Judah that hath been left — To take root beneath, And it hath made fruit upward.
 
-<sup>32</sup> For from Jerusalem goeth forth a remnant, And an escape from mount Zion, The zeal of Jehovah of Hosts doth this.
+**³²** For from Jerusalem goeth forth a remnant, And an escape from mount Zion, The zeal of Jehovah of Hosts doth this.
 
-<sup>33</sup> Therefore, thus said Jehovah, Concerning the king of Asshur: He doth not come in unto this city, Nor doth he shoot there an arrow, Nor doth he come before it [with] shield, Nor doth he pour out against it a mount.
+**³³** Therefore, thus said Jehovah, Concerning the king of Asshur: He doth not come in unto this city, Nor doth he shoot there an arrow, Nor doth he come before it [with] shield, Nor doth he pour out against it a mount.
 
-<sup>34</sup> In the way that he came, in it he turneth back, And unto this city he doth not come in, An affirmation of Jehovah,
+**³⁴** In the way that he came, in it he turneth back, And unto this city he doth not come in, An affirmation of Jehovah,
 
-<sup>35</sup> And I have covered over this city, To save it, for Mine own sake, And for the sake of David My servant.'
+**³⁵** And I have covered over this city, To save it, for Mine own sake, And for the sake of David My servant.'
 
-<sup>36</sup> And a messenger of Jehovah goeth out, and smiteth in the camp of Asshur a hundred and eighty and five thousand; and [men] rise early in the morning, and lo, all of them [are] dead corpses.
+**³⁶** And a messenger of Jehovah goeth out, and smiteth in the camp of Asshur a hundred and eighty and five thousand; and [men] rise early in the morning, and lo, all of them [are] dead corpses.
 
-<sup>37</sup> And journey, and go, and turn back doth Sennacherib king of Asshur, and dwelleth in Nineveh.
+**³⁷** And journey, and go, and turn back doth Sennacherib king of Asshur, and dwelleth in Nineveh.
 
-<sup>38</sup> And it cometh to pass, he is bowing himself in the house of Nisroch his god, and Adrammelech and Sharezer his sons have smitten him with the sword, and they have escaped to the land of Ararat, and Esar-Haddon his son reigneth in his stead.
+**³⁸** And it cometh to pass, he is bowing himself in the house of Nisroch his god, and Adrammelech and Sharezer his sons have smitten him with the sword, and they have escaped to the land of Ararat, and Esar-Haddon his son reigneth in his stead.

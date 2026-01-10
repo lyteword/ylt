@@ -1,59 +1,59 @@
 # Chapter 10
 
-<sup>1</sup> And Jehovah saith unto Moses, 'Go in unto Pharaoh, for I have declared hard his heart, and the heart of his servants, so that I set these My signs in their midst,
+**¹** And Jehovah saith unto Moses, 'Go in unto Pharaoh, for I have declared hard his heart, and the heart of his servants, so that I set these My signs in their midst,
 
-<sup>2</sup> and so that thou recountest in the ears of thy son, and of thy son's son, that which I have done in Egypt, and My signs which I have set among them, and ye have known that I [am] Jehovah.'
+**²** and so that thou recountest in the ears of thy son, and of thy son's son, that which I have done in Egypt, and My signs which I have set among them, and ye have known that I [am] Jehovah.'
 
-<sup>3</sup> And Moses cometh in — Aaron also — unto Pharaoh, and they say unto him, 'Thus said Jehovah, God of the Hebrews, Until when hast thou refused to be humbled at My presence? send My people away, and they serve Me,
+**³** And Moses cometh in — Aaron also — unto Pharaoh, and they say unto him, 'Thus said Jehovah, God of the Hebrews, Until when hast thou refused to be humbled at My presence? send My people away, and they serve Me,
 
-<sup>4</sup> for if thou art refusing to send My people away, lo, I am bringing in to-morrow the locust into thy border,
+**⁴** for if thou art refusing to send My people away, lo, I am bringing in to-morrow the locust into thy border,
 
-<sup>5</sup> and it hath covered the eye of the land, and none is able to see the land, and it hath eaten the remnant of that which is escaped, which is left to you from the hail, and it hath eaten every tree which is springing for you out of the field;
+**⁵** and it hath covered the eye of the land, and none is able to see the land, and it hath eaten the remnant of that which is escaped, which is left to you from the hail, and it hath eaten every tree which is springing for you out of the field;
 
-<sup>6</sup> and they have filled thy houses, and the houses of all thy servants, and the houses of all the Egyptians, which neither thy fathers nor thy father's fathers have seen, since the day of their being on the ground unto this day,' — and he turneth and goeth out from Pharaoh.
+**⁶** and they have filled thy houses, and the houses of all thy servants, and the houses of all the Egyptians, which neither thy fathers nor thy father's fathers have seen, since the day of their being on the ground unto this day,' — and he turneth and goeth out from Pharaoh.
 
-<sup>7</sup> And the servants of Pharaoh say unto him, 'Until when doth this [one] become a snare to us? send the men away, and they serve Jehovah their God; knowest thou not yet that Egypt hath perished?'
+**⁷** And the servants of Pharaoh say unto him, 'Until when doth this [one] become a snare to us? send the men away, and they serve Jehovah their God; knowest thou not yet that Egypt hath perished?'
 
-<sup>8</sup> And Moses is brought back — Aaron also — unto Pharaoh, and he saith unto them, 'Go, serve Jehovah your God; — who and who [are] those going?'
+**⁸** And Moses is brought back — Aaron also — unto Pharaoh, and he saith unto them, 'Go, serve Jehovah your God; — who and who [are] those going?'
 
-<sup>9</sup> And Moses saith, 'With our young ones, and with our aged ones, we go, with our sons, and with our daughters, with our flock, and our herd, we go, for we have a festival to Jehovah.'
+**⁹** And Moses saith, 'With our young ones, and with our aged ones, we go, with our sons, and with our daughters, with our flock, and our herd, we go, for we have a festival to Jehovah.'
 
-<sup>10</sup> And he saith unto them, 'Be it so, Jehovah [be] with you when I send you and your infants away; see — for evil [is] before your faces;
+**¹⁰** And he saith unto them, 'Be it so, Jehovah [be] with you when I send you and your infants away; see — for evil [is] before your faces;
 
-<sup>11</sup> not so! go now, ye who [are] men, and serve Jehovah, for that ye are seeking;' and [one] casteth them out from the presence of Pharaoh.
+**¹¹** not so! go now, ye who [are] men, and serve Jehovah, for that ye are seeking;' and [one] casteth them out from the presence of Pharaoh.
 
-<sup>12</sup> And Jehovah saith unto Moses, 'Stretch out thy hand against the land of Egypt for the locust, and it goeth up against the land of Egypt, and doth eat every herb of the land — all that the hail hath left.'
+**¹²** And Jehovah saith unto Moses, 'Stretch out thy hand against the land of Egypt for the locust, and it goeth up against the land of Egypt, and doth eat every herb of the land — all that the hail hath left.'
 
-<sup>13</sup> And Moses stretcheth out his rod against the land of Egypt, and Jehovah hath led an east wind over the land all that day, and all the night; the morning hath been, and the east wind hath lifted up the locust.
+**¹³** And Moses stretcheth out his rod against the land of Egypt, and Jehovah hath led an east wind over the land all that day, and all the night; the morning hath been, and the east wind hath lifted up the locust.
 
-<sup>14</sup> And the locust goeth up against all the land of Egypt, and resteth in all the border of Egypt — very grievous: before it there hath not been such a locust as it, and after it there is none such;
+**¹⁴** And the locust goeth up against all the land of Egypt, and resteth in all the border of Egypt — very grievous: before it there hath not been such a locust as it, and after it there is none such;
 
-<sup>15</sup> and it covereth the eye of all the land, and the land is darkened; and it eateth every herb of the land, and all the fruit of the trees which the hail hath left, and there hath not been left any green thing in the trees, or in the herb of the field, in all the land of Egypt.'
+**¹⁵** and it covereth the eye of all the land, and the land is darkened; and it eateth every herb of the land, and all the fruit of the trees which the hail hath left, and there hath not been left any green thing in the trees, or in the herb of the field, in all the land of Egypt.'
 
-<sup>16</sup> And Pharaoh hasteth to call for Moses and for Aaron, and saith, 'I have sinned against Jehovah your God, and against you,
+**¹⁶** And Pharaoh hasteth to call for Moses and for Aaron, and saith, 'I have sinned against Jehovah your God, and against you,
 
-<sup>17</sup> and now, bear with, I pray you, my sin, only this time, and make ye supplication to Jehovah your God, that He turn aside from off me only this death.'
+**¹⁷** and now, bear with, I pray you, my sin, only this time, and make ye supplication to Jehovah your God, that He turn aside from off me only this death.'
 
-<sup>18</sup> And he goeth out from Pharaoh, and maketh supplication unto Jehovah,
+**¹⁸** And he goeth out from Pharaoh, and maketh supplication unto Jehovah,
 
-<sup>19</sup> and Jehovah turneth a very strong sea wind, and it lifteth up the locust, and bloweth it into the Red Sea — there hath not been left one locust in all the border of Egypt;
+**¹⁹** and Jehovah turneth a very strong sea wind, and it lifteth up the locust, and bloweth it into the Red Sea — there hath not been left one locust in all the border of Egypt;
 
-<sup>20</sup> and Jehovah strengtheneth the heart of Pharaoh, and he hath not sent the sons of Israel away.
+**²⁰** and Jehovah strengtheneth the heart of Pharaoh, and he hath not sent the sons of Israel away.
 
-<sup>21</sup> And Jehovah saith unto Moses, 'Stretch out thy hand towards the heavens, and there is darkness over the land of Egypt, and the darkness is felt.'
+**²¹** And Jehovah saith unto Moses, 'Stretch out thy hand towards the heavens, and there is darkness over the land of Egypt, and the darkness is felt.'
 
-<sup>22</sup> And Moses stretcheth out his hand towards the heavens, and there is darkness — thick darkness in all the land of Egypt three days;
+**²²** And Moses stretcheth out his hand towards the heavens, and there is darkness — thick darkness in all the land of Egypt three days;
 
-<sup>23</sup> they have not seen one another, and none hath risen from his place three days; and to all the sons of Israel there hath been light in their dwellings.'
+**²³** they have not seen one another, and none hath risen from his place three days; and to all the sons of Israel there hath been light in their dwellings.'
 
-<sup>24</sup> And Pharaoh calleth unto Moses and saith, 'Go ye, serve Jehovah, only your flock and your herd are stayed, your infants also go with you;'
+**²⁴** And Pharaoh calleth unto Moses and saith, 'Go ye, serve Jehovah, only your flock and your herd are stayed, your infants also go with you;'
 
-<sup>25</sup> and Moses saith, 'Thou also dost give in our hand sacrifices and burnt-offerings, and we have prepared for Jehovah our God;
+**²⁵** and Moses saith, 'Thou also dost give in our hand sacrifices and burnt-offerings, and we have prepared for Jehovah our God;
 
-<sup>26</sup> and also our cattle doth go with us, there is not left a hoof, for from it we do take to serve Jehovah our God; and we — we know not how we do serve Jehovah till our going thither.'
+**²⁶** and also our cattle doth go with us, there is not left a hoof, for from it we do take to serve Jehovah our God; and we — we know not how we do serve Jehovah till our going thither.'
 
-<sup>27</sup> And Jehovah strengtheneth the heart of Pharaoh, and he hath not been willing to send them away;
+**²⁷** And Jehovah strengtheneth the heart of Pharaoh, and he hath not been willing to send them away;
 
-<sup>28</sup> and Pharaoh saith to him, 'Go from me, take heed to thyself, add not to see my face, for in the day thou seest my face thou diest;'
+**²⁸** and Pharaoh saith to him, 'Go from me, take heed to thyself, add not to see my face, for in the day thou seest my face thou diest;'
 
-<sup>29</sup> and Moses saith, 'Rightly hast thou spoken, I add not any more to see thy face.'
+**²⁹** and Moses saith, 'Rightly hast thou spoken, I add not any more to see thy face.'

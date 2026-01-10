@@ -1,41 +1,41 @@
 # Chapter 2
 
-<sup>1</sup> On my charge I stand, and I station myself on a bulwark, and I watch to see what He doth speak against me, and what I do reply to my reproof.
+**¹** On my charge I stand, and I station myself on a bulwark, and I watch to see what He doth speak against me, and what I do reply to my reproof.
 
-<sup>2</sup> And Jehovah answereth me and saith: 'Write a vision, and explain on the tables, That he may run who is reading it.
+**²** And Jehovah answereth me and saith: 'Write a vision, and explain on the tables, That he may run who is reading it.
 
-<sup>3</sup> For yet the vision [is] for a season, And it breatheth for the end, and doth not lie, If it tarry, wait for it, For surely it cometh, it is not late.
+**³** For yet the vision [is] for a season, And it breatheth for the end, and doth not lie, If it tarry, wait for it, For surely it cometh, it is not late.
 
-<sup>4</sup> Lo, a presumptuous one! Not upright is his soul within him, And the righteous by his stedfastness liveth.
+**⁴** Lo, a presumptuous one! Not upright is his soul within him, And the righteous by his stedfastness liveth.
 
-<sup>5</sup> And also, because the wine [is] treacherous, A man is haughty, and remaineth not at home, Who hath enlarged as sheol his soul, And is as death that is not satisfied, And doth gather unto itself all the nations, And doth assemble unto itself all the peoples,
+**⁵** And also, because the wine [is] treacherous, A man is haughty, and remaineth not at home, Who hath enlarged as sheol his soul, And is as death that is not satisfied, And doth gather unto itself all the nations, And doth assemble unto itself all the peoples,
 
-<sup>6</sup> Do not these — all of them — against him a simile taken up, And a moral of acute sayings for him, And say, Woe [to] him who is multiplying [what is] not his? Till when also is he multiplying to himself heavy pledges?
+**⁶** Do not these — all of them — against him a simile taken up, And a moral of acute sayings for him, And say, Woe [to] him who is multiplying [what is] not his? Till when also is he multiplying to himself heavy pledges?
 
-<sup>7</sup> Do not thy usurers instantly rise up, And those shaking thee awake up, And thou hast been for a spoil to them?
+**⁷** Do not thy usurers instantly rise up, And those shaking thee awake up, And thou hast been for a spoil to them?
 
-<sup>8</sup> Because thou hast spoiled many nations, Spoil thee do all the remnant of the peoples, Because of man's blood, and of violence [to] the land, [To] the city, and [to] all dwelling in it.
+**⁸** Because thou hast spoiled many nations, Spoil thee do all the remnant of the peoples, Because of man's blood, and of violence [to] the land, [To] the city, and [to] all dwelling in it.
 
-<sup>9</sup> Woe [to] him who is gaining evil gain for his house, To set on high his nest, To be delivered from the hand of evil,
+**⁹** Woe [to] him who is gaining evil gain for his house, To set on high his nest, To be delivered from the hand of evil,
 
-<sup>10</sup> Thou hast counselled a shameful thing to thy house, To cut off many peoples, and sinful [is] thy soul.
+**¹⁰** Thou hast counselled a shameful thing to thy house, To cut off many peoples, and sinful [is] thy soul.
 
-<sup>11</sup> For a stone from the wall doth cry out, And a holdfast from the wood answereth it.
+**¹¹** For a stone from the wall doth cry out, And a holdfast from the wood answereth it.
 
-<sup>12</sup> Woe [to] him who is building a city by blood, And establishing a city by iniquity.
+**¹²** Woe [to] him who is building a city by blood, And establishing a city by iniquity.
 
-<sup>13</sup> Lo, is it not from Jehovah of Hosts And peoples are fatigued for fire, And nations for vanity are weary?
+**¹³** Lo, is it not from Jehovah of Hosts And peoples are fatigued for fire, And nations for vanity are weary?
 
-<sup>14</sup> For full is the earth of the knowledge of the honour of Jehovah, As waters cover [the bottom of] a sea.
+**¹⁴** For full is the earth of the knowledge of the honour of Jehovah, As waters cover [the bottom of] a sea.
 
-<sup>15</sup> Woe [to] him who is giving drink to his neighbour, Pouring out thy bottle, and also making drunk, In order to look on their nakedness.
+**¹⁵** Woe [to] him who is giving drink to his neighbour, Pouring out thy bottle, and also making drunk, In order to look on their nakedness.
 
-<sup>16</sup> Thou hast been filled — shame without honour, Drink thou also, and be uncircumcised, Turn round unto thee doth the cup of the right hand of Jehovah, And shameful spewing [is] on thine honour.
+**¹⁶** Thou hast been filled — shame without honour, Drink thou also, and be uncircumcised, Turn round unto thee doth the cup of the right hand of Jehovah, And shameful spewing [is] on thine honour.
 
-<sup>17</sup> For violence [to] Lebanon doth cover thee, And spoil of beasts doth affright them, Because of man's blood, and of violence [to] the land, [To] the city, and [to] all dwelling in it.
+**¹⁷** For violence [to] Lebanon doth cover thee, And spoil of beasts doth affright them, Because of man's blood, and of violence [to] the land, [To] the city, and [to] all dwelling in it.
 
-<sup>18</sup> What profit hath a graven image given That its former hath graven it? A molten image and teacher of falsehood, That trusted hath the former on his own formation — to make dumb idols?
+**¹⁸** What profit hath a graven image given That its former hath graven it? A molten image and teacher of falsehood, That trusted hath the former on his own formation — to make dumb idols?
 
-<sup>19</sup> Woe [to] him who is saying to wood, 'Awake,' 'Stir up,' to a dumb stone, It a teacher! lo, it is overlaid — gold and silver, And there is no spirit in its midst.
+**¹⁹** Woe [to] him who is saying to wood, 'Awake,' 'Stir up,' to a dumb stone, It a teacher! lo, it is overlaid — gold and silver, And there is no spirit in its midst.
 
-<sup>20</sup> And Jehovah [is] in His holy temple, Be silent before Him, all the earth!
+**²⁰** And Jehovah [is] in His holy temple, Be silent before Him, all the earth!

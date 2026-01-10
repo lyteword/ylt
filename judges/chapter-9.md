@@ -1,115 +1,115 @@
 # Chapter 9
 
-<sup>1</sup> and Abimelech son of Jerubbaal goeth to Shechem, unto his mother's brethren, and speaketh unto them, and unto all the family of the house of his mother's father, saying,
+**¹** and Abimelech son of Jerubbaal goeth to Shechem, unto his mother's brethren, and speaketh unto them, and unto all the family of the house of his mother's father, saying,
 
-<sup>2</sup> 'Speak, I pray you, in the ears of all the masters of Shechem, Which [is] good for you — the ruling over you of seventy men (all the sons of Jerubbaal), or the ruling over you of one man? — and ye have remembered that I [am] your bone and your flesh.'
+**²** 'Speak, I pray you, in the ears of all the masters of Shechem, Which [is] good for you — the ruling over you of seventy men (all the sons of Jerubbaal), or the ruling over you of one man? — and ye have remembered that I [am] your bone and your flesh.'
 
-<sup>3</sup> And his mother's brethren speak concerning him, in the ears of all the masters of Shechem, all these words, and their heart inclineth after Abimelech, for they said, 'He [is] our brother;'
+**³** And his mother's brethren speak concerning him, in the ears of all the masters of Shechem, all these words, and their heart inclineth after Abimelech, for they said, 'He [is] our brother;'
 
-<sup>4</sup> and they give to him seventy silverings out of the house of Baal-Berith, and Abimelech hireth with them men, vain and unstable, and they go after him;
+**⁴** and they give to him seventy silverings out of the house of Baal-Berith, and Abimelech hireth with them men, vain and unstable, and they go after him;
 
-<sup>5</sup> and he goeth into the house of his father at Ophrah, and slayeth his brethren, sons of Jerubbaal, seventy men, on one stone; and Jotham, youngest son of Jerubbaal, is left, for he was hidden.
+**⁵** and he goeth into the house of his father at Ophrah, and slayeth his brethren, sons of Jerubbaal, seventy men, on one stone; and Jotham, youngest son of Jerubbaal, is left, for he was hidden.
 
-<sup>6</sup> And all the masters of Shechem are gathered together, and all the house of Millo, and come and cause Abimelech to reign for king at the oak of the camp which [is] in Shechem;
+**⁶** And all the masters of Shechem are gathered together, and all the house of Millo, and come and cause Abimelech to reign for king at the oak of the camp which [is] in Shechem;
 
-<sup>7</sup> and they declare [it] to Jotham, and he goeth and standeth on the top of mount Gerizim, and lifteth up his voice, and calleth, and saith to them, 'Hearken unto me, O masters of Shechem, and God doth hearken unto you:
+**⁷** and they declare [it] to Jotham, and he goeth and standeth on the top of mount Gerizim, and lifteth up his voice, and calleth, and saith to them, 'Hearken unto me, O masters of Shechem, and God doth hearken unto you:
 
-<sup>8</sup> 'The trees have diligently gone to anoint over them a king, and they say to the olive, Reign thou over us.
+**⁸** 'The trees have diligently gone to anoint over them a king, and they say to the olive, Reign thou over us.
 
-<sup>9</sup> And the olive saith to them, Have I ceased from my fatness, by which they honour gods and men, that I have gone to stagger over the trees?
+**⁹** And the olive saith to them, Have I ceased from my fatness, by which they honour gods and men, that I have gone to stagger over the trees?
 
-<sup>10</sup> And the trees say to the fig, Come thou, reign over us.
+**¹⁰** And the trees say to the fig, Come thou, reign over us.
 
-<sup>11</sup> And the fig saith to them, Have I ceased from my sweetness, and my good increase, that I have gone to stagger over the trees?
+**¹¹** And the fig saith to them, Have I ceased from my sweetness, and my good increase, that I have gone to stagger over the trees?
 
-<sup>12</sup> 'And the trees say to the vine, Come thou, reign over us.
+**¹²** 'And the trees say to the vine, Come thou, reign over us.
 
-<sup>13</sup> And the vine saith to them, Have I ceased from my new wine, which is rejoicing gods and men, that I have gone to stagger over the trees?
+**¹³** And the vine saith to them, Have I ceased from my new wine, which is rejoicing gods and men, that I have gone to stagger over the trees?
 
-<sup>14</sup> And all the trees say unto the bramble, Come thou, reign over us.
+**¹⁴** And all the trees say unto the bramble, Come thou, reign over us.
 
-<sup>15</sup> And the bramble saith unto the trees, If in truth ye are anointing me for king over you, come, take refuge in my shadow; and if not — fire cometh out from the bramble, and devoureth the cedars of Lebanon.
+**¹⁵** And the bramble saith unto the trees, If in truth ye are anointing me for king over you, come, take refuge in my shadow; and if not — fire cometh out from the bramble, and devoureth the cedars of Lebanon.
 
-<sup>16</sup> 'And, now, if in truth and in sincerity ye have acted, when ye make Abimelech king; and if ye have done good with Jerubbaal, and with his house; and if according to the deed of his hands ye have done to him —
+**¹⁶** 'And, now, if in truth and in sincerity ye have acted, when ye make Abimelech king; and if ye have done good with Jerubbaal, and with his house; and if according to the deed of his hands ye have done to him —
 
-<sup>17</sup> because my father hath fought for you, and doth cast away his life from [him], and deliver you from the hand of Midian;
+**¹⁷** because my father hath fought for you, and doth cast away his life from [him], and deliver you from the hand of Midian;
 
-<sup>18</sup> and ye have risen against the house of my father to-day, and slay his sons, seventy men, on one stone, and cause Abimelech son of his handmaid to reign over the masters of Shechem, because he [is] your brother —
+**¹⁸** and ye have risen against the house of my father to-day, and slay his sons, seventy men, on one stone, and cause Abimelech son of his handmaid to reign over the masters of Shechem, because he [is] your brother —
 
-<sup>19</sup> yea, if in truth and in sincerity ye have acted with Jerubbaal and with his house this day, rejoice ye in Abimelech, and he doth rejoice — even he — in you;
+**¹⁹** yea, if in truth and in sincerity ye have acted with Jerubbaal and with his house this day, rejoice ye in Abimelech, and he doth rejoice — even he — in you;
 
-<sup>20</sup> and if not — fire cometh out from Abimelech and devoureth the masters of Shechem and the house of Millo, and fire cometh out from the masters of Shechem and from the house of Millo, and devoureth Abimelech.'
+**²⁰** and if not — fire cometh out from Abimelech and devoureth the masters of Shechem and the house of Millo, and fire cometh out from the masters of Shechem and from the house of Millo, and devoureth Abimelech.'
 
-<sup>21</sup> And Jotham hasteth, and fleeth, and goeth to Beer, and dwelleth there, from the face of Abimelech his brother.
+**²¹** And Jotham hasteth, and fleeth, and goeth to Beer, and dwelleth there, from the face of Abimelech his brother.
 
-<sup>22</sup> And Abimelech is prince over Israel three years,
+**²²** And Abimelech is prince over Israel three years,
 
-<sup>23</sup> and God sendeth an evil spirit between Abimelech and the masters of Shechem, and the masters of Shechem deal treacherously with Abimelech,
+**²³** and God sendeth an evil spirit between Abimelech and the masters of Shechem, and the masters of Shechem deal treacherously with Abimelech,
 
-<sup>24</sup> for the coming in of the violence [to] the seventy sons of Jerubbaal, and of their blood to place [it] on Abimelech their brother, who slew them, and on the masters of Shechem, who strengthened his hands to slay his brethren.
+**²⁴** for the coming in of the violence [to] the seventy sons of Jerubbaal, and of their blood to place [it] on Abimelech their brother, who slew them, and on the masters of Shechem, who strengthened his hands to slay his brethren.
 
-<sup>25</sup> And the masters of Shechem set for him ambushes on the top of the hills, and rob every one who passeth over by them in the way, and it is declared to Abimelech.
+**²⁵** And the masters of Shechem set for him ambushes on the top of the hills, and rob every one who passeth over by them in the way, and it is declared to Abimelech.
 
-<sup>26</sup> And Gaal son of Ebed cometh — also his brethren — and they pass over into Shechem, and the masters of Shechem trust in him,
+**²⁶** And Gaal son of Ebed cometh — also his brethren — and they pass over into Shechem, and the masters of Shechem trust in him,
 
-<sup>27</sup> and go out into the field, and gather their vineyards, and tread, and make praises, and go into the house of their god, and eat and drink, and revile Abimelech.
+**²⁷** and go out into the field, and gather their vineyards, and tread, and make praises, and go into the house of their god, and eat and drink, and revile Abimelech.
 
-<sup>28</sup> And Gaal son of Ebed saith, 'Who [is] Abimelech, and who [is] Shechem, that we serve him? is [he] not son of Jerubbaal? and Zebul his commander? Serve ye the men of Hamor father of Shechem, and wherefore do we serve him — we?
+**²⁸** And Gaal son of Ebed saith, 'Who [is] Abimelech, and who [is] Shechem, that we serve him? is [he] not son of Jerubbaal? and Zebul his commander? Serve ye the men of Hamor father of Shechem, and wherefore do we serve him — we?
 
-<sup>29</sup> and oh that this people were in my hand — then I turn Abimelech aside;' and he saith to Abimelech, 'Increase thy host, and come out.'
+**²⁹** and oh that this people were in my hand — then I turn Abimelech aside;' and he saith to Abimelech, 'Increase thy host, and come out.'
 
-<sup>30</sup> And Zebul, prince of the city, heareth the words of Gaal son of Ebed, and his anger burneth,
+**³⁰** And Zebul, prince of the city, heareth the words of Gaal son of Ebed, and his anger burneth,
 
-<sup>31</sup> and he sendeth messengers unto Abimelech deceitfully, saying, 'Lo, Gaal son of Ebed and his brethren are coming into Shechem, and lo, they are fortifying the city against thee;
+**³¹** and he sendeth messengers unto Abimelech deceitfully, saying, 'Lo, Gaal son of Ebed and his brethren are coming into Shechem, and lo, they are fortifying the city against thee;
 
-<sup>32</sup> and, now, rise by night, thou and the people who [are] with thee, and lay wait in the field,
+**³²** and, now, rise by night, thou and the people who [are] with thee, and lay wait in the field,
 
-<sup>33</sup> and it hath been, in the morning, about the rising of the sun, thou dost rise early, and hast pushed against the city; and lo, he and the people who [are] with him are going out unto thee — and thou hast done to him as thy hand doth find.'
+**³³** and it hath been, in the morning, about the rising of the sun, thou dost rise early, and hast pushed against the city; and lo, he and the people who [are] with him are going out unto thee — and thou hast done to him as thy hand doth find.'
 
-<sup>34</sup> And Abimelech riseth, and all the people who [are] with him, by night, and they lay wait against Shechem — four detachments;
+**³⁴** And Abimelech riseth, and all the people who [are] with him, by night, and they lay wait against Shechem — four detachments;
 
-<sup>35</sup> and Gaal son of Ebed goeth out, and standeth at the opening of the gate of the city, and Abimelech riseth — also the people who [are] with him — from the ambush,
+**³⁵** and Gaal son of Ebed goeth out, and standeth at the opening of the gate of the city, and Abimelech riseth — also the people who [are] with him — from the ambush,
 
-<sup>36</sup> and Gaal seeth the people, and saith unto Zebul, 'Lo, people are coming down from the top of the hills;' and Zebul saith unto him, 'The shadow of the hills thou art seeing like men.'
+**³⁶** and Gaal seeth the people, and saith unto Zebul, 'Lo, people are coming down from the top of the hills;' and Zebul saith unto him, 'The shadow of the hills thou art seeing like men.'
 
-<sup>37</sup> And Gaal addeth yet to speak, and saith, 'Lo, people are coming down from the high part of the land, and another detachment is coming by the way of the oak of Meonenim.'
+**³⁷** And Gaal addeth yet to speak, and saith, 'Lo, people are coming down from the high part of the land, and another detachment is coming by the way of the oak of Meonenim.'
 
-<sup>38</sup> And Zebul saith unto him, 'Where [is] now thy mouth, in that thou sayest, Who [is] Abimelech that we serve him? is not this the people against which thou hast kicked? go out, I pray thee now, and fight against it.'
+**³⁸** And Zebul saith unto him, 'Where [is] now thy mouth, in that thou sayest, Who [is] Abimelech that we serve him? is not this the people against which thou hast kicked? go out, I pray thee now, and fight against it.'
 
-<sup>39</sup> And Gaal goeth out before the masters of Shechem, and fighteth against Abimelech,
+**³⁹** And Gaal goeth out before the masters of Shechem, and fighteth against Abimelech,
 
-<sup>40</sup> and Abimelech pursueth him, and he fleeth from his presence, and many fall wounded — unto the opening of the gate.
+**⁴⁰** and Abimelech pursueth him, and he fleeth from his presence, and many fall wounded — unto the opening of the gate.
 
-<sup>41</sup> And Abimelech abideth in Arumah, and Zebul casteth out Gaal and his brethren from dwelling in Shechem.
+**⁴¹** And Abimelech abideth in Arumah, and Zebul casteth out Gaal and his brethren from dwelling in Shechem.
 
-<sup>42</sup> And it cometh to pass, on the morrow, that the people go out to the field, and they declare [it] to Abimelech,
+**⁴²** And it cometh to pass, on the morrow, that the people go out to the field, and they declare [it] to Abimelech,
 
-<sup>43</sup> and he taketh the people, and divideth them into three detachments, and layeth wait in a field, and looketh, and lo, the people are coming out from the city, and he riseth against them, and smiteth them.
+**⁴³** and he taketh the people, and divideth them into three detachments, and layeth wait in a field, and looketh, and lo, the people are coming out from the city, and he riseth against them, and smiteth them.
 
-<sup>44</sup> And Abimelech and the detachments who [are] with him have pushed on, and stand at the opening of the gate of the city, and the two detachments have pushed against all who are in the field, and smite them,
+**⁴⁴** And Abimelech and the detachments who [are] with him have pushed on, and stand at the opening of the gate of the city, and the two detachments have pushed against all who are in the field, and smite them,
 
-<sup>45</sup> and Abimelech hath fought against the city all that day, and captureth the city, and the people who [are] in it he hath slain, and he breaketh down the city, and soweth it [with] salt.
+**⁴⁵** and Abimelech hath fought against the city all that day, and captureth the city, and the people who [are] in it he hath slain, and he breaketh down the city, and soweth it [with] salt.
 
-<sup>46</sup> And all the masters of the tower of Shechem hear, and go in unto the high place of the house of the god Berith,
+**⁴⁶** And all the masters of the tower of Shechem hear, and go in unto the high place of the house of the god Berith,
 
-<sup>47</sup> and it is declared to Abimelech that all the masters of the tower of Shechem have gathered themselves together,
+**⁴⁷** and it is declared to Abimelech that all the masters of the tower of Shechem have gathered themselves together,
 
-<sup>48</sup> and Abimelech goeth up to mount Zalmon, he and all the people who [are] with him, and Abimelech taketh the great axe in his hand, and cutteth off a bough of the trees, and lifteth it up, and setteth [it] on his shoulder, and saith unto the people who [are] with him, 'What ye have seen I have done — haste, do ye like it.'
+**⁴⁸** and Abimelech goeth up to mount Zalmon, he and all the people who [are] with him, and Abimelech taketh the great axe in his hand, and cutteth off a bough of the trees, and lifteth it up, and setteth [it] on his shoulder, and saith unto the people who [are] with him, 'What ye have seen I have done — haste, do ye like it.'
 
-<sup>49</sup> And all the people also cut down each one his bough, and go after Abimelech, and set [them] at the high place, and burn by these the high place with fire, and also all the men of the tower of Shechem die, about a thousand men and women.
+**⁴⁹** And all the people also cut down each one his bough, and go after Abimelech, and set [them] at the high place, and burn by these the high place with fire, and also all the men of the tower of Shechem die, about a thousand men and women.
 
-<sup>50</sup> And Abimelech goeth unto Thebez, and encampeth against Thebez, and captureth it,
+**⁵⁰** And Abimelech goeth unto Thebez, and encampeth against Thebez, and captureth it,
 
-<sup>51</sup> and a strong tower hath been in the midst of the city, and thither flee do all the men and the women, and all the masters of the city, and they shut [it] behind them, and go up on the roof of the tower.
+**⁵¹** and a strong tower hath been in the midst of the city, and thither flee do all the men and the women, and all the masters of the city, and they shut [it] behind them, and go up on the roof of the tower.
 
-<sup>52</sup> And Abimelech cometh unto the tower, and fighteth against it, and draweth nigh unto the opening of the tower to burn it with fire,
+**⁵²** And Abimelech cometh unto the tower, and fighteth against it, and draweth nigh unto the opening of the tower to burn it with fire,
 
-<sup>53</sup> and a certain woman doth cast a piece of a rider on the head of Abimelech, and breaketh his skull,
+**⁵³** and a certain woman doth cast a piece of a rider on the head of Abimelech, and breaketh his skull,
 
-<sup>54</sup> and he calleth hastily unto the young man bearing his weapons, and saith to him, 'Draw thy sword, and thou hast put me to death, lest they say of me — A woman slew him;' and his young man pierced him through, and he dieth.
+**⁵⁴** and he calleth hastily unto the young man bearing his weapons, and saith to him, 'Draw thy sword, and thou hast put me to death, lest they say of me — A woman slew him;' and his young man pierced him through, and he dieth.
 
-<sup>55</sup> And the men of Israel see that Abimelech [is] dead, and go each one to his place;
+**⁵⁵** And the men of Israel see that Abimelech [is] dead, and go each one to his place;
 
-<sup>56</sup> and God turneth back the evil of Abimelech which he did to his father to slay his seventy brethren;
+**⁵⁶** and God turneth back the evil of Abimelech which he did to his father to slay his seventy brethren;
 
-<sup>57</sup> and all the evil of the men of Shechem hath God turned back on their head, and come unto them doth the cursing of Jotham son of Jerubbaal.
+**⁵⁷** and all the evil of the men of Shechem hath God turned back on their head, and come unto them doth the cursing of Jotham son of Jerubbaal.

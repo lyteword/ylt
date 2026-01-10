@@ -1,39 +1,39 @@
 # Chapter 5
 
-<sup>1</sup> And there is a great cry of the people and their wives, concerning their brethren the Jews,
+**¹** And there is a great cry of the people and their wives, concerning their brethren the Jews,
 
-<sup>2</sup> yea, there are who are saying, 'Our sons, and our daughters, we — are many, and we receive corn, and eat, and live.'
+**²** yea, there are who are saying, 'Our sons, and our daughters, we — are many, and we receive corn, and eat, and live.'
 
-<sup>3</sup> And there are who are saying, 'Our fields, and our vineyards, and our houses, we are pledging, and we receive corn for the famine.'
+**³** And there are who are saying, 'Our fields, and our vineyards, and our houses, we are pledging, and we receive corn for the famine.'
 
-<sup>4</sup> And there are who are saying, 'We have borrowed money for the tribute of the king, [on] our fields, and our vineyards;
+**⁴** And there are who are saying, 'We have borrowed money for the tribute of the king, [on] our fields, and our vineyards;
 
-<sup>5</sup> and now, as the flesh of our brethren [is] our flesh, as their sons [are] our sons, and lo, we are subduing our sons and our daughters for servants, and there are of our daughters subdued, and our hand hath no might, and our fields and our vineyards [are] to others.'
+**⁵** and now, as the flesh of our brethren [is] our flesh, as their sons [are] our sons, and lo, we are subduing our sons and our daughters for servants, and there are of our daughters subdued, and our hand hath no might, and our fields and our vineyards [are] to others.'
 
-<sup>6</sup> And it is very displeasing to me when I have heard their cry and these words,
+**⁶** And it is very displeasing to me when I have heard their cry and these words,
 
-<sup>7</sup> and my heart reigneth over me, and I strive with the freemen, and with the prefects, and say to them, 'Usury one upon another ye are exacting;' and I set against them a great assembly,
+**⁷** and my heart reigneth over me, and I strive with the freemen, and with the prefects, and say to them, 'Usury one upon another ye are exacting;' and I set against them a great assembly,
 
-<sup>8</sup> and say to them, 'We have acquired our brethren the Jews, those sold to the nations, according to the ability that [is] in us, and ye also sell your brethren, and they have been sold to us!' and they are silent, and have not found a word.
+**⁸** and say to them, 'We have acquired our brethren the Jews, those sold to the nations, according to the ability that [is] in us, and ye also sell your brethren, and they have been sold to us!' and they are silent, and have not found a word.
 
-<sup>9</sup> And I say, 'Not good [is] the thing that ye are doing; in the fear of our God do ye not walk, because of the reproach of the nations our enemies?
+**⁹** And I say, 'Not good [is] the thing that ye are doing; in the fear of our God do ye not walk, because of the reproach of the nations our enemies?
 
-<sup>10</sup> And also, I, my brethren, and my servants, are exacting of them silver and corn; let us leave off, I pray you, this usury.
+**¹⁰** And also, I, my brethren, and my servants, are exacting of them silver and corn; let us leave off, I pray you, this usury.
 
-<sup>11</sup> Give back, I pray you, to them, as to-day, their fields, their vineyards, their olive-yards, and their houses, and the hundredth [part] of the money, and of the corn, of the new wine, and of the oil, that ye are exacting of them.'
+**¹¹** Give back, I pray you, to them, as to-day, their fields, their vineyards, their olive-yards, and their houses, and the hundredth [part] of the money, and of the corn, of the new wine, and of the oil, that ye are exacting of them.'
 
-<sup>12</sup> And they say, 'We give back, and of them we seek nothing; so we do as thou art saying.' And I call the priests, and cause them to swear to do according to this thing;
+**¹²** And they say, 'We give back, and of them we seek nothing; so we do as thou art saying.' And I call the priests, and cause them to swear to do according to this thing;
 
-<sup>13</sup> also, my lap I have shaken, and I say, 'Thus doth God shake out every man, who doth not perform this thing, from his house, and from his labour; yea, thus is he shaken out and empty;' and all the assembly say, 'Amen,' and praise Jehovah; and the people do according to this thing.
+**¹³** also, my lap I have shaken, and I say, 'Thus doth God shake out every man, who doth not perform this thing, from his house, and from his labour; yea, thus is he shaken out and empty;' and all the assembly say, 'Amen,' and praise Jehovah; and the people do according to this thing.
 
-<sup>14</sup> Also, from the day that he appointed me to be their governor in the land of Judah, from the twentieth year even unto the thirty and second year of Artaxerxes the king — twelve years — I, and my brethren, the bread of the governor have not eaten:
+**¹⁴** Also, from the day that he appointed me to be their governor in the land of Judah, from the twentieth year even unto the thirty and second year of Artaxerxes the king — twelve years — I, and my brethren, the bread of the governor have not eaten:
 
-<sup>15</sup> the former governors who [are] before me have made themselves heavy on the people, and take of them in bread and wine, besides in silver forty shekels; also, their servants have ruled over the people — and I have not done so, because of the fear of God.
+**¹⁵** the former governors who [are] before me have made themselves heavy on the people, and take of them in bread and wine, besides in silver forty shekels; also, their servants have ruled over the people — and I have not done so, because of the fear of God.
 
-<sup>16</sup> And also, in the work of this wall I have done mightily, even a field we have not bought, and all my servants are gathered there for the work;
+**¹⁶** And also, in the work of this wall I have done mightily, even a field we have not bought, and all my servants are gathered there for the work;
 
-<sup>17</sup> and of the Jews, and of the prefects, a hundred and fifty men, and those coming in unto us of the nations that [are] round about us, [are] at my table;
+**¹⁷** and of the Jews, and of the prefects, a hundred and fifty men, and those coming in unto us of the nations that [are] round about us, [are] at my table;
 
-<sup>18</sup> and that which hath been prepared for one day [is] one ox, six fat sheep, also fowls have been prepared for me, and once in ten days of all wines abundantly, and with this, the bread of the governor I have not sought, for heavy is the service on this people.
+**¹⁸** and that which hath been prepared for one day [is] one ox, six fat sheep, also fowls have been prepared for me, and once in ten days of all wines abundantly, and with this, the bread of the governor I have not sought, for heavy is the service on this people.
 
-<sup>19</sup> Remember for me, O my God, for good, all that I have done for this people.
+**¹⁹** Remember for me, O my God, for good, all that I have done for this people.

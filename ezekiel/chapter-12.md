@@ -1,57 +1,57 @@
 # Chapter 12
 
-<sup>1</sup> And there is a word of Jehovah unto me, saying,
+**¹** And there is a word of Jehovah unto me, saying,
 
-<sup>2</sup> 'Son of man, in the midst of the rebellious house thou art dwelling, that have eyes to see, and they have not seen; ears they have to hear, and they have not heard; for a rebellious house [are] they.
+**²** 'Son of man, in the midst of the rebellious house thou art dwelling, that have eyes to see, and they have not seen; ears they have to hear, and they have not heard; for a rebellious house [are] they.
 
-<sup>3</sup> And thou, son of man, make to thee vessels of removal, and remove by day before their eyes, and thou hast removed from thy place unto another place before their eyes, it may be they consider, for a rebellious house they [are].
+**³** And thou, son of man, make to thee vessels of removal, and remove by day before their eyes, and thou hast removed from thy place unto another place before their eyes, it may be they consider, for a rebellious house they [are].
 
-<sup>4</sup> And thou hast brought forth thy vessels as vessels of removal by day before their eyes, and thou, thou dost go forth at even before their eyes, as the goings forth of a removal.
+**⁴** And thou hast brought forth thy vessels as vessels of removal by day before their eyes, and thou, thou dost go forth at even before their eyes, as the goings forth of a removal.
 
-<sup>5</sup> Before their eyes dig for thee through the wall, and thou hast brought forth by it.
+**⁵** Before their eyes dig for thee through the wall, and thou hast brought forth by it.
 
-<sup>6</sup> Before their eyes on the shoulder thou dost bear, in the darkness thou dost bring forth, thy face thou dost cover, and thou dost not see the earth, for a type I have given thee to the house of Israel.'
+**⁶** Before their eyes on the shoulder thou dost bear, in the darkness thou dost bring forth, thy face thou dost cover, and thou dost not see the earth, for a type I have given thee to the house of Israel.'
 
-<sup>7</sup> And I do so, as I have been commanded; my vessels I have brought forth as vessels of removal by day, and at even I have dug for me through the wall with the hand; in the darkness I have brought forth, on the shoulder I have borne away, before their eyes.
+**⁷** And I do so, as I have been commanded; my vessels I have brought forth as vessels of removal by day, and at even I have dug for me through the wall with the hand; in the darkness I have brought forth, on the shoulder I have borne away, before their eyes.
 
-<sup>8</sup> And there is a word of Jehovah unto me, in the morning, saying,
+**⁸** And there is a word of Jehovah unto me, in the morning, saying,
 
-<sup>9</sup> 'Son of man, have they not said unto thee — the house of Israel — the rebellious house — What art thou doing?
+**⁹** 'Son of man, have they not said unto thee — the house of Israel — the rebellious house — What art thou doing?
 
-<sup>10</sup> say unto them, Thus said the Lord Jehovah: 'The prince [is] this burden in Jerusalem, and all the house of Israel who are in their midst.
+**¹⁰** say unto them, Thus said the Lord Jehovah: 'The prince [is] this burden in Jerusalem, and all the house of Israel who are in their midst.
 
-<sup>11</sup> Say: I [am] your type; as I have done so it is done to them, into a removal, into a captivity, they do go.
+**¹¹** Say: I [am] your type; as I have done so it is done to them, into a removal, into a captivity, they do go.
 
-<sup>12</sup> As to the prince who [is] in their midst, on the shoulder he beareth in the darkness, and he goeth forth, through the wall they dig to bring forth by it, his face he covereth, that he may not look on the very surface of the land.
+**¹²** As to the prince who [is] in their midst, on the shoulder he beareth in the darkness, and he goeth forth, through the wall they dig to bring forth by it, his face he covereth, that he may not look on the very surface of the land.
 
-<sup>13</sup> And I have spread My net for him, and he hath been caught in My snare, and I have brought him in to Babylon, the land of the Chaldeans, and it he doth not see — and there doth he die.
+**¹³** And I have spread My net for him, and he hath been caught in My snare, and I have brought him in to Babylon, the land of the Chaldeans, and it he doth not see — and there doth he die.
 
-<sup>14</sup> 'And all who are round about him to help him, and all his bands, I do scatter to every wind, and a sword I draw out after them.
+**¹⁴** 'And all who are round about him to help him, and all his bands, I do scatter to every wind, and a sword I draw out after them.
 
-<sup>15</sup> And they have known that I [am] Jehovah, in My scattering them among nations, and I have spread them through lands;
+**¹⁵** And they have known that I [am] Jehovah, in My scattering them among nations, and I have spread them through lands;
 
-<sup>16</sup> and I have left of them, a few in number, from the sword, from the famine, and from the pestilence, so that they recount all their abominations among the nations whither they have come, and they have known that I [am] Jehovah.'
+**¹⁶** and I have left of them, a few in number, from the sword, from the famine, and from the pestilence, so that they recount all their abominations among the nations whither they have come, and they have known that I [am] Jehovah.'
 
-<sup>17</sup> And there is a word of Jehovah unto me, saying,
+**¹⁷** And there is a word of Jehovah unto me, saying,
 
-<sup>18</sup> 'Son of man, thy bread in haste thou dost eat, and thy water with trembling and with fear thou dost drink;
+**¹⁸** 'Son of man, thy bread in haste thou dost eat, and thy water with trembling and with fear thou dost drink;
 
-<sup>19</sup> and thou hast said unto the people of the land, Thus said the Lord Jehovah concerning the inhabitants of Jerusalem, concerning the land of Israel: Their bread with fear they do eat, and their water with astonishment drink, because its land is desolate, because of its fulness, because of the violence of all who are dwelling in it.
+**¹⁹** and thou hast said unto the people of the land, Thus said the Lord Jehovah concerning the inhabitants of Jerusalem, concerning the land of Israel: Their bread with fear they do eat, and their water with astonishment drink, because its land is desolate, because of its fulness, because of the violence of all who are dwelling in it.
 
-<sup>20</sup> And the cities that are inhabited are laid waste, and the land is a desolation, and ye have known that I [am] Jehovah.'
+**²⁰** And the cities that are inhabited are laid waste, and the land is a desolation, and ye have known that I [am] Jehovah.'
 
-<sup>21</sup> And there is a word of Jehovah unto me, saying,
+**²¹** And there is a word of Jehovah unto me, saying,
 
-<sup>22</sup> 'Son of man, what [is] this simile to you, concerning the land of Israel, saying, Prolonged are the days, and perished hath every vision?
+**²²** 'Son of man, what [is] this simile to you, concerning the land of Israel, saying, Prolonged are the days, and perished hath every vision?
 
-<sup>23</sup> therefore say unto them: Thus said the Lord Jehovah: I have caused this simile to cease, And they use it not as a simile again in Israel, But speak to them: Drawn near have the days, And spoken hath every vision.
+**²³** therefore say unto them: Thus said the Lord Jehovah: I have caused this simile to cease, And they use it not as a simile again in Israel, But speak to them: Drawn near have the days, And spoken hath every vision.
 
-<sup>24</sup> For there is no more any vain vision, and flattering divination, In the midst of the house of Israel.
+**²⁴** For there is no more any vain vision, and flattering divination, In the midst of the house of Israel.
 
-<sup>25</sup> For I [am] Jehovah, I speak, The word that I speak — it is done, It is not prolonged any more, For, in your days, O rebellious house, I speak a word, and I have done it, An affirmation of the Lord Jehovah.'
+**²⁵** For I [am] Jehovah, I speak, The word that I speak — it is done, It is not prolonged any more, For, in your days, O rebellious house, I speak a word, and I have done it, An affirmation of the Lord Jehovah.'
 
-<sup>26</sup> And there is a word of Jehovah unto me, saying:
+**²⁶** And there is a word of Jehovah unto me, saying:
 
-<sup>27</sup> 'Son of man, lo, the house of Israel are saying, The vision that he is seeing [is] for many days, and of times far off he is prophesying,
+**²⁷** 'Son of man, lo, the house of Israel are saying, The vision that he is seeing [is] for many days, and of times far off he is prophesying,
 
-<sup>28</sup> therefore say unto them: Thus said the Lord Jehovah: None of my words are prolonged any more, When I speak a word — it is done, An affirmation of the Lord Jehovah!'
+**²⁸** therefore say unto them: Thus said the Lord Jehovah: None of my words are prolonged any more, When I speak a word — it is done, An affirmation of the Lord Jehovah!'

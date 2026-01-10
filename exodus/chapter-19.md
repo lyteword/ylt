@@ -1,51 +1,51 @@
 # Chapter 19
 
-<sup>1</sup> In the third month of the going out of the sons of Israel from the land of Egypt, in this day they have come into the wilderness of Sinai,
+**¹** In the third month of the going out of the sons of Israel from the land of Egypt, in this day they have come into the wilderness of Sinai,
 
-<sup>2</sup> and they journey from Rephidim, and enter the wilderness of Sinai, and encamp in the wilderness; and Israel encampeth there before the mount.
+**²** and they journey from Rephidim, and enter the wilderness of Sinai, and encamp in the wilderness; and Israel encampeth there before the mount.
 
-<sup>3</sup> And Moses hath gone up unto God, and Jehovah calleth unto him out of the mount, saying, 'Thus dost thou say to the house of Jacob, and declare to the sons of Israel,
+**³** And Moses hath gone up unto God, and Jehovah calleth unto him out of the mount, saying, 'Thus dost thou say to the house of Jacob, and declare to the sons of Israel,
 
-<sup>4</sup> Ye — ye have seen that which I have done to the Egyptians, and I bear you on eagles' wings, and bring you in unto Myself.
+**⁴** Ye — ye have seen that which I have done to the Egyptians, and I bear you on eagles' wings, and bring you in unto Myself.
 
-<sup>5</sup> 'And now, if ye really hearken to My voice, then ye have kept My covenant, and been to Me a peculiar treasure more than all the peoples, for all the earth [is] Mine;
+**⁵** 'And now, if ye really hearken to My voice, then ye have kept My covenant, and been to Me a peculiar treasure more than all the peoples, for all the earth [is] Mine;
 
-<sup>6</sup> and ye — ye are to Me a kingdom of priests and a holy nation: these [are] the words which thou dost speak unto the sons of Israel.'
+**⁶** and ye — ye are to Me a kingdom of priests and a holy nation: these [are] the words which thou dost speak unto the sons of Israel.'
 
-<sup>7</sup> And Moses cometh, and calleth for the elders of the people, and setteth before them all these words which Jehovah hath commanded him;
+**⁷** And Moses cometh, and calleth for the elders of the people, and setteth before them all these words which Jehovah hath commanded him;
 
-<sup>8</sup> and all the people answer together and say, 'All that Jehovah hath spoken we do;' and Moses returneth the words of the people unto Jehovah.
+**⁸** and all the people answer together and say, 'All that Jehovah hath spoken we do;' and Moses returneth the words of the people unto Jehovah.
 
-<sup>9</sup> And Jehovah saith unto Moses, 'Lo, I am coming unto thee in the thickness of the cloud, so that the people hear in My speaking with thee, and also believe in thee to the age;' and Moses declareth the words of the people unto Jehovah.
+**⁹** And Jehovah saith unto Moses, 'Lo, I am coming unto thee in the thickness of the cloud, so that the people hear in My speaking with thee, and also believe in thee to the age;' and Moses declareth the words of the people unto Jehovah.
 
-<sup>10</sup> And Jehovah saith unto Moses, 'Go unto the people; and thou hast sanctified them to-day and to-morrow, and they have washed their garments,
+**¹⁰** And Jehovah saith unto Moses, 'Go unto the people; and thou hast sanctified them to-day and to-morrow, and they have washed their garments,
 
-<sup>11</sup> and have been prepared for the third day; for on the third day doth Jehovah come down before the eyes of all the people, on mount Sinai.
+**¹¹** and have been prepared for the third day; for on the third day doth Jehovah come down before the eyes of all the people, on mount Sinai.
 
-<sup>12</sup> 'And thou hast made a border [for] the people round about, saying, Take heed to yourselves, going up into the mount, or coming against its extremity; whoever is coming against the mount is certainly put to death;
+**¹²** 'And thou hast made a border [for] the people round about, saying, Take heed to yourselves, going up into the mount, or coming against its extremity; whoever is coming against the mount is certainly put to death;
 
-<sup>13</sup> a hand cometh not against him, for he is certainly stoned or shot through, whether beast or man it liveth not; in the drawing out of the jubilee cornet they go up into the mount.'
+**¹³** a hand cometh not against him, for he is certainly stoned or shot through, whether beast or man it liveth not; in the drawing out of the jubilee cornet they go up into the mount.'
 
-<sup>14</sup> And Moses cometh down from the mount unto the people, and sanctifieth the people, and they wash their garments;
+**¹⁴** And Moses cometh down from the mount unto the people, and sanctifieth the people, and they wash their garments;
 
-<sup>15</sup> and he saith unto the people, 'Be ye prepared for the third day, come not nigh unto a woman.'
+**¹⁵** and he saith unto the people, 'Be ye prepared for the third day, come not nigh unto a woman.'
 
-<sup>16</sup> And it cometh to pass, on the third day, while it is morning, that there are voices, and lightnings, and a heavy cloud, on the mount, and the sound of a trumpet very strong; and all the people who [are] in the camp do tremble.
+**¹⁶** And it cometh to pass, on the third day, while it is morning, that there are voices, and lightnings, and a heavy cloud, on the mount, and the sound of a trumpet very strong; and all the people who [are] in the camp do tremble.
 
-<sup>17</sup> And Moses bringeth out the people to meet God from the camp, and they station themselves at the lower part of the mount,
+**¹⁷** And Moses bringeth out the people to meet God from the camp, and they station themselves at the lower part of the mount,
 
-<sup>18</sup> and mount Sinai [is] wholly a smoke from the presence of Jehovah, who hath come down on it in fire, and its smoke goeth up as smoke of the furnace, and the whole mount trembleth exceedingly;
+**¹⁸** and mount Sinai [is] wholly a smoke from the presence of Jehovah, who hath come down on it in fire, and its smoke goeth up as smoke of the furnace, and the whole mount trembleth exceedingly;
 
-<sup>19</sup> and the sound of the trumpet is going on, and very strong; Moses speaketh, and God doth answer him with a voice.
+**¹⁹** and the sound of the trumpet is going on, and very strong; Moses speaketh, and God doth answer him with a voice.
 
-<sup>20</sup> And Jehovah cometh down on mount Sinai, unto the top of the mount, and Jehovah calleth for Moses unto the top of the mount, and Moses goeth up.
+**²⁰** And Jehovah cometh down on mount Sinai, unto the top of the mount, and Jehovah calleth for Moses unto the top of the mount, and Moses goeth up.
 
-<sup>21</sup> And Jehovah saith unto Moses, 'Go down, protest to the people, lest they break through unto Jehovah to see, and many of them have fallen;
+**²¹** And Jehovah saith unto Moses, 'Go down, protest to the people, lest they break through unto Jehovah to see, and many of them have fallen;
 
-<sup>22</sup> and also the priests who are coming nigh unto Jehovah do sanctify themselves, lest Jehovah break forth on them.'
+**²²** and also the priests who are coming nigh unto Jehovah do sanctify themselves, lest Jehovah break forth on them.'
 
-<sup>23</sup> And Moses saith unto Jehovah, 'The people [is] unable to come up unto mount Sinai, for Thou — Thou hast protested to us, saying, Make a border [for] the mount, then thou hast sanctified it.'
+**²³** And Moses saith unto Jehovah, 'The people [is] unable to come up unto mount Sinai, for Thou — Thou hast protested to us, saying, Make a border [for] the mount, then thou hast sanctified it.'
 
-<sup>24</sup> And Jehovah saith unto him, 'Go, descend, then thou hast come up, thou, and Aaron with thee; and the priests and the people do not break through, to come up unto Jehovah, lest He break forth upon them.'
+**²⁴** And Jehovah saith unto him, 'Go, descend, then thou hast come up, thou, and Aaron with thee; and the priests and the people do not break through, to come up unto Jehovah, lest He break forth upon them.'
 
-<sup>25</sup> And Moses goeth down unto the people, and saith unto them: —
+**²⁵** And Moses goeth down unto the people, and saith unto them: —

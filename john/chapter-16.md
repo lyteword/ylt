@@ -1,67 +1,67 @@
 # Chapter 16
 
-<sup>1</sup> 'These things I have spoken to you, that ye may not be stumbled,
+**¹** 'These things I have spoken to you, that ye may not be stumbled,
 
-<sup>2</sup> out of the synagogues they will put you; but an hour doth come, that every one who hath killed you, may think to offer service unto God;
+**²** out of the synagogues they will put you; but an hour doth come, that every one who hath killed you, may think to offer service unto God;
 
-<sup>3</sup> and these things they will do to you, because they did not know the Father, nor me.
+**³** and these things they will do to you, because they did not know the Father, nor me.
 
-<sup>4</sup> 'But these things I have spoken to you, that when the hour may come, ye may remember them, that I said [them] to you, and these things to you from the beginning I did not say, because I was with you;
+**⁴** 'But these things I have spoken to you, that when the hour may come, ye may remember them, that I said [them] to you, and these things to you from the beginning I did not say, because I was with you;
 
-<sup>5</sup> and now I go away to Him who sent me, and none of you doth ask me, Whither dost thou go?
+**⁵** and now I go away to Him who sent me, and none of you doth ask me, Whither dost thou go?
 
-<sup>6</sup> but because these things I have said to you, the sorrow hath filled your heart.
+**⁶** but because these things I have said to you, the sorrow hath filled your heart.
 
-<sup>7</sup> 'But I tell you the truth; it is better for you that I go away, for if I may not go away, the Comforter will not come unto you, and if I go on, I will send Him unto you;
+**⁷** 'But I tell you the truth; it is better for you that I go away, for if I may not go away, the Comforter will not come unto you, and if I go on, I will send Him unto you;
 
-<sup>8</sup> and having come, He will convict the world concerning sin, and concerning righteousness, and concerning judgment;
+**⁸** and having come, He will convict the world concerning sin, and concerning righteousness, and concerning judgment;
 
-<sup>9</sup> concerning sin indeed, because they do not believe in me;
+**⁹** concerning sin indeed, because they do not believe in me;
 
-<sup>10</sup> and concerning righteousness, because unto my Father I go away, and no more do ye behold me;
+**¹⁰** and concerning righteousness, because unto my Father I go away, and no more do ye behold me;
 
-<sup>11</sup> and concerning judgment, because the ruler of this world hath been judged.
+**¹¹** and concerning judgment, because the ruler of this world hath been judged.
 
-<sup>12</sup> 'I have yet many things to say to you, but ye are not able to bear [them] now;
+**¹²** 'I have yet many things to say to you, but ye are not able to bear [them] now;
 
-<sup>13</sup> and when He may come — the Spirit of truth — He will guide you to all the truth, for He will not speak from Himself, but as many things as He will hear He will speak, and the coming things He will tell you;
+**¹³** and when He may come — the Spirit of truth — He will guide you to all the truth, for He will not speak from Himself, but as many things as He will hear He will speak, and the coming things He will tell you;
 
-<sup>14</sup> He will glorify me, because of mine He will take, and will tell to you.
+**¹⁴** He will glorify me, because of mine He will take, and will tell to you.
 
-<sup>15</sup> 'All things, as many as the Father hath, are mine; because of this I said, That of mine He will take, and will tell to you;
+**¹⁵** 'All things, as many as the Father hath, are mine; because of this I said, That of mine He will take, and will tell to you;
 
-<sup>16</sup> a little while, and ye do not behold me, and again a little while, and ye shall see me, because I go away unto the Father.'
+**¹⁶** a little while, and ye do not behold me, and again a little while, and ye shall see me, because I go away unto the Father.'
 
-<sup>17</sup> Therefore said [some] of his disciples one to another, 'What is this that he saith to us, A little while, and ye do not behold me, and again a little while, and ye shall see me, and, Because I go away unto the Father?'
+**¹⁷** Therefore said [some] of his disciples one to another, 'What is this that he saith to us, A little while, and ye do not behold me, and again a little while, and ye shall see me, and, Because I go away unto the Father?'
 
-<sup>18</sup> they said then, 'What is this he saith — the little while? we have not known what he saith.'
+**¹⁸** they said then, 'What is this he saith — the little while? we have not known what he saith.'
 
-<sup>19</sup> Jesus, therefore, knew that they were wishing to ask him, and he said to them, 'Concerning this do ye seek one with another, because I said, A little while, and you do not behold me, and again a little while, and ye shall see me?
+**¹⁹** Jesus, therefore, knew that they were wishing to ask him, and he said to them, 'Concerning this do ye seek one with another, because I said, A little while, and you do not behold me, and again a little while, and ye shall see me?
 
-<sup>20</sup> verily, verily, I say to you, that ye shall weep and lament, and the world will rejoice; and ye shall be sorrowful, but your sorrow joy will become.
+**²⁰** verily, verily, I say to you, that ye shall weep and lament, and the world will rejoice; and ye shall be sorrowful, but your sorrow joy will become.
 
-<sup>21</sup> 'The woman, when she may bear, hath sorrow, because her hour did come, and when she may bear the child, no more doth she remember the anguish, because of the joy that a man was born to the world.
+**²¹** 'The woman, when she may bear, hath sorrow, because her hour did come, and when she may bear the child, no more doth she remember the anguish, because of the joy that a man was born to the world.
 
-<sup>22</sup> 'And ye, therefore, now, indeed, have sorrow; and again I will see you, and your heart shall rejoice, and your joy no one doth take from you,
+**²²** 'And ye, therefore, now, indeed, have sorrow; and again I will see you, and your heart shall rejoice, and your joy no one doth take from you,
 
-<sup>23</sup> and in that day ye will question me nothing; verily, verily, I say to you, as many things as ye may ask of the Father in my name, He will give you;
+**²³** and in that day ye will question me nothing; verily, verily, I say to you, as many things as ye may ask of the Father in my name, He will give you;
 
-<sup>24</sup> till now ye did ask nothing in my name; ask, and ye shall receive, that your joy may be full.
+**²⁴** till now ye did ask nothing in my name; ask, and ye shall receive, that your joy may be full.
 
-<sup>25</sup> 'These things in similitudes I have spoken to you, but there cometh an hour when no more in similitudes will I speak to you, but freely of the Father, will tell you.
+**²⁵** 'These things in similitudes I have spoken to you, but there cometh an hour when no more in similitudes will I speak to you, but freely of the Father, will tell you.
 
-<sup>26</sup> 'In that day, in my name ye will make request, and I do not say to you that I will ask the Father for you,
+**²⁶** 'In that day, in my name ye will make request, and I do not say to you that I will ask the Father for you,
 
-<sup>27</sup> for the Father himself doth love you, because me ye have loved, and ye have believed that I from God came forth;
+**²⁷** for the Father himself doth love you, because me ye have loved, and ye have believed that I from God came forth;
 
-<sup>28</sup> I came forth from the Father, and have come to the world; again I leave the world, and go on unto the Father.'
+**²⁸** I came forth from the Father, and have come to the world; again I leave the world, and go on unto the Father.'
 
-<sup>29</sup> His disciples say to him, 'Lo, now freely thou dost speak, and no similitude speakest thou;
+**²⁹** His disciples say to him, 'Lo, now freely thou dost speak, and no similitude speakest thou;
 
-<sup>30</sup> now we have known that thou hast known all things, and hast no need that any one do question thee; in this we believe that from God thou didst come forth.'
+**³⁰** now we have known that thou hast known all things, and hast no need that any one do question thee; in this we believe that from God thou didst come forth.'
 
-<sup>31</sup> Jesus answered them, 'Now do ye believe? lo, there doth come an hour,
+**³¹** Jesus answered them, 'Now do ye believe? lo, there doth come an hour,
 
-<sup>32</sup> and now it hath come, that ye may be scattered, each to his own things, and me ye may leave alone, and I am not alone, because the Father is with me;
+**³²** and now it hath come, that ye may be scattered, each to his own things, and me ye may leave alone, and I am not alone, because the Father is with me;
 
-<sup>33</sup> these things I have spoken to you, that in me ye may have peace, in the world ye shall have tribulation, but take courage — I have overcome the world.'
+**³³** these things I have spoken to you, that in me ye may have peace, in the world ye shall have tribulation, but take courage — I have overcome the world.'

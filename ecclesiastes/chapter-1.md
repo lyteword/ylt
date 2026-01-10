@@ -1,37 +1,37 @@
 # Chapter 1
 
-<sup>1</sup> Words of a preacher, son of David, king in Jerusalem:
+**¹** Words of a preacher, son of David, king in Jerusalem:
 
-<sup>2</sup> Vanity of vanities, said the Preacher, Vanity of vanities: the whole [is] vanity.
+**²** Vanity of vanities, said the Preacher, Vanity of vanities: the whole [is] vanity.
 
-<sup>3</sup> What advantage [is] to man by all his labour that he laboureth at under the sun?
+**³** What advantage [is] to man by all his labour that he laboureth at under the sun?
 
-<sup>4</sup> A generation is going, and a generation is coming, and the earth to the age is standing.
+**⁴** A generation is going, and a generation is coming, and the earth to the age is standing.
 
-<sup>5</sup> Also, the sun hath risen, and the sun hath gone in, and unto its place panting it is rising there.
+**⁵** Also, the sun hath risen, and the sun hath gone in, and unto its place panting it is rising there.
 
-<sup>6</sup> Going unto the south, and turning round unto the north, turning round, turning round, the wind is going, and by its circuits the wind hath returned.
+**⁶** Going unto the south, and turning round unto the north, turning round, turning round, the wind is going, and by its circuits the wind hath returned.
 
-<sup>7</sup> All the streams are going unto the sea, and the sea is not full; unto a place whither the streams are going, thither they are turning back to go.
+**⁷** All the streams are going unto the sea, and the sea is not full; unto a place whither the streams are going, thither they are turning back to go.
 
-<sup>8</sup> All these things are wearying; a man is not able to speak, the eye is not satisfied by seeing, nor filled is the ear from hearing.
+**⁸** All these things are wearying; a man is not able to speak, the eye is not satisfied by seeing, nor filled is the ear from hearing.
 
-<sup>9</sup> What [is] that which hath been? it [is] that which is, and what [is] that which hath been done? it [is] that which is done, and there is not an entirely new thing under the sun.
+**⁹** What [is] that which hath been? it [is] that which is, and what [is] that which hath been done? it [is] that which is done, and there is not an entirely new thing under the sun.
 
-<sup>10</sup> There is a thing of which [one] saith: 'See this, it [is] new!' already it hath been in the ages that were before us!
+**¹⁰** There is a thing of which [one] saith: 'See this, it [is] new!' already it hath been in the ages that were before us!
 
-<sup>11</sup> There is not a remembrance of former [generations]; and also of the latter that are, there is no remembrance of them with those that are at the last.
+**¹¹** There is not a remembrance of former [generations]; and also of the latter that are, there is no remembrance of them with those that are at the last.
 
-<sup>12</sup> I, a preacher, have been king over Israel in Jerusalem.
+**¹²** I, a preacher, have been king over Israel in Jerusalem.
 
-<sup>13</sup> And I have given my heart to seek and to search out by wisdom concerning all that hath been done under the heavens. It [is] a sad travail God hath given to the sons of man to be humbled by it.
+**¹³** And I have given my heart to seek and to search out by wisdom concerning all that hath been done under the heavens. It [is] a sad travail God hath given to the sons of man to be humbled by it.
 
-<sup>14</sup> I have seen all the works that have been done under the sun, and lo, the whole [is] vanity and vexation of spirit!
+**¹⁴** I have seen all the works that have been done under the sun, and lo, the whole [is] vanity and vexation of spirit!
 
-<sup>15</sup> A crooked thing [one] is not able to make straight, and a lacking thing is not able to be numbered.
+**¹⁵** A crooked thing [one] is not able to make straight, and a lacking thing is not able to be numbered.
 
-<sup>16</sup> I — I spake with my heart, saying, 'I, lo, I have magnified and added wisdom above every one who hath been before me at Jerusalem, and my heart hath seen abundantly wisdom and knowledge.
+**¹⁶** I — I spake with my heart, saying, 'I, lo, I have magnified and added wisdom above every one who hath been before me at Jerusalem, and my heart hath seen abundantly wisdom and knowledge.
 
-<sup>17</sup> And I give my heart to know wisdom, and to know madness and folly: I have known that even this [is] vexation of spirit;
+**¹⁷** And I give my heart to know wisdom, and to know madness and folly: I have known that even this [is] vexation of spirit;
 
-<sup>18</sup> for, in abundance of wisdom [is] abundance of sadness, and he who addeth knowledge addeth pain.'
+**¹⁸** for, in abundance of wisdom [is] abundance of sadness, and he who addeth knowledge addeth pain.'

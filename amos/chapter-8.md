@@ -1,29 +1,29 @@
 # Chapter 8
 
-<sup>1</sup> Thus hath the Lord Jehovah shewed me, and, lo, a basket of summer-fruit.
+**¹** Thus hath the Lord Jehovah shewed me, and, lo, a basket of summer-fruit.
 
-<sup>2</sup> And He saith, 'What art thou seeing, Amos?' and I say, 'A basket of summer-fruit.' And Jehovah saith unto me: 'The end hath come unto My people Israel, I do not add any more to pass over to it.
+**²** And He saith, 'What art thou seeing, Amos?' and I say, 'A basket of summer-fruit.' And Jehovah saith unto me: 'The end hath come unto My people Israel, I do not add any more to pass over to it.
 
-<sup>3</sup> And howled have songstresses of a palace in that day, An affirmation of the Lord Jehovah, Many [are] the carcases, into any place throw — hush!
+**³** And howled have songstresses of a palace in that day, An affirmation of the Lord Jehovah, Many [are] the carcases, into any place throw — hush!
 
-<sup>4</sup> Hear this, ye who are swallowing up the needy, To cause to cease the poor of the land,
+**⁴** Hear this, ye who are swallowing up the needy, To cause to cease the poor of the land,
 
-<sup>5</sup> Saying, When doth the new moon pass, And we sell ground corn? And the sabbath, and we open out pure corn? To make little the ephah, And to make great the shekel, And to use perversely balances of deceit.
+**⁵** Saying, When doth the new moon pass, And we sell ground corn? And the sabbath, and we open out pure corn? To make little the ephah, And to make great the shekel, And to use perversely balances of deceit.
 
-<sup>6</sup> To purchase with money the poor, And the needy for a pair of sandals, Yea, the refuse of the pure corn we sell.
+**⁶** To purchase with money the poor, And the needy for a pair of sandals, Yea, the refuse of the pure corn we sell.
 
-<sup>7</sup> Sworn hath Jehovah by the excellency of Jacob: 'I forget not for ever any of their works.
+**⁷** Sworn hath Jehovah by the excellency of Jacob: 'I forget not for ever any of their works.
 
-<sup>8</sup> For this doth not the land tremble, And mourned hath every dweller in it? And come up as a flood hath all of it. And it hath been cast out, and hath sunk, Like the flood of Egypt.
+**⁸** For this doth not the land tremble, And mourned hath every dweller in it? And come up as a flood hath all of it. And it hath been cast out, and hath sunk, Like the flood of Egypt.
 
-<sup>9</sup> And it hath come to pass in that day, An affirmation of the Lord Jehovah, I have caused the sun to go in at noon, And caused darkness on the land in a day of light,
+**⁹** And it hath come to pass in that day, An affirmation of the Lord Jehovah, I have caused the sun to go in at noon, And caused darkness on the land in a day of light,
 
-<sup>10</sup> And have turned your festivals to mourning, And all your songs to lamentation, And caused sackcloth to come up on all loins, And on every head — baldness, And made it as a mourning [of] an only one, And its latter end as a day of bitterness.
+**¹⁰** And have turned your festivals to mourning, And all your songs to lamentation, And caused sackcloth to come up on all loins, And on every head — baldness, And made it as a mourning [of] an only one, And its latter end as a day of bitterness.
 
-<sup>11</sup> Lo, days are coming, An affirmation of the Lord Jehovah, And I have sent a famine into the land, Not a famine of bread, nor a thirst of water But of hearing the words of Jehovah.
+**¹¹** Lo, days are coming, An affirmation of the Lord Jehovah, And I have sent a famine into the land, Not a famine of bread, nor a thirst of water But of hearing the words of Jehovah.
 
-<sup>12</sup> And they have wandered from sea unto sea, And from north even unto east, They go to and fro to seek the word of Jehovah, And they do not find.
+**¹²** And they have wandered from sea unto sea, And from north even unto east, They go to and fro to seek the word of Jehovah, And they do not find.
 
-<sup>13</sup> In that day faint do the fair virgins, And the young men, with thirst.
+**¹³** In that day faint do the fair virgins, And the young men, with thirst.
 
-<sup>14</sup> Those swearing by the guilt of Samaria, And have said, Live doth thy god, O Dan, And, Live doth the way of Beer-Sheba, And they have fallen — and rise not again!'
+**¹⁴** Those swearing by the guilt of Samaria, And have said, Live doth thy god, O Dan, And, Live doth the way of Beer-Sheba, And they have fallen — and rise not again!'

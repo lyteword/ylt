@@ -1,13 +1,13 @@
 # Chapter 4
 
-<sup>1</sup> And taken hold have seven women on one man, In that day, saying, 'Our own bread we do eat, And our own raiment we put on, Only, let thy name be called over us, Remove thou our reproach.'
+**¹** And taken hold have seven women on one man, In that day, saying, 'Our own bread we do eat, And our own raiment we put on, Only, let thy name be called over us, Remove thou our reproach.'
 
-<sup>2</sup> In that day is the Shoot of Jehovah for desire and for honour, And the fruit of the earth For excellence and for beauty to the escaped of Israel.
+**²** In that day is the Shoot of Jehovah for desire and for honour, And the fruit of the earth For excellence and for beauty to the escaped of Israel.
 
-<sup>3</sup> And it hath been, he who is left in Zion, And he who is remaining in Jerusalem, 'Holy' is said of him, Of every one who is written for life in Jerusalem.
+**³** And it hath been, he who is left in Zion, And he who is remaining in Jerusalem, 'Holy' is said of him, Of every one who is written for life in Jerusalem.
 
-<sup>4</sup> If the Lord hath washed away The filth of daughters of Zion, And the blood of Jerusalem purgeth from her midst, By the spirit of judgment, and by the spirit of burning.
+**⁴** If the Lord hath washed away The filth of daughters of Zion, And the blood of Jerusalem purgeth from her midst, By the spirit of judgment, and by the spirit of burning.
 
-<sup>5</sup> Then hath Jehovah prepared Over every fixed place of Mount Zion, And over her convocations, A cloud by day, and smoke, And the shining of a flaming fire by night, That, over all honour a safe-guard,
+**⁵** Then hath Jehovah prepared Over every fixed place of Mount Zion, And over her convocations, A cloud by day, and smoke, And the shining of a flaming fire by night, That, over all honour a safe-guard,
 
-<sup>6</sup> And a covering may be, For a shadow by day from drought, And for a refuge, and for a hiding place, From inundation and from rain!
+**⁶** And a covering may be, For a shadow by day from drought, And for a refuge, and for a hiding place, From inundation and from rain!

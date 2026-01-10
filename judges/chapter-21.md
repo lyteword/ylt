@@ -1,51 +1,51 @@
 # Chapter 21
 
-<sup>1</sup> And the men of Israel have sworn in Mizpeh, saying, 'None of us doth give his daughter to Benjamin for a wife.'
+**¹** And the men of Israel have sworn in Mizpeh, saying, 'None of us doth give his daughter to Benjamin for a wife.'
 
-<sup>2</sup> And the people come in to Beth-El, and sit there till the evening before God, and lift up their voice, and weep — a great weeping,
+**²** And the people come in to Beth-El, and sit there till the evening before God, and lift up their voice, and weep — a great weeping,
 
-<sup>3</sup> and say, 'Why, O Jehovah, God of Israel, hath this been in Israel — to be lacking to-day, from Israel, one tribe?'
+**³** and say, 'Why, O Jehovah, God of Israel, hath this been in Israel — to be lacking to-day, from Israel, one tribe?'
 
-<sup>4</sup> And it cometh to pass on the morrow, that the people rise early, and build there an altar, and cause to ascend burnt-offerings and peace-offerings.
+**⁴** And it cometh to pass on the morrow, that the people rise early, and build there an altar, and cause to ascend burnt-offerings and peace-offerings.
 
-<sup>5</sup> And the sons of Israel say, 'Who [is] he that hath not come up in the assembly out of all the tribes of Israel unto Jehovah?' for the great oath hath been concerning him who hath not come up unto Jehovah to Mizpeh, saying, 'He is surely put to death.'
+**⁵** And the sons of Israel say, 'Who [is] he that hath not come up in the assembly out of all the tribes of Israel unto Jehovah?' for the great oath hath been concerning him who hath not come up unto Jehovah to Mizpeh, saying, 'He is surely put to death.'
 
-<sup>6</sup> And the sons of Israel repent concerning Benjamin their brother, and say, 'There hath been to-day cut off one tribe from Israel,
+**⁶** And the sons of Israel repent concerning Benjamin their brother, and say, 'There hath been to-day cut off one tribe from Israel,
 
-<sup>7</sup> what do we do for them — for those who are left — for wives, and we — we have sworn by Jehovah not to give to them of our daughters for wives?'
+**⁷** what do we do for them — for those who are left — for wives, and we — we have sworn by Jehovah not to give to them of our daughters for wives?'
 
-<sup>8</sup> And they say, 'Who is [that] one out of the tribes of Israel who hath not come up unto Jehovah to Mizpeh?' and lo, none hath come in unto the camp from Jabesh-Gilead — unto the assembly.
+**⁸** And they say, 'Who is [that] one out of the tribes of Israel who hath not come up unto Jehovah to Mizpeh?' and lo, none hath come in unto the camp from Jabesh-Gilead — unto the assembly.
 
-<sup>9</sup> And the people numbered themselves, and lo, there is not there a man of the inhabitants of Jabesh-Gilead.
+**⁹** And the people numbered themselves, and lo, there is not there a man of the inhabitants of Jabesh-Gilead.
 
-<sup>10</sup> And the company send there twelve thousand men of the sons of valour, and command them, saying, 'Go — and ye have smitten the inhabitants of Jabesh-Gilead by the mouth of the sword, even the women and the infants.
+**¹⁰** And the company send there twelve thousand men of the sons of valour, and command them, saying, 'Go — and ye have smitten the inhabitants of Jabesh-Gilead by the mouth of the sword, even the women and the infants.
 
-<sup>11</sup> And this [is] the thing which ye do; every male, and every woman knowing the lying of a male, ye devote.'
+**¹¹** And this [is] the thing which ye do; every male, and every woman knowing the lying of a male, ye devote.'
 
-<sup>12</sup> And they find out of the inhabitants of Jabesh-Gilead four hundred young women, virgins, who have not known man by the lying of a male, and they bring them in unto the camp at Shiloh, which [is] in the land of Canaan.
+**¹²** And they find out of the inhabitants of Jabesh-Gilead four hundred young women, virgins, who have not known man by the lying of a male, and they bring them in unto the camp at Shiloh, which [is] in the land of Canaan.
 
-<sup>13</sup> And all the company send, and speak, unto the sons of Benjamin who [are] in the rock Rimmon, and proclaim to them peace;
+**¹³** And all the company send, and speak, unto the sons of Benjamin who [are] in the rock Rimmon, and proclaim to them peace;
 
-<sup>14</sup> and Benjamin turneth back at that time, and they give to them the women whom they have kept alive of the women of Jabesh-Gilead, and they have not found for [all of] them so.
+**¹⁴** and Benjamin turneth back at that time, and they give to them the women whom they have kept alive of the women of Jabesh-Gilead, and they have not found for [all of] them so.
 
-<sup>15</sup> And the people repented concerning Benjamin, for Jehovah had made a breach among the tribes of Israel.
+**¹⁵** And the people repented concerning Benjamin, for Jehovah had made a breach among the tribes of Israel.
 
-<sup>16</sup> And the elders of the company say, 'What do we do to the remnant for wives — for the women have been destroyed out of Benjamin?'
+**¹⁶** And the elders of the company say, 'What do we do to the remnant for wives — for the women have been destroyed out of Benjamin?'
 
-<sup>17</sup> And they say, 'A possession of an escaped party [is] to Benjamin, and a tribe is not blotted out from Israel;
+**¹⁷** And they say, 'A possession of an escaped party [is] to Benjamin, and a tribe is not blotted out from Israel;
 
-<sup>18</sup> and we — we are not able to give to them wives out of our daughters, for the sons of Israel have sworn, saying, Cursed [is] he who is giving a wife to Benjamin.'
+**¹⁸** and we — we are not able to give to them wives out of our daughters, for the sons of Israel have sworn, saying, Cursed [is] he who is giving a wife to Benjamin.'
 
-<sup>19</sup> And they say, 'Lo, a festival of Jehovah [is] in Shiloh, from time to time, which [is] on the north of Beth-El, at the rising of the sun, by the highway which is going up from Beth-El to Shechem, and on the south of Lebonah.'
+**¹⁹** And they say, 'Lo, a festival of Jehovah [is] in Shiloh, from time to time, which [is] on the north of Beth-El, at the rising of the sun, by the highway which is going up from Beth-El to Shechem, and on the south of Lebonah.'
 
-<sup>20</sup> And they command the sons of Benjamin, saying, 'Go — and ye have laid wait in the vineyards,
+**²⁰** And they command the sons of Benjamin, saying, 'Go — and ye have laid wait in the vineyards,
 
-<sup>21</sup> and have seen, and lo, if the daughters of Shiloh come out to dance in dances — then ye have gone out from the vineyards, and caught for you each his wife out of the daughters of Shiloh, and gone to the land of Benjamin;
+**²¹** and have seen, and lo, if the daughters of Shiloh come out to dance in dances — then ye have gone out from the vineyards, and caught for you each his wife out of the daughters of Shiloh, and gone to the land of Benjamin;
 
-<sup>22</sup> and it hath been, when their fathers or their brethren come in to plead unto us, that we have said unto them, Favour us [by] them, for we have not taken [to] each his wife in battle, for ye — ye have not given to them at this time [that] ye are guilty.'
+**²²** and it hath been, when their fathers or their brethren come in to plead unto us, that we have said unto them, Favour us [by] them, for we have not taken [to] each his wife in battle, for ye — ye have not given to them at this time [that] ye are guilty.'
 
-<sup>23</sup> And the sons of Benjamin do so, and take women according to their number, out of the dancers whom they have taken violently away; and they go, and turn back unto their inheritance, and build the cities, and dwell in them.
+**²³** And the sons of Benjamin do so, and take women according to their number, out of the dancers whom they have taken violently away; and they go, and turn back unto their inheritance, and build the cities, and dwell in them.
 
-<sup>24</sup> And the sons of Israel go up and down thence at that time, each to his tribe, and to his family; and they go out thence each to his inheritance.
+**²⁴** And the sons of Israel go up and down thence at that time, each to his tribe, and to his family; and they go out thence each to his inheritance.
 
-<sup>25</sup> In those days there is no king in Israel; each doth that which is right in his own eyes.
+**²⁵** In those days there is no king in Israel; each doth that which is right in his own eyes.

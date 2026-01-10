@@ -1,61 +1,61 @@
 # Chapter 38
 
-<sup>1</sup> And it cometh to pass, at that time, that Judah goeth down from his brethren, and turneth aside unto a man, an Adullamite, whose name [is] Hirah;
+**¹** And it cometh to pass, at that time, that Judah goeth down from his brethren, and turneth aside unto a man, an Adullamite, whose name [is] Hirah;
 
-<sup>2</sup> and Judah seeth there the daughter of a man, a Canaanite, whose name [is] Shuah, and taketh her, and goeth in unto her.
+**²** and Judah seeth there the daughter of a man, a Canaanite, whose name [is] Shuah, and taketh her, and goeth in unto her.
 
-<sup>3</sup> And she conceiveth, and beareth a son, and he calleth his name Er;
+**³** And she conceiveth, and beareth a son, and he calleth his name Er;
 
-<sup>4</sup> and she conceiveth again, and beareth a son, and calleth his name Onan;
+**⁴** and she conceiveth again, and beareth a son, and calleth his name Onan;
 
-<sup>5</sup> and she addeth again, and beareth a son, and calleth his name Shelah; and he was in Chezib in her bearing him.
+**⁵** and she addeth again, and beareth a son, and calleth his name Shelah; and he was in Chezib in her bearing him.
 
-<sup>6</sup> And Judah taketh a wife for Er, his first-born, and her name [is] Tamar;
+**⁶** And Judah taketh a wife for Er, his first-born, and her name [is] Tamar;
 
-<sup>7</sup> and Er, Judah's first-born, is evil in the eyes of Jehovah, and Jehovah doth put him to death.
+**⁷** and Er, Judah's first-born, is evil in the eyes of Jehovah, and Jehovah doth put him to death.
 
-<sup>8</sup> And Judah saith to Onan, 'Go in unto the wife of thy brother, and marry her, and raise up seed to thy brother;'
+**⁸** And Judah saith to Onan, 'Go in unto the wife of thy brother, and marry her, and raise up seed to thy brother;'
 
-<sup>9</sup> and Onan knoweth that the seed is not [reckoned] his; and it hath come to pass, if he hath gone in unto his brother's wife, that he hath destroyed [it] to the earth, so as not to give seed to his brother;
+**⁹** and Onan knoweth that the seed is not [reckoned] his; and it hath come to pass, if he hath gone in unto his brother's wife, that he hath destroyed [it] to the earth, so as not to give seed to his brother;
 
-<sup>10</sup> and that which he hath done is evil in the eyes of Jehovah, and He putteth him also to death.
+**¹⁰** and that which he hath done is evil in the eyes of Jehovah, and He putteth him also to death.
 
-<sup>11</sup> And Judah saith to Tamar his daughter-in-law, 'Abide a widow at thy father's house, till Shelah my son groweth up;' for he said, 'Lest he die — even he — like his brethren;' and Tamar goeth and dwelleth at her father's house.
+**¹¹** And Judah saith to Tamar his daughter-in-law, 'Abide a widow at thy father's house, till Shelah my son groweth up;' for he said, 'Lest he die — even he — like his brethren;' and Tamar goeth and dwelleth at her father's house.
 
-<sup>12</sup> And the days are multiplied, and the daughter of Shuah, Judah's wife, dieth; and Judah is comforted, and goeth up unto his sheep-shearers, he and Hirah his friend the Adullamite, to Timnath.
+**¹²** And the days are multiplied, and the daughter of Shuah, Judah's wife, dieth; and Judah is comforted, and goeth up unto his sheep-shearers, he and Hirah his friend the Adullamite, to Timnath.
 
-<sup>13</sup> And it is declared to Tamar, saying, 'Lo, thy husband's father is going up to Timnath to shear his flock;'
+**¹³** And it is declared to Tamar, saying, 'Lo, thy husband's father is going up to Timnath to shear his flock;'
 
-<sup>14</sup> and she turneth aside the garments of her widowhood from off her, and covereth herself with a vail, and wrappeth herself up, and sitteth in the opening of Enayim, which [is] by the way to Timnath, for she hath seen that Shelah hath grown up, and she hath not been given to him for a wife.
+**¹⁴** and she turneth aside the garments of her widowhood from off her, and covereth herself with a vail, and wrappeth herself up, and sitteth in the opening of Enayim, which [is] by the way to Timnath, for she hath seen that Shelah hath grown up, and she hath not been given to him for a wife.
 
-<sup>15</sup> And Judah seeth her, and reckoneth her for a harlot, for she hath covered her face,
+**¹⁵** And Judah seeth her, and reckoneth her for a harlot, for she hath covered her face,
 
-<sup>16</sup> and he turneth aside unto her by the way, and saith, 'Come, I pray thee, let me come in unto thee,' (for he hath not known that she [is] his daughter-in-law); and she saith, 'What dost thou give to me, that thou mayest come in unto me?'
+**¹⁶** and he turneth aside unto her by the way, and saith, 'Come, I pray thee, let me come in unto thee,' (for he hath not known that she [is] his daughter-in-law); and she saith, 'What dost thou give to me, that thou mayest come in unto me?'
 
-<sup>17</sup> and he saith, 'I — I send a kid of the goats from the flock.' And she saith, 'Dost thou give a pledge till thou send [it]?'
+**¹⁷** and he saith, 'I — I send a kid of the goats from the flock.' And she saith, 'Dost thou give a pledge till thou send [it]?'
 
-<sup>18</sup> and he saith, 'What [is] the pledge that I give to thee?' and she saith, 'Thy seal, and thy ribbon, and thy staff which [is] in thy hand;' and he giveth to her, and goeth in unto her, and she conceiveth to him;
+**¹⁸** and he saith, 'What [is] the pledge that I give to thee?' and she saith, 'Thy seal, and thy ribbon, and thy staff which [is] in thy hand;' and he giveth to her, and goeth in unto her, and she conceiveth to him;
 
-<sup>19</sup> and she riseth, and goeth, and turneth aside her vail from off her, and putteth on the garments of her widowhood.
+**¹⁹** and she riseth, and goeth, and turneth aside her vail from off her, and putteth on the garments of her widowhood.
 
-<sup>20</sup> And Judah sendeth the kid of the goats by the hand of his friend the Adullamite, to receive the pledge from the hand of the woman, and he hath not found her.
+**²⁰** And Judah sendeth the kid of the goats by the hand of his friend the Adullamite, to receive the pledge from the hand of the woman, and he hath not found her.
 
-<sup>21</sup> And he asketh the men of her place, saying, 'Where [is] the separated one — she in Enayim, by the way?' and they say, 'There hath not been in this [place] a separated one.'
+**²¹** And he asketh the men of her place, saying, 'Where [is] the separated one — she in Enayim, by the way?' and they say, 'There hath not been in this [place] a separated one.'
 
-<sup>22</sup> And he turneth back unto Judah, and saith, 'I have not found her; and the men of the place also have said, There hath not been in this [place] a separated one,'
+**²²** And he turneth back unto Judah, and saith, 'I have not found her; and the men of the place also have said, There hath not been in this [place] a separated one,'
 
-<sup>23</sup> and Judah saith, 'Let her take to herself, lest we become despised; lo, I sent this kid, and thou hast not found her.'
+**²³** and Judah saith, 'Let her take to herself, lest we become despised; lo, I sent this kid, and thou hast not found her.'
 
-<sup>24</sup> And it cometh to pass about three months [after], that it is declared to Judah, saying, 'Tamar thy daughter-in-law hath committed fornication; and also, lo, she hath conceived by fornication:' and Judah saith, 'Bring her out — and she is burnt.'
+**²⁴** And it cometh to pass about three months [after], that it is declared to Judah, saying, 'Tamar thy daughter-in-law hath committed fornication; and also, lo, she hath conceived by fornication:' and Judah saith, 'Bring her out — and she is burnt.'
 
-<sup>25</sup> She is brought out, and she hath sent unto her husband's father, saying, 'To a man whose these [are], I [am] pregnant;' and she saith, 'Discern, I pray thee, whose [are] these — the seal, and the ribbons, and the staff.'
+**²⁵** She is brought out, and she hath sent unto her husband's father, saying, 'To a man whose these [are], I [am] pregnant;' and she saith, 'Discern, I pray thee, whose [are] these — the seal, and the ribbons, and the staff.'
 
-<sup>26</sup> And Judah discerneth and saith, 'She hath been more righteous than I, because that I did not give her to Shelah my son;' and he hath not added to know her again.
+**²⁶** And Judah discerneth and saith, 'She hath been more righteous than I, because that I did not give her to Shelah my son;' and he hath not added to know her again.
 
-<sup>27</sup> And it cometh to pass in the time of her bearing, that lo, twins [are] in her womb;
+**²⁷** And it cometh to pass in the time of her bearing, that lo, twins [are] in her womb;
 
-<sup>28</sup> and it cometh to pass in her bearing, that [one] giveth out a hand, and the midwife taketh and bindeth on his hand a scarlet thread, saying, 'This hath come out first.'
+**²⁸** and it cometh to pass in her bearing, that [one] giveth out a hand, and the midwife taketh and bindeth on his hand a scarlet thread, saying, 'This hath come out first.'
 
-<sup>29</sup> And it cometh to pass as he draweth back his hand, that lo, his brother hath come out, and she saith, 'What! thou hast broken forth — on thee [is] the breach;' and he calleth his name Pharez;
+**²⁹** And it cometh to pass as he draweth back his hand, that lo, his brother hath come out, and she saith, 'What! thou hast broken forth — on thee [is] the breach;' and he calleth his name Pharez;
 
-<sup>30</sup> and afterwards hath his brother come out, on whose hand [is] the scarlet thread, and he calleth his name Zarah.
+**³⁰** and afterwards hath his brother come out, on whose hand [is] the scarlet thread, and he calleth his name Zarah.

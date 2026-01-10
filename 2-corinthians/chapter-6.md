@@ -1,37 +1,37 @@
 # Chapter 6
 
-<sup>1</sup> And working together also we call upon [you] that ye receive not in vain the grace of God —
+**¹** And working together also we call upon [you] that ye receive not in vain the grace of God —
 
-<sup>2</sup> for He saith, 'In an acceptable time I did hear thee, and in a day of salvation I did help thee, lo, now [is] a well-accepted time; lo, now, a day of salvation,' —
+**²** for He saith, 'In an acceptable time I did hear thee, and in a day of salvation I did help thee, lo, now [is] a well-accepted time; lo, now, a day of salvation,' —
 
-<sup>3</sup> in nothing giving any cause of offence, that the ministration may be not blamed,
+**³** in nothing giving any cause of offence, that the ministration may be not blamed,
 
-<sup>4</sup> but in everything recommending ourselves as God's ministrants; in much patience, in tribulations, in necessities, in distresses,
+**⁴** but in everything recommending ourselves as God's ministrants; in much patience, in tribulations, in necessities, in distresses,
 
-<sup>5</sup> in stripes, in imprisonments, in insurrections, in labours, in watchings, in fastings,
+**⁵** in stripes, in imprisonments, in insurrections, in labours, in watchings, in fastings,
 
-<sup>6</sup> in pureness, in knowledge, in long-suffering, in kindness, in the Holy Spirit, in love unfeigned,
+**⁶** in pureness, in knowledge, in long-suffering, in kindness, in the Holy Spirit, in love unfeigned,
 
-<sup>7</sup> in the word of truth, in the power of God, through the armour of the righteousness, on the right and on the left,
+**⁷** in the word of truth, in the power of God, through the armour of the righteousness, on the right and on the left,
 
-<sup>8</sup> through glory and dishonour, through evil report and good report, as leading astray, and true;
+**⁸** through glory and dishonour, through evil report and good report, as leading astray, and true;
 
-<sup>9</sup> as unknown, and recognized; as dying, and lo, we live; as chastened, and not put to death;
+**⁹** as unknown, and recognized; as dying, and lo, we live; as chastened, and not put to death;
 
-<sup>10</sup> as sorrowful, and always rejoicing; as poor, and making many rich; as having nothing, and possessing all things.
+**¹⁰** as sorrowful, and always rejoicing; as poor, and making many rich; as having nothing, and possessing all things.
 
-<sup>11</sup> Our mouth hath been open unto you, O Corinthians, our heart hath been enlarged!
+**¹¹** Our mouth hath been open unto you, O Corinthians, our heart hath been enlarged!
 
-<sup>12</sup> ye are not straitened in us, and ye are straitened in your [own] bowels,
+**¹²** ye are not straitened in us, and ye are straitened in your [own] bowels,
 
-<sup>13</sup> and [as] a recompense of the same kind, (as to children I say [it],) be ye enlarged — also ye!
+**¹³** and [as] a recompense of the same kind, (as to children I say [it],) be ye enlarged — also ye!
 
-<sup>14</sup> Become not yoked with others — unbelievers, for what partaking [is there] to righteousness and lawlessness?
+**¹⁴** Become not yoked with others — unbelievers, for what partaking [is there] to righteousness and lawlessness?
 
-<sup>15</sup> and what fellowship to light with darkness? and what concord to Christ with Belial? or what part to a believer with an unbeliever?
+**¹⁵** and what fellowship to light with darkness? and what concord to Christ with Belial? or what part to a believer with an unbeliever?
 
-<sup>16</sup> and what agreement to the sanctuary of God with idols? for ye are a sanctuary of the living God, according as God said — 'I will dwell in them, and will walk among [them], and I will be their God, and they shall be My people,
+**¹⁶** and what agreement to the sanctuary of God with idols? for ye are a sanctuary of the living God, according as God said — 'I will dwell in them, and will walk among [them], and I will be their God, and they shall be My people,
 
-<sup>17</sup> wherefore, come ye forth out of the midst of them, and be separated, saith the Lord, and an unclean thing do not touch, and I — I will receive you,
+**¹⁷** wherefore, come ye forth out of the midst of them, and be separated, saith the Lord, and an unclean thing do not touch, and I — I will receive you,
 
-<sup>18</sup> and I will be to you for a Father, and ye — ye shall be to Me for sons and daughters, saith the Lord Almighty.'
+**¹⁸** and I will be to you for a Father, and ye — ye shall be to Me for sons and daughters, saith the Lord Almighty.'

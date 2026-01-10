@@ -1,35 +1,35 @@
 # Chapter 7
 
-<sup>1</sup> And the men of Kirjath-Jearim come and bring up the ark of Jehovah, and bring it in unto the house of Abinadab, in the height, and Eleazar his son they have sanctified to keep the ark of Jehovah.
+**¹** And the men of Kirjath-Jearim come and bring up the ark of Jehovah, and bring it in unto the house of Abinadab, in the height, and Eleazar his son they have sanctified to keep the ark of Jehovah.
 
-<sup>2</sup> And it cometh to pass, from the day of the dwelling of the ark in Kirjath-Jearim, that the days are multiplied — yea, they are twenty years — and wail do all the house of Israel after Jehovah.
+**²** And it cometh to pass, from the day of the dwelling of the ark in Kirjath-Jearim, that the days are multiplied — yea, they are twenty years — and wail do all the house of Israel after Jehovah.
 
-<sup>3</sup> And Samuel speaketh unto all the house of Israel, saying, 'If with all your heart ye are turning back unto Jehovah — turn aside the gods of the stranger from your midst, and Ashtaroth; and prepare your heart unto Jehovah, and serve Him only, and He doth deliver you out of the hand of the Philistines.'
+**³** And Samuel speaketh unto all the house of Israel, saying, 'If with all your heart ye are turning back unto Jehovah — turn aside the gods of the stranger from your midst, and Ashtaroth; and prepare your heart unto Jehovah, and serve Him only, and He doth deliver you out of the hand of the Philistines.'
 
-<sup>4</sup> And the sons of Israel turn aside the Baalim and Ashtaroth, and serve Jehovah alone;
+**⁴** And the sons of Israel turn aside the Baalim and Ashtaroth, and serve Jehovah alone;
 
-<sup>5</sup> and Samuel saith, 'Gather all Israel to Mizpeh, and I pray for you unto Jehovah.'
+**⁵** and Samuel saith, 'Gather all Israel to Mizpeh, and I pray for you unto Jehovah.'
 
-<sup>6</sup> And they are gathered to Mizpeh, and draw water, and pour out before Jehovah, and fast on that day, and say there, 'We have sinned against Jehovah;' and Samuel judgeth the sons of Israel in Mizpeh.
+**⁶** And they are gathered to Mizpeh, and draw water, and pour out before Jehovah, and fast on that day, and say there, 'We have sinned against Jehovah;' and Samuel judgeth the sons of Israel in Mizpeh.
 
-<sup>7</sup> And the Philistines hear that the sons of Israel have gathered themselves to Mizpeh; and the princes of the Philistines go up against Israel, and the sons of Israel hear, and are afraid of the presence of the Philistines.
+**⁷** And the Philistines hear that the sons of Israel have gathered themselves to Mizpeh; and the princes of the Philistines go up against Israel, and the sons of Israel hear, and are afraid of the presence of the Philistines.
 
-<sup>8</sup> And the sons of Israel say unto Samuel, 'Keep not silent for us from crying unto Jehovah our God, and He doth save us out of the hand of the Philistines.'
+**⁸** And the sons of Israel say unto Samuel, 'Keep not silent for us from crying unto Jehovah our God, and He doth save us out of the hand of the Philistines.'
 
-<sup>9</sup> And Samuel taketh a fat lamb, and causeth it to go up — a burnt-offering whole to Jehovah; and Samuel crieth unto Jehovah for Israel, and Jehovah answereth him;
+**⁹** And Samuel taketh a fat lamb, and causeth it to go up — a burnt-offering whole to Jehovah; and Samuel crieth unto Jehovah for Israel, and Jehovah answereth him;
 
-<sup>10</sup> and Samuel is causing the burnt-offering to go up — and the Philistines have drawn nigh to battle against Israel — and Jehovah doth thunder with a great noise, on that day, upon the Philistines, and troubleth them, and they are smitten before Israel.
+**¹⁰** and Samuel is causing the burnt-offering to go up — and the Philistines have drawn nigh to battle against Israel — and Jehovah doth thunder with a great noise, on that day, upon the Philistines, and troubleth them, and they are smitten before Israel.
 
-<sup>11</sup> And the men of Israel go out from Mizpeh, and pursue the Philistines, and smite them unto the place of Beth-Car.
+**¹¹** And the men of Israel go out from Mizpeh, and pursue the Philistines, and smite them unto the place of Beth-Car.
 
-<sup>12</sup> And Samuel taketh a stone, and setteth [it] between Mizpeh and Shen, and calleth its name Eben-Ezer, saying, 'Hitherto hath Jehovah helped us.'
+**¹²** And Samuel taketh a stone, and setteth [it] between Mizpeh and Shen, and calleth its name Eben-Ezer, saying, 'Hitherto hath Jehovah helped us.'
 
-<sup>13</sup> And the Philistines are humbled, and have not added any more to come into the border of Israel, and the hand of Jehovah is on the Philistines all the days of Samuel.
+**¹³** And the Philistines are humbled, and have not added any more to come into the border of Israel, and the hand of Jehovah is on the Philistines all the days of Samuel.
 
-<sup>14</sup> And the cities which the Philistines have taken from Israel are restored to Israel — from Ekron even unto Gath — and their border hath Israel delivered out of the hand of the Philistines; and there is peace between Israel and the Amorite.
+**¹⁴** And the cities which the Philistines have taken from Israel are restored to Israel — from Ekron even unto Gath — and their border hath Israel delivered out of the hand of the Philistines; and there is peace between Israel and the Amorite.
 
-<sup>15</sup> And Samuel judgeth Israel all the days of his life,
+**¹⁵** And Samuel judgeth Israel all the days of his life,
 
-<sup>16</sup> and he hath gone from year to year, and gone round Beth-El, and Gilgal, and Mizpeh, and judged Israel [in] all these places;
+**¹⁶** and he hath gone from year to year, and gone round Beth-El, and Gilgal, and Mizpeh, and judged Israel [in] all these places;
 
-<sup>17</sup> and his returning [is] to Ramath, for there [is] his house, and there he hath judged Israel, and he buildeth there an altar to Jehovah.
+**¹⁷** and his returning [is] to Ramath, for there [is] his house, and there he hath judged Israel, and he buildeth there an altar to Jehovah.

@@ -1,43 +1,43 @@
 # Chapter 31
 
-<sup>1</sup> And at the completion of all this, gone out have all Israel who are found present to the cities of Judah, and break the standing-pillars, and cut down the shrines, and break down the high places and the altars, out of all Judah and Benjamin, and in Ephraim and Manasseh, even to completion, and all the sons of Israel turn back, each to his Possession, to their cities.
+**¹** And at the completion of all this, gone out have all Israel who are found present to the cities of Judah, and break the standing-pillars, and cut down the shrines, and break down the high places and the altars, out of all Judah and Benjamin, and in Ephraim and Manasseh, even to completion, and all the sons of Israel turn back, each to his Possession, to their cities.
 
-<sup>2</sup> And Hezekiah appointeth the courses of the priests, and of the Levites, by their courses, each according to his service, of the priests and of the Levites, for burnt-offering, and for peace-offerings, to minister, and to give thanks, and to give praise in the gates of the camps of Jehovah.
+**²** And Hezekiah appointeth the courses of the priests, and of the Levites, by their courses, each according to his service, of the priests and of the Levites, for burnt-offering, and for peace-offerings, to minister, and to give thanks, and to give praise in the gates of the camps of Jehovah.
 
-<sup>3</sup> And a portion of the king, from his substance, [is] for burnt-offerings, for burnt-offerings of the morning, and of the evening, and the burnt-offerings of sabbaths, and of new moons, and of appointed seasons, as it is written in the law of Jehovah.
+**³** And a portion of the king, from his substance, [is] for burnt-offerings, for burnt-offerings of the morning, and of the evening, and the burnt-offerings of sabbaths, and of new moons, and of appointed seasons, as it is written in the law of Jehovah.
 
-<sup>4</sup> And he saith to the people, to the inhabitants of Jerusalem, to give the portion of the priests, and of the Levites, so that they are strengthened in the law of Jehovah;
+**⁴** And he saith to the people, to the inhabitants of Jerusalem, to give the portion of the priests, and of the Levites, so that they are strengthened in the law of Jehovah;
 
-<sup>5</sup> and at the spreading forth of the thing have the sons of Israel multiplied the first-fruit of corn, new wine, and oil, and honey, and of all the increase of the field, and the tithe of the whole in abundance they have brought in.
+**⁵** and at the spreading forth of the thing have the sons of Israel multiplied the first-fruit of corn, new wine, and oil, and honey, and of all the increase of the field, and the tithe of the whole in abundance they have brought in.
 
-<sup>6</sup> And the sons of Israel and Judah, those dwelling in cities of Judah, they also a tithe of herd and flock, and a tithe of the holy things that are sanctified to Jehovah their God, have brought in, and they give — heaps, heaps;
+**⁶** And the sons of Israel and Judah, those dwelling in cities of Judah, they also a tithe of herd and flock, and a tithe of the holy things that are sanctified to Jehovah their God, have brought in, and they give — heaps, heaps;
 
-<sup>7</sup> in the third month they have begun to lay the foundation of the heaps, and in the seventh month they have finished.
+**⁷** in the third month they have begun to lay the foundation of the heaps, and in the seventh month they have finished.
 
-<sup>8</sup> And Hezekiah and the heads come in and see the heaps, and bless Jehovah and His people Israel,
+**⁸** And Hezekiah and the heads come in and see the heaps, and bless Jehovah and His people Israel,
 
-<sup>9</sup> and Hezekiah inquireth at the priests and the Levites concerning the heaps,
+**⁹** and Hezekiah inquireth at the priests and the Levites concerning the heaps,
 
-<sup>10</sup> and Azariah the head priest, of the house of Zadok, speaketh unto him, and saith, 'From the beginning of the bringing of the heave-offering to the house of Jehovah, [there is] to eat, and to be satisfied, and to leave abundantly, for Jehovah hath blessed His people, and that left [is] this store.'
+**¹⁰** and Azariah the head priest, of the house of Zadok, speaketh unto him, and saith, 'From the beginning of the bringing of the heave-offering to the house of Jehovah, [there is] to eat, and to be satisfied, and to leave abundantly, for Jehovah hath blessed His people, and that left [is] this store.'
 
-<sup>11</sup> And Hezekiah saith to prepare chambers in the house of Jehovah, and they prepare,
+**¹¹** And Hezekiah saith to prepare chambers in the house of Jehovah, and they prepare,
 
-<sup>12</sup> and they bring in the heave-offering, and the tithe, and the holy things faithfully; and over them is a leader, Conaniah the Levite, and Shimei his brother [is] second;
+**¹²** and they bring in the heave-offering, and the tithe, and the holy things faithfully; and over them is a leader, Conaniah the Levite, and Shimei his brother [is] second;
 
-<sup>13</sup> and Jehiel, and Azaziah, and Nahath, and Asahel, and Jerimoth, and Jozabad, and Eliel, and Ismachiah, and Mahath, and Benaiah, [are] inspectors under the hand of Conaniah and Shimei his brother, by the appointment of Hezekiah the king, and Azariah leader of the house of God.
+**¹³** and Jehiel, and Azaziah, and Nahath, and Asahel, and Jerimoth, and Jozabad, and Eliel, and Ismachiah, and Mahath, and Benaiah, [are] inspectors under the hand of Conaniah and Shimei his brother, by the appointment of Hezekiah the king, and Azariah leader of the house of God.
 
-<sup>14</sup> And Kore son of Imnah the Levite, the gatekeeper at the east, [is] over the willing-offerings of God, to give the heave-offering of Jehovah, and the most holy things.
+**¹⁴** And Kore son of Imnah the Levite, the gatekeeper at the east, [is] over the willing-offerings of God, to give the heave-offering of Jehovah, and the most holy things.
 
-<sup>15</sup> And by his hand [are] Eden, and Miniamin, and Jeshua, and Shemaiah, Amariah, and Shechaniah, in cities of the priests, faithfully to give to their brethren in courses, as the great so the small,
+**¹⁵** And by his hand [are] Eden, and Miniamin, and Jeshua, and Shemaiah, Amariah, and Shechaniah, in cities of the priests, faithfully to give to their brethren in courses, as the great so the small,
 
-<sup>16</sup> apart from their genealogy, to males from a son of three years and upward, to every one who hath gone in to the house of Jehovah, by the matter of a day in its day, for their service in their charges, according to their courses;
+**¹⁶** apart from their genealogy, to males from a son of three years and upward, to every one who hath gone in to the house of Jehovah, by the matter of a day in its day, for their service in their charges, according to their courses;
 
-<sup>17</sup> and the genealogy of the priests by the house of their fathers, and of the Levites, from a son of twenty years and upward, in their charges, in their courses;
+**¹⁷** and the genealogy of the priests by the house of their fathers, and of the Levites, from a son of twenty years and upward, in their charges, in their courses;
 
-<sup>18</sup> and to the genealogy among all their infants, their wives, and their sons, and their daughters to all the congregation, for in their faithfulness they sanctify themselves in holiness.
+**¹⁸** and to the genealogy among all their infants, their wives, and their sons, and their daughters to all the congregation, for in their faithfulness they sanctify themselves in holiness.
 
-<sup>19</sup> And to sons of Aaron, the priests, in the fields of the suburb of their cities, in every city and city, [are] men who have been defined by name, to give portions to every male among the priests, and to every one who reckoned himself by genealogy among the Levites.
+**¹⁹** And to sons of Aaron, the priests, in the fields of the suburb of their cities, in every city and city, [are] men who have been defined by name, to give portions to every male among the priests, and to every one who reckoned himself by genealogy among the Levites.
 
-<sup>20</sup> And Hezekiah doth thus in all Judah, and doth that which is good, and that which is right, and that which is true, before Jehovah his God;
+**²⁰** And Hezekiah doth thus in all Judah, and doth that which is good, and that which is right, and that which is true, before Jehovah his God;
 
-<sup>21</sup> and in every work that he hath begun for the service of the house of God, and for the law, and for the command, to seek to his God, with all his heart he hath wrought and prospered.
+**²¹** and in every work that he hath begun for the service of the house of God, and for the law, and for the command, to seek to his God, with all his heart he hath wrought and prospered.

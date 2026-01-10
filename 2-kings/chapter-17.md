@@ -1,83 +1,83 @@
 # Chapter 17
 
-<sup>1</sup> In the twelfth year of Ahaz king of Judah reigned hath Hoshea son of Elah in Samaria, over Israel — nine years,
+**¹** In the twelfth year of Ahaz king of Judah reigned hath Hoshea son of Elah in Samaria, over Israel — nine years,
 
-<sup>2</sup> and he doth the evil thing in the eyes of Jehovah, only, not as the kings of Israel who were before him;
+**²** and he doth the evil thing in the eyes of Jehovah, only, not as the kings of Israel who were before him;
 
-<sup>3</sup> against him came up Shalmaneser king of Asshur, and Hoshea is to him a servant, and doth render to him a present.
+**³** against him came up Shalmaneser king of Asshur, and Hoshea is to him a servant, and doth render to him a present.
 
-<sup>4</sup> And the king of Asshur findeth in Hoshea a conspiracy, in that he hath sent messengers unto So king of Egypt, and hath not caused a present to go up to the king of Asshur, as year by year, and the king of Asshur restraineth him, and bindeth him in a house of restraint.
+**⁴** And the king of Asshur findeth in Hoshea a conspiracy, in that he hath sent messengers unto So king of Egypt, and hath not caused a present to go up to the king of Asshur, as year by year, and the king of Asshur restraineth him, and bindeth him in a house of restraint.
 
-<sup>5</sup> And the king of Asshur goeth up into all the land, and he goeth up to Samaria, and layeth siege against it three years;
+**⁵** And the king of Asshur goeth up into all the land, and he goeth up to Samaria, and layeth siege against it three years;
 
-<sup>6</sup> in the ninth year of Hoshea hath the king of Asshur captured Samaria, and removeth Israel to Asshur, and causeth them to dwell in Halah, and in Habor, [by] the river Gozan, and [in] the cities of the Medes.
+**⁶** in the ninth year of Hoshea hath the king of Asshur captured Samaria, and removeth Israel to Asshur, and causeth them to dwell in Halah, and in Habor, [by] the river Gozan, and [in] the cities of the Medes.
 
-<sup>7</sup> And it cometh to pass, because the sons of Israel have sinned against Jehovah their God — who bringeth them up out of the land of Egypt, from under the hand of Pharaoh king of Egypt — and fear other gods,
+**⁷** And it cometh to pass, because the sons of Israel have sinned against Jehovah their God — who bringeth them up out of the land of Egypt, from under the hand of Pharaoh king of Egypt — and fear other gods,
 
-<sup>8</sup> and walk in the statutes of the nations that Jehovah dispossessed from the presence of the sons of Israel, and of the kings of Israel that they made;
+**⁸** and walk in the statutes of the nations that Jehovah dispossessed from the presence of the sons of Israel, and of the kings of Israel that they made;
 
-<sup>9</sup> and the sons of Israel do covertly things that [are] not right against Jehovah their God, and build for them high places in all their cities, from a tower of the watchers unto the fenced city,
+**⁹** and the sons of Israel do covertly things that [are] not right against Jehovah their God, and build for them high places in all their cities, from a tower of the watchers unto the fenced city,
 
-<sup>10</sup> and set up for them standing-pillars and shrines on every high height, and under every green tree,
+**¹⁰** and set up for them standing-pillars and shrines on every high height, and under every green tree,
 
-<sup>11</sup> and make perfume there in all high places, like the nations that Jehovah removed from their presence, and do evil things to provoke Jehovah,
+**¹¹** and make perfume there in all high places, like the nations that Jehovah removed from their presence, and do evil things to provoke Jehovah,
 
-<sup>12</sup> and serve the idols, of which Jehovah said to them, 'Ye do not do this thing;'
+**¹²** and serve the idols, of which Jehovah said to them, 'Ye do not do this thing;'
 
-<sup>13</sup> And Jehovah testifieth against Israel, and against Judah, by the hand of every prophet, and every seer, saying, 'Turn back from your evil ways, and keep My commands, My statutes, according to all the law that I commanded your fathers, and that I sent unto you by the hand of My servants the prophets;'
+**¹³** And Jehovah testifieth against Israel, and against Judah, by the hand of every prophet, and every seer, saying, 'Turn back from your evil ways, and keep My commands, My statutes, according to all the law that I commanded your fathers, and that I sent unto you by the hand of My servants the prophets;'
 
-<sup>14</sup> and they have not hearkened, and harden their neck, like the neck of their fathers, who did not remain stedfast in Jehovah their God,
+**¹⁴** and they have not hearkened, and harden their neck, like the neck of their fathers, who did not remain stedfast in Jehovah their God,
 
-<sup>15</sup> and reject His statutes and His covenant that He made with their fathers, and His testimonies that He testified against them, and go after the vain thing, and become vain, and after the nations that are round about them, of whom Jehovah commanded them not to do like them;
+**¹⁵** and reject His statutes and His covenant that He made with their fathers, and His testimonies that He testified against them, and go after the vain thing, and become vain, and after the nations that are round about them, of whom Jehovah commanded them not to do like them;
 
-<sup>16</sup> And they forsake all the commands of Jehovah their God, and make to them a molten image — two calves, and make a shrine, and bow themselves to all the host of the heavens, and serve Baal,
+**¹⁶** And they forsake all the commands of Jehovah their God, and make to them a molten image — two calves, and make a shrine, and bow themselves to all the host of the heavens, and serve Baal,
 
-<sup>17</sup> and cause their sons and their daughters to pass over through fire, and divine divinations, and use enchantments, and sell themselves to do the evil thing in the eyes of Jehovah, to provoke Him;
+**¹⁷** and cause their sons and their daughters to pass over through fire, and divine divinations, and use enchantments, and sell themselves to do the evil thing in the eyes of Jehovah, to provoke Him;
 
-<sup>18</sup> That Jehovah sheweth himself very angry against Israel, and turneth them aside from His presence; none hath been left, only the tribe of Judah by itself.
+**¹⁸** That Jehovah sheweth himself very angry against Israel, and turneth them aside from His presence; none hath been left, only the tribe of Judah by itself.
 
-<sup>19</sup> Also Judah hath not kept the commands of Jehovah their God, and they walk in the statutes of Israel that they had made.
+**¹⁹** Also Judah hath not kept the commands of Jehovah their God, and they walk in the statutes of Israel that they had made.
 
-<sup>20</sup> And Jehovah kicketh against all the seed of Israel, and afflicteth them, and giveth them into the hand of spoilers, till that He hath cast them out of His presence,
+**²⁰** And Jehovah kicketh against all the seed of Israel, and afflicteth them, and giveth them into the hand of spoilers, till that He hath cast them out of His presence,
 
-<sup>21</sup> for He hath rent Israel from the house of David, and they make Jeroboam son of Nebat king, and Jeroboam driveth Israel from after Jehovah, and hath caused them to sin a great sin,
+**²¹** for He hath rent Israel from the house of David, and they make Jeroboam son of Nebat king, and Jeroboam driveth Israel from after Jehovah, and hath caused them to sin a great sin,
 
-<sup>22</sup> and the sons of Israel walk in all the sins of Jeroboam that he did, they have not turned aside therefrom,
+**²²** and the sons of Israel walk in all the sins of Jeroboam that he did, they have not turned aside therefrom,
 
-<sup>23</sup> till that Jehovah hath turned Israel aside from His presence, as He spake by the hand of all His servants the prophets, and Israel is removed from off its land to Asshur, unto this day.
+**²³** till that Jehovah hath turned Israel aside from His presence, as He spake by the hand of all His servants the prophets, and Israel is removed from off its land to Asshur, unto this day.
 
-<sup>24</sup> And the king of Asshur bringeth in from Babylon and from Cutha, and from Ava, and from Hamath, and Sepharvaim, and causeth [them] to dwell in the cities of Samaria instead of the sons of Israel, and they possess Samaria, and dwell in its cities;
+**²⁴** And the king of Asshur bringeth in from Babylon and from Cutha, and from Ava, and from Hamath, and Sepharvaim, and causeth [them] to dwell in the cities of Samaria instead of the sons of Israel, and they possess Samaria, and dwell in its cities;
 
-<sup>25</sup> and it cometh to pass, at the commencement of their dwelling there, they have not feared Jehovah, and Jehovah doth send among them the lions, and they are destroying among them.
+**²⁵** and it cometh to pass, at the commencement of their dwelling there, they have not feared Jehovah, and Jehovah doth send among them the lions, and they are destroying among them.
 
-<sup>26</sup> And they speak to the king of Asshur, saying, 'The nations that thou hast removed, and dost place in the cities of Samaria, have not known the custom of the God of the land, and He sendeth among them the lions, and lo, they are destroying them, as they do not know the custom of the God of the land.'
+**²⁶** And they speak to the king of Asshur, saying, 'The nations that thou hast removed, and dost place in the cities of Samaria, have not known the custom of the God of the land, and He sendeth among them the lions, and lo, they are destroying them, as they do not know the custom of the God of the land.'
 
-<sup>27</sup> And the king of Asshur commandeth, saying, 'Cause to go thither one of the priests whom ye removed thence, and they go and dwell there, and he doth teach them the custom of the God of the land.'
+**²⁷** And the king of Asshur commandeth, saying, 'Cause to go thither one of the priests whom ye removed thence, and they go and dwell there, and he doth teach them the custom of the God of the land.'
 
-<sup>28</sup> And one of the priests whom they removed from Samaria cometh in, and dwelleth in Beth-El, and he is teaching them how they do fear Jehovah,
+**²⁸** And one of the priests whom they removed from Samaria cometh in, and dwelleth in Beth-El, and he is teaching them how they do fear Jehovah,
 
-<sup>29</sup> and they are making each nation its gods, and place [them] in the houses of the high places that the Samaritans have made, each nation in their cities where they are dwelling.
+**²⁹** and they are making each nation its gods, and place [them] in the houses of the high places that the Samaritans have made, each nation in their cities where they are dwelling.
 
-<sup>30</sup> And the men of Babylon have made Succoth-Benoth, and the men of Cuth have made Nergal, and the men of Hamath have made Ashima,
+**³⁰** And the men of Babylon have made Succoth-Benoth, and the men of Cuth have made Nergal, and the men of Hamath have made Ashima,
 
-<sup>31</sup> and the Avites have made Nibhaz and Tartak, and the Sepharvites are burning their sons with fire to Adrammelech and Anammelech, gods of Sepharvim.
+**³¹** and the Avites have made Nibhaz and Tartak, and the Sepharvites are burning their sons with fire to Adrammelech and Anammelech, gods of Sepharvim.
 
-<sup>32</sup> And they are fearing Jehovah, and make to themselves from their extremities priests of high places, and they are acting for them in the house of the high places.
+**³²** And they are fearing Jehovah, and make to themselves from their extremities priests of high places, and they are acting for them in the house of the high places.
 
-<sup>33</sup> Jehovah they are fearing, and their gods they are serving, according to the custom of the nations whence they removed them.
+**³³** Jehovah they are fearing, and their gods they are serving, according to the custom of the nations whence they removed them.
 
-<sup>34</sup> Unto this day they are doing according to the former customs — they are not fearing Jehovah, and are not doing according to their statutes, and according to their ordinances, and according to the law, and according to the command, that Jehovah commanded the sons of Jacob whose name He made Israel,
+**³⁴** Unto this day they are doing according to the former customs — they are not fearing Jehovah, and are not doing according to their statutes, and according to their ordinances, and according to the law, and according to the command, that Jehovah commanded the sons of Jacob whose name He made Israel,
 
-<sup>35</sup> and Jehovah maketh with them a covenant, and chargeth them, saying, 'Ye do not fear other gods, nor bow yourselves to them, nor serve them, nor sacrifice to them,
+**³⁵** and Jehovah maketh with them a covenant, and chargeth them, saying, 'Ye do not fear other gods, nor bow yourselves to them, nor serve them, nor sacrifice to them,
 
-<sup>36</sup> but Jehovah who brought you up out of the land of Egypt with great power, and with a stretched-out arm, Him ye do fear, and to Him ye bow yourselves, and to Him ye do sacrifice;
+**³⁶** but Jehovah who brought you up out of the land of Egypt with great power, and with a stretched-out arm, Him ye do fear, and to Him ye bow yourselves, and to Him ye do sacrifice;
 
-<sup>37</sup> and the statutes, and the judgments, and the law, and the command, that He wrote for you, ye observe to do all the days, and ye do not fear other gods;
+**³⁷** and the statutes, and the judgments, and the law, and the command, that He wrote for you, ye observe to do all the days, and ye do not fear other gods;
 
-<sup>38</sup> and the covenant that I have made with you ye do not forget, and ye do not fear other gods;
+**³⁸** and the covenant that I have made with you ye do not forget, and ye do not fear other gods;
 
-<sup>39</sup> but Jehovah your God ye do fear, and He doth deliver you out of the hand of all your enemies;'
+**³⁹** but Jehovah your God ye do fear, and He doth deliver you out of the hand of all your enemies;'
 
-<sup>40</sup> and they have not hearkened, but according to their former custom they are doing,
+**⁴⁰** and they have not hearkened, but according to their former custom they are doing,
 
-<sup>41</sup> and these nations are fearing Jehovah, and their graven images they have served, both their sons and their sons' sons; as their fathers did, they are doing unto this day.
+**⁴¹** and these nations are fearing Jehovah, and their graven images they have served, both their sons and their sons' sons; as their fathers did, they are doing unto this day.

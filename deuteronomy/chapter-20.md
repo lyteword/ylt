@@ -1,41 +1,41 @@
 # Chapter 20
 
-<sup>1</sup> 'When thou goest out to battle against thine enemy, and hast seen horse and chariot — a people more numerous than thou — thou art not afraid of them, for Jehovah thy God [is] with thee, who is bringing thee up out of the land of Egypt;
+**¹** 'When thou goest out to battle against thine enemy, and hast seen horse and chariot — a people more numerous than thou — thou art not afraid of them, for Jehovah thy God [is] with thee, who is bringing thee up out of the land of Egypt;
 
-<sup>2</sup> and it hath been, in your drawing near unto the battle, that the priest hath come nigh, and spoken unto the people,
+**²** and it hath been, in your drawing near unto the battle, that the priest hath come nigh, and spoken unto the people,
 
-<sup>3</sup> and said unto them, Hear, Israel, ye are drawing near to-day to battle against your enemies, let not your hearts be tender, fear not, nor make haste, nor be terrified at their presence,
+**³** and said unto them, Hear, Israel, ye are drawing near to-day to battle against your enemies, let not your hearts be tender, fear not, nor make haste, nor be terrified at their presence,
 
-<sup>4</sup> for Jehovah your God [is] He who is going with you, to fight for you with your enemies — to save you.
+**⁴** for Jehovah your God [is] He who is going with you, to fight for you with your enemies — to save you.
 
-<sup>5</sup> 'And the authorities have spoken unto the people, saying, Who [is] the man that hath built a new house, and hath not dedicated it? — let him go and turn back to his house, lest he die in battle, and another man dedicate it.
+**⁵** 'And the authorities have spoken unto the people, saying, Who [is] the man that hath built a new house, and hath not dedicated it? — let him go and turn back to his house, lest he die in battle, and another man dedicate it.
 
-<sup>6</sup> 'And who [is] the man that hath planted a vineyard, and hath not made it common? — let him go and turn back to his house, lest he die in battle, and another man make it common.
+**⁶** 'And who [is] the man that hath planted a vineyard, and hath not made it common? — let him go and turn back to his house, lest he die in battle, and another man make it common.
 
-<sup>7</sup> 'And who [is] the man that hath betrothed a woman, and hath not taken her? — let him go and turn back to his house, lest he die in battle, and another man take her.
+**⁷** 'And who [is] the man that hath betrothed a woman, and hath not taken her? — let him go and turn back to his house, lest he die in battle, and another man take her.
 
-<sup>8</sup> 'And the authorities have added to speak unto the people, and said, Who [is] the man that is afraid and tender of heart? — let him go and turn back to his house, and the heart of his brethren doth not melt like his heart;
+**⁸** 'And the authorities have added to speak unto the people, and said, Who [is] the man that is afraid and tender of heart? — let him go and turn back to his house, and the heart of his brethren doth not melt like his heart;
 
-<sup>9</sup> and it hath come to pass as the authorities finish to speak unto the people, that they have appointed princes of the hosts at the head of the people.
+**⁹** and it hath come to pass as the authorities finish to speak unto the people, that they have appointed princes of the hosts at the head of the people.
 
-<sup>10</sup> 'When thou drawest near unto a city to fight against it, then thou hast called unto it for Peace,
+**¹⁰** 'When thou drawest near unto a city to fight against it, then thou hast called unto it for Peace,
 
-<sup>11</sup> and it hath been, if Peace it answer thee, and hath opened to thee, then it hath come to pass — all the people who are found in it are to thee for tributaries, and have served thee.
+**¹¹** and it hath been, if Peace it answer thee, and hath opened to thee, then it hath come to pass — all the people who are found in it are to thee for tributaries, and have served thee.
 
-<sup>12</sup> 'And if it doth not make peace with thee, and hath made with thee war, then thou hast laid siege against it,
+**¹²** 'And if it doth not make peace with thee, and hath made with thee war, then thou hast laid siege against it,
 
-<sup>13</sup> and Jehovah thy God hath given it into thy hand, and thou hast smitten every male of it by the mouth of the sword.
+**¹³** and Jehovah thy God hath given it into thy hand, and thou hast smitten every male of it by the mouth of the sword.
 
-<sup>14</sup> Only, the women, and the infants, and the cattle, and all that is in the city, all its spoil, thou dost seize for thyself, and thou hast eaten the spoil of thine enemies which Jehovah thy God hath given to thee.
+**¹⁴** Only, the women, and the infants, and the cattle, and all that is in the city, all its spoil, thou dost seize for thyself, and thou hast eaten the spoil of thine enemies which Jehovah thy God hath given to thee.
 
-<sup>15</sup> So thou dost do to all the cities which are very far off from thee, which are not of the cities of these nations.
+**¹⁵** So thou dost do to all the cities which are very far off from thee, which are not of the cities of these nations.
 
-<sup>16</sup> 'Only, of the cities of these peoples which Jehovah thy God is giving to thee [for] an inheritance, thou dost not keep alive any breathing;
+**¹⁶** 'Only, of the cities of these peoples which Jehovah thy God is giving to thee [for] an inheritance, thou dost not keep alive any breathing;
 
-<sup>17</sup> for thou dost certainly devote the Hittite, and the Amorite, the Canaanite, and the Perizzite, the Hivite, and the Jebusite, as Jehovah thy God hath commanded thee,
+**¹⁷** for thou dost certainly devote the Hittite, and the Amorite, the Canaanite, and the Perizzite, the Hivite, and the Jebusite, as Jehovah thy God hath commanded thee,
 
-<sup>18</sup> so that they teach you not to do according to all their abominations which they have done to their gods, and ye have sinned against Jehovah your God.
+**¹⁸** so that they teach you not to do according to all their abominations which they have done to their gods, and ye have sinned against Jehovah your God.
 
-<sup>19</sup> 'When thou layest siege unto a city many days, to fight against it, to capture it, thou dost not destroy its trees to force an axe against them, for of them thou dost eat, and them thou dost not cut down — for man's [is] the tree of the field — to go in at thy presence in the siege.
+**¹⁹** 'When thou layest siege unto a city many days, to fight against it, to capture it, thou dost not destroy its trees to force an axe against them, for of them thou dost eat, and them thou dost not cut down — for man's [is] the tree of the field — to go in at thy presence in the siege.
 
-<sup>20</sup> Only, the tree, which thou knowest that it [is] not a fruit-tree, it thou dost destroy, and hast cut down, and hast built a bulwark against the city which is making with thee war till thou hast subdued it.
+**²⁰** Only, the tree, which thou knowest that it [is] not a fruit-tree, it thou dost destroy, and hast cut down, and hast built a bulwark against the city which is making with thee war till thou hast subdued it.

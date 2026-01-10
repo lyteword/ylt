@@ -1,47 +1,47 @@
 # Chapter 14
 
-<sup>1</sup> And come in unto me do certain of the elders of Israel, and sit before me.
+**¹** And come in unto me do certain of the elders of Israel, and sit before me.
 
-<sup>2</sup> And there is a word of Jehovah unto me, saying,
+**²** And there is a word of Jehovah unto me, saying,
 
-<sup>3</sup> 'Son of man, these men have caused their idols to go up on their heart, and the stumbling-block of their iniquity they have put over-against their faces; am I inquired of at all by them?
+**³** 'Son of man, these men have caused their idols to go up on their heart, and the stumbling-block of their iniquity they have put over-against their faces; am I inquired of at all by them?
 
-<sup>4</sup> 'Therefore, speak with them, and thou hast said unto them: Thus said the Lord Jehovah: Every one of the house of Israel who causeth his idols to go up unto his heart, and the stumbling-block of his iniquity setteth over-against his face, and hath gone in unto the prophet — I Jehovah have given an answer to him for this, for the abundance of his idols,
+**⁴** 'Therefore, speak with them, and thou hast said unto them: Thus said the Lord Jehovah: Every one of the house of Israel who causeth his idols to go up unto his heart, and the stumbling-block of his iniquity setteth over-against his face, and hath gone in unto the prophet — I Jehovah have given an answer to him for this, for the abundance of his idols,
 
-<sup>5</sup> in order to catch the house of Israel by their heart, in that they have become estranged from off me by their idols — all of them.
+**⁵** in order to catch the house of Israel by their heart, in that they have become estranged from off me by their idols — all of them.
 
-<sup>6</sup> 'Therefore say unto the house of Israel: Thus said the Lord Jehovah: Turn ye back, yea, turn ye back from your idols, and from all your abominations turn back your faces,
+**⁶** 'Therefore say unto the house of Israel: Thus said the Lord Jehovah: Turn ye back, yea, turn ye back from your idols, and from all your abominations turn back your faces,
 
-<sup>7</sup> for every one of the house of Israel, and of the sojourners who doth sojourn in Israel, who is separated from after Me, and doth cause his idols to go up unto his heart, and the stumbling-block of his iniquity setteth over-against his face, and hath come in unto the prophet to inquire of him concerning Me, I, Jehovah, have answered him for Myself;
+**⁷** for every one of the house of Israel, and of the sojourners who doth sojourn in Israel, who is separated from after Me, and doth cause his idols to go up unto his heart, and the stumbling-block of his iniquity setteth over-against his face, and hath come in unto the prophet to inquire of him concerning Me, I, Jehovah, have answered him for Myself;
 
-<sup>8</sup> and I have set My face against that man, and made him for a sign, and for similes, and I have cut him off from the midst of My people, and ye have known that I [am] Jehovah.
+**⁸** and I have set My face against that man, and made him for a sign, and for similes, and I have cut him off from the midst of My people, and ye have known that I [am] Jehovah.
 
-<sup>9</sup> 'And the prophet, when he is enticed, and hath spoken a word — I, Jehovah, I have enticed that prophet, and have stretched out My hand against him, and have destroyed him from the midst of My people Israel.
+**⁹** 'And the prophet, when he is enticed, and hath spoken a word — I, Jehovah, I have enticed that prophet, and have stretched out My hand against him, and have destroyed him from the midst of My people Israel.
 
-<sup>10</sup> And they have borne their iniquity: as the iniquity of the inquirer, so is the iniquity of the prophet;
+**¹⁰** And they have borne their iniquity: as the iniquity of the inquirer, so is the iniquity of the prophet;
 
-<sup>11</sup> so that the house of Israel do not wander any more from after Me, nor are defiled any more with all their transgressions, and they have been to Me for a people, and I am to them for God — an affirmation of the Lord Jehovah.'
+**¹¹** so that the house of Israel do not wander any more from after Me, nor are defiled any more with all their transgressions, and they have been to Me for a people, and I am to them for God — an affirmation of the Lord Jehovah.'
 
-<sup>12</sup> And there is a word of Jehovah unto me, saying,
+**¹²** And there is a word of Jehovah unto me, saying,
 
-<sup>13</sup> 'Son of man, the land — when it sinneth against Me to commit a trespass, and I have stretched out My hand against it, and broken for it the staff of bread, and sent into it famine, and cut off from it man and beast —
+**¹³** 'Son of man, the land — when it sinneth against Me to commit a trespass, and I have stretched out My hand against it, and broken for it the staff of bread, and sent into it famine, and cut off from it man and beast —
 
-<sup>14</sup> and these three men have been in its midst, Noah, Daniel, and Job — they by their righteousness deliver their own soul — an affirmation of the Lord Jehovah.
+**¹⁴** and these three men have been in its midst, Noah, Daniel, and Job — they by their righteousness deliver their own soul — an affirmation of the Lord Jehovah.
 
-<sup>15</sup> 'If an evil beast I cause to pass through the land, and it hath bereaved, and it hath been a desolation, without any passing through because of the beast —
+**¹⁵** 'If an evil beast I cause to pass through the land, and it hath bereaved, and it hath been a desolation, without any passing through because of the beast —
 
-<sup>16</sup> these three men in its midst: I live — an affirmation of the Lord Jehovah — neither sons nor daughters do they deliver; they alone are delivered, and the land is a desolation.
+**¹⁶** these three men in its midst: I live — an affirmation of the Lord Jehovah — neither sons nor daughters do they deliver; they alone are delivered, and the land is a desolation.
 
-<sup>17</sup> 'Or — a sword I bring in against that land, and I have said: Sword, thou dost pass over through the land, and I have cut off from it man and beast —
+**¹⁷** 'Or — a sword I bring in against that land, and I have said: Sword, thou dost pass over through the land, and I have cut off from it man and beast —
 
-<sup>18</sup> and these three men in its midst: I live — an affirmation of the Lord Jehovah — they deliver not sons and daughters, for they alone are delivered.
+**¹⁸** and these three men in its midst: I live — an affirmation of the Lord Jehovah — they deliver not sons and daughters, for they alone are delivered.
 
-<sup>19</sup> 'Or — pestilence I send unto that land, and I have poured out My fury against it in blood, to cut off from it man and beast —
+**¹⁹** 'Or — pestilence I send unto that land, and I have poured out My fury against it in blood, to cut off from it man and beast —
 
-<sup>20</sup> and Noah, Daniel, and Job, in its midst: I live — an affirmation of the Lord Jehovah — neither son nor daughter do they deliver; they, by their righteousness, deliver their own soul.
+**²⁰** and Noah, Daniel, and Job, in its midst: I live — an affirmation of the Lord Jehovah — neither son nor daughter do they deliver; they, by their righteousness, deliver their own soul.
 
-<sup>21</sup> 'For thus said the Lord Jehovah: Although My four sore judgments — sword, and famine, and wild beast, and pestilence — I have sent unto Jerusalem, to cut off from it man and beast,
+**²¹** 'For thus said the Lord Jehovah: Although My four sore judgments — sword, and famine, and wild beast, and pestilence — I have sent unto Jerusalem, to cut off from it man and beast,
 
-<sup>22</sup> yet, lo, there hath been left in it an escape, who are brought forth, sons and daughters, lo, they are coming forth unto you, and ye have seen their way, and their doings, and have been comforted concerning the evil that I have brought in against Jerusalem, all that which I have brought in against it.
+**²²** yet, lo, there hath been left in it an escape, who are brought forth, sons and daughters, lo, they are coming forth unto you, and ye have seen their way, and their doings, and have been comforted concerning the evil that I have brought in against Jerusalem, all that which I have brought in against it.
 
-<sup>23</sup> And they have comforted you, for ye see their way and their doings, and ye have known that not for nought have I done all that which I have done in her — an affirmation of the Lord Jehovah.'
+**²³** And they have comforted you, for ye see their way and their doings, and ye have known that not for nought have I done all that which I have done in her — an affirmation of the Lord Jehovah.'

@@ -1,45 +1,45 @@
 # Chapter 8
 
-<sup>1</sup> And Jehovah saith unto me, 'Take to thee a great tablet, and write upon it with a graving tool of man, To haste spoil, enjoy prey.'
+**¹** And Jehovah saith unto me, 'Take to thee a great tablet, and write upon it with a graving tool of man, To haste spoil, enjoy prey.'
 
-<sup>2</sup> And I cause faithful witnesses to testify to me, Uriah the priest, and Zechariah son of Jeberechiah.
+**²** And I cause faithful witnesses to testify to me, Uriah the priest, and Zechariah son of Jeberechiah.
 
-<sup>3</sup> And I draw near unto the prophetess, and she conceiveth, and beareth a son; and Jehovah saith unto me, 'Call his name Maher-shalal-hash-baz,
+**³** And I draw near unto the prophetess, and she conceiveth, and beareth a son; and Jehovah saith unto me, 'Call his name Maher-shalal-hash-baz,
 
-<sup>4</sup> for before the youth doth know to cry, My father, and My mother, one taketh away the wealth of Damascus and the spoil of Samaria, before the king of Asshur.'
+**⁴** for before the youth doth know to cry, My father, and My mother, one taketh away the wealth of Damascus and the spoil of Samaria, before the king of Asshur.'
 
-<sup>5</sup> And Jehovah addeth to speak unto me again, saying:
+**⁵** And Jehovah addeth to speak unto me again, saying:
 
-<sup>6</sup> 'Because that this people hath refused The waters of Shiloah that go softly, And is rejoicing with Rezin and the son of Remaliah,
+**⁶** 'Because that this people hath refused The waters of Shiloah that go softly, And is rejoicing with Rezin and the son of Remaliah,
 
-<sup>7</sup> Therefore, lo, the Lord is bringing up on them, The waters of the river, the mighty and the great, (The king of Asshur, and all his glory,) And it hath gone up over all its streams, And hath gone on over all its banks.
+**⁷** Therefore, lo, the Lord is bringing up on them, The waters of the river, the mighty and the great, (The king of Asshur, and all his glory,) And it hath gone up over all its streams, And hath gone on over all its banks.
 
-<sup>8</sup> And it hath passed on into Judah, It hath overflown and passed over, Unto the neck it cometh, And the stretching out of its wings Hath been the fulness of the breadth of thy land, O Emmanu-El!
+**⁸** And it hath passed on into Judah, It hath overflown and passed over, Unto the neck it cometh, And the stretching out of its wings Hath been the fulness of the breadth of thy land, O Emmanu-El!
 
-<sup>9</sup> Be friends, O nations, and be broken, And give ear, all ye far off ones of earth, Gird yourselves, and be broken, Gird yourselves, and be broken.
+**⁹** Be friends, O nations, and be broken, And give ear, all ye far off ones of earth, Gird yourselves, and be broken, Gird yourselves, and be broken.
 
-<sup>10</sup> Take counsel, and it is broken, Speak a word, and it doth not stand, Because of Emmanu-El!'
+**¹⁰** Take counsel, and it is broken, Speak a word, and it doth not stand, Because of Emmanu-El!'
 
-<sup>11</sup> For thus hath Jehovah spoken unto me with strength of hand, and instructeth me against walking in the way of this people, saying,
+**¹¹** For thus hath Jehovah spoken unto me with strength of hand, and instructeth me against walking in the way of this people, saying,
 
-<sup>12</sup> 'Ye do not say, A confederacy, To all to whom this people saith, A confederacy, And its fear ye do not fear, Nor declare fearful.
+**¹²** 'Ye do not say, A confederacy, To all to whom this people saith, A confederacy, And its fear ye do not fear, Nor declare fearful.
 
-<sup>13</sup> Jehovah of Hosts — Him ye do sanctify, And He [is] your Fear, and He your Dread,
+**¹³** Jehovah of Hosts — Him ye do sanctify, And He [is] your Fear, and He your Dread,
 
-<sup>14</sup> And He hath been for a sanctuary, And for a stone of stumbling, and for a rock of falling, To the two houses of Israel, For a gin and for a snare to the inhabitants of Jerusalem.
+**¹⁴** And He hath been for a sanctuary, And for a stone of stumbling, and for a rock of falling, To the two houses of Israel, For a gin and for a snare to the inhabitants of Jerusalem.
 
-<sup>15</sup> And many among them have stumbled and fallen, And been broken, and snared, and captured.
+**¹⁵** And many among them have stumbled and fallen, And been broken, and snared, and captured.
 
-<sup>16</sup> Bind up the testimony, Seal the law among My disciples.
+**¹⁶** Bind up the testimony, Seal the law among My disciples.
 
-<sup>17</sup> And I have waited for Jehovah, Who is hiding His face from the house of Jacob, And I have looked for Him.
+**¹⁷** And I have waited for Jehovah, Who is hiding His face from the house of Jacob, And I have looked for Him.
 
-<sup>18</sup> Lo, I, and the children whom Jehovah hath given to me, [Are] for signs and for wonders in Israel, From Jehovah of Hosts, who is dwelling in Mount Zion.
+**¹⁸** Lo, I, and the children whom Jehovah hath given to me, [Are] for signs and for wonders in Israel, From Jehovah of Hosts, who is dwelling in Mount Zion.
 
-<sup>19</sup> And when they say unto you, 'Seek unto those having familiar spirits, And unto wizards, who chatter and mutter, Doth not a people seek unto its God? — For the living unto the dead!
+**¹⁹** And when they say unto you, 'Seek unto those having familiar spirits, And unto wizards, who chatter and mutter, Doth not a people seek unto its God? — For the living unto the dead!
 
-<sup>20</sup> To the law and to the testimony! If not, let them say after this manner, 'That there is no dawn to it.'
+**²⁰** To the law and to the testimony! If not, let them say after this manner, 'That there is no dawn to it.'
 
-<sup>21</sup> — And it hath passed over into it, hardened and hungry, And it hath come to pass, That it is hungry, and hath been wroth, And made light of its king, and of its God, And hath looked upwards.
+**²¹** — And it hath passed over into it, hardened and hungry, And it hath come to pass, That it is hungry, and hath been wroth, And made light of its king, and of its God, And hath looked upwards.
 
-<sup>22</sup> And unto the land it looketh attentively, And lo, adversity and darkness! — Dimness, distress, and thick darkness is driven away, But not the dimness for which she is in distress!
+**²²** And unto the land it looketh attentively, And lo, adversity and darkness! — Dimness, distress, and thick darkness is driven away, But not the dimness for which she is in distress!

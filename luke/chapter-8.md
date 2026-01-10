@@ -1,113 +1,113 @@
 # Chapter 8
 
-<sup>1</sup> And it came to pass thereafter, that he was going through every city and village, preaching and proclaiming good news of the reign of God, and the twelve [are] with him,
+**¹** And it came to pass thereafter, that he was going through every city and village, preaching and proclaiming good news of the reign of God, and the twelve [are] with him,
 
-<sup>2</sup> and certain women, who were healed of evil spirits and infirmities, Mary who is called Magdalene, from whom seven demons had gone forth,
+**²** and certain women, who were healed of evil spirits and infirmities, Mary who is called Magdalene, from whom seven demons had gone forth,
 
-<sup>3</sup> and Joanna wife of Chuza, steward of Herod, and Susanna, and many others, who were ministering to him from their substance.
+**³** and Joanna wife of Chuza, steward of Herod, and Susanna, and many others, who were ministering to him from their substance.
 
-<sup>4</sup> And a great multitude having gathered, and those who from city and city were coming unto him, he spake by a simile:
+**⁴** And a great multitude having gathered, and those who from city and city were coming unto him, he spake by a simile:
 
-<sup>5</sup> 'The sower went forth to sow his seed, and in his sowing some indeed fell beside the way, and it was trodden down, and the fowls of the heaven did devour it.
+**⁵** 'The sower went forth to sow his seed, and in his sowing some indeed fell beside the way, and it was trodden down, and the fowls of the heaven did devour it.
 
-<sup>6</sup> 'And other fell upon the rock, and having sprung up, it did wither, through not having moisture.
+**⁶** 'And other fell upon the rock, and having sprung up, it did wither, through not having moisture.
 
-<sup>7</sup> 'And other fell amidst the thorns, and the thorns having sprung up with it, did choke it.
+**⁷** 'And other fell amidst the thorns, and the thorns having sprung up with it, did choke it.
 
-<sup>8</sup> 'And other fell upon the good ground, and having sprung up, it made fruit an hundred fold.' These things saying, he was calling, 'He having ears to hear — let him hear.'
+**⁸** 'And other fell upon the good ground, and having sprung up, it made fruit an hundred fold.' These things saying, he was calling, 'He having ears to hear — let him hear.'
 
-<sup>9</sup> And his disciples were questioning him, saying, 'What may this simile be?'
+**⁹** And his disciples were questioning him, saying, 'What may this simile be?'
 
-<sup>10</sup> And he said, 'To you it hath been given to know the secrets of the reign of God, and to the rest in similes; that seeing they may not see, and hearing they may not understand.
+**¹⁰** And he said, 'To you it hath been given to know the secrets of the reign of God, and to the rest in similes; that seeing they may not see, and hearing they may not understand.
 
-<sup>11</sup> 'And this is the simile: The seed is the word of God,
+**¹¹** 'And this is the simile: The seed is the word of God,
 
-<sup>12</sup> and those beside the way are those hearing, then cometh the Devil, and taketh up the word from their heart, lest having believed, they may be saved.
+**¹²** and those beside the way are those hearing, then cometh the Devil, and taketh up the word from their heart, lest having believed, they may be saved.
 
-<sup>13</sup> 'And those upon the rock: They who, when they may hear, with joy do receive the word, and these have no root, who for a time believe, and in time of temptation fall away.
+**¹³** 'And those upon the rock: They who, when they may hear, with joy do receive the word, and these have no root, who for a time believe, and in time of temptation fall away.
 
-<sup>14</sup> 'And that which fell to the thorns: These are they who have heard, and going forth, through anxieties, and riches, and pleasures of life, are choked, and bear not to completion.
+**¹⁴** 'And that which fell to the thorns: These are they who have heard, and going forth, through anxieties, and riches, and pleasures of life, are choked, and bear not to completion.
 
-<sup>15</sup> 'And that in the good ground: These are they, who in an upright and good heart, having heard the word, do retain [it], and bear fruit in continuance.
+**¹⁵** 'And that in the good ground: These are they, who in an upright and good heart, having heard the word, do retain [it], and bear fruit in continuance.
 
-<sup>16</sup> 'And no one having lighted a lamp doth cover it with a vessel, or under a couch doth put [it]; but upon a lamp-stand he doth put [it], that those coming in may see the light,
+**¹⁶** 'And no one having lighted a lamp doth cover it with a vessel, or under a couch doth put [it]; but upon a lamp-stand he doth put [it], that those coming in may see the light,
 
-<sup>17</sup> for nothing is secret, that shall not become manifest, nor hid, that shall not be known, and become manifest.
+**¹⁷** for nothing is secret, that shall not become manifest, nor hid, that shall not be known, and become manifest.
 
-<sup>18</sup> 'See, therefore, how ye hear, for whoever may have, there shall be given to him, and whoever may not have, also what he seemeth to have, shall be taken from him.'
+**¹⁸** 'See, therefore, how ye hear, for whoever may have, there shall be given to him, and whoever may not have, also what he seemeth to have, shall be taken from him.'
 
-<sup>19</sup> And there came unto him his mother and brethren, and they were not able to get to him because of the multitude,
+**¹⁹** And there came unto him his mother and brethren, and they were not able to get to him because of the multitude,
 
-<sup>20</sup> and it was told him, saying, 'Thy mother and thy brethren do stand without, wishing to see thee;'
+**²⁰** and it was told him, saying, 'Thy mother and thy brethren do stand without, wishing to see thee;'
 
-<sup>21</sup> and he answering said unto them, 'My mother and my brethren! they are those who the word of God are hearing, and doing.'
+**²¹** and he answering said unto them, 'My mother and my brethren! they are those who the word of God are hearing, and doing.'
 
-<sup>22</sup> And it came to pass, on one of the days, that he himself went into a boat with his disciples, and he said unto them, 'We may go over to the other side of the lake;' and they set forth,
+**²²** And it came to pass, on one of the days, that he himself went into a boat with his disciples, and he said unto them, 'We may go over to the other side of the lake;' and they set forth,
 
-<sup>23</sup> and as they are sailing he fell deeply asleep, and there came down a storm of wind to the lake, and they were filling, and were in peril.
+**²³** and as they are sailing he fell deeply asleep, and there came down a storm of wind to the lake, and they were filling, and were in peril.
 
-<sup>24</sup> And having come near, they awoke him, saying, 'Master, master, we perish;' and he, having arisen, rebuked the wind and the raging of the water, and they ceased, and there came a calm,
+**²⁴** And having come near, they awoke him, saying, 'Master, master, we perish;' and he, having arisen, rebuked the wind and the raging of the water, and they ceased, and there came a calm,
 
-<sup>25</sup> and he said to them, 'Where is your faith?' and they being afraid did wonder, saying unto one another, 'Who, then, is this, that even the winds he doth command, and the water, and they obey him?'
+**²⁵** and he said to them, 'Where is your faith?' and they being afraid did wonder, saying unto one another, 'Who, then, is this, that even the winds he doth command, and the water, and they obey him?'
 
-<sup>26</sup> And they sailed down to the region of the Gadarenes, that is over-against Galilee,
+**²⁶** And they sailed down to the region of the Gadarenes, that is over-against Galilee,
 
-<sup>27</sup> and he having gone forth upon the land, there met him a certain man, out of the city, who had demons for a long time, and with a garment was not clothed, and in a house was not abiding, but in the tombs,
+**²⁷** and he having gone forth upon the land, there met him a certain man, out of the city, who had demons for a long time, and with a garment was not clothed, and in a house was not abiding, but in the tombs,
 
-<sup>28</sup> and having seen Jesus, and having cried out, he fell before him, and with a loud voice, said, 'What — to me and to thee, Jesus, Son of God Most High? I beseech thee, mayest thou not afflict me!'
+**²⁸** and having seen Jesus, and having cried out, he fell before him, and with a loud voice, said, 'What — to me and to thee, Jesus, Son of God Most High? I beseech thee, mayest thou not afflict me!'
 
-<sup>29</sup> For he commanded the unclean spirit to come forth from the man, for many times it had caught him, and he was being bound with chains and fetters — guarded, and breaking asunder the bonds he was driven by the demons to the deserts.
+**²⁹** For he commanded the unclean spirit to come forth from the man, for many times it had caught him, and he was being bound with chains and fetters — guarded, and breaking asunder the bonds he was driven by the demons to the deserts.
 
-<sup>30</sup> And Jesus questioned him, saying, 'What is thy name?' and he said, 'Legion,' (because many demons were entered into him,)
+**³⁰** And Jesus questioned him, saying, 'What is thy name?' and he said, 'Legion,' (because many demons were entered into him,)
 
-<sup>31</sup> and he was calling on him, that he may not command them to go away to the abyss,
+**³¹** and he was calling on him, that he may not command them to go away to the abyss,
 
-<sup>32</sup> and there was there a herd of many swine feeding in the mountain, and they were calling on him, that he might suffer them to enter into these, and he suffered them,
+**³²** and there was there a herd of many swine feeding in the mountain, and they were calling on him, that he might suffer them to enter into these, and he suffered them,
 
-<sup>33</sup> and the demons having gone forth from the man, did enter into the swine, and the herd rushed down the steep to the lake, and were choked.
+**³³** and the demons having gone forth from the man, did enter into the swine, and the herd rushed down the steep to the lake, and were choked.
 
-<sup>34</sup> And those feeding [them], having seen what was come to pass, fled, and having gone, told [it] to the city, and to the fields;
+**³⁴** And those feeding [them], having seen what was come to pass, fled, and having gone, told [it] to the city, and to the fields;
 
-<sup>35</sup> and they came forth to see what was come to pass, and they came unto Jesus, and found the man sitting, out of whom the demons had gone forth, clothed, and right-minded, at the feet of Jesus, and they were afraid;
+**³⁵** and they came forth to see what was come to pass, and they came unto Jesus, and found the man sitting, out of whom the demons had gone forth, clothed, and right-minded, at the feet of Jesus, and they were afraid;
 
-<sup>36</sup> and those also having seen [it], told them how the demoniac was saved.
+**³⁶** and those also having seen [it], told them how the demoniac was saved.
 
-<sup>37</sup> And the whole multitude of the region of the Gadarenes round about asked him to go away from them, because with great fear they were pressed, and he having entered into the boat, did turn back.
+**³⁷** And the whole multitude of the region of the Gadarenes round about asked him to go away from them, because with great fear they were pressed, and he having entered into the boat, did turn back.
 
-<sup>38</sup> And the man from whom the demons had gone forth was beseeching of him to be with him, and Jesus sent him away, saying,
+**³⁸** And the man from whom the demons had gone forth was beseeching of him to be with him, and Jesus sent him away, saying,
 
-<sup>39</sup> 'Turn back to thy house, and tell how great things God did to thee;' and he went away through all the city proclaiming how great things Jesus did to him.
+**³⁹** 'Turn back to thy house, and tell how great things God did to thee;' and he went away through all the city proclaiming how great things Jesus did to him.
 
-<sup>40</sup> And it came to pass, in the turning back of Jesus, the multitude received him, for they were all looking for him,
+**⁴⁰** And it came to pass, in the turning back of Jesus, the multitude received him, for they were all looking for him,
 
-<sup>41</sup> and lo, there came a man, whose name [is] Jairus, and he was a chief of the synagogue, and having fallen at the feet of Jesus, was calling on him to come to his house;
+**⁴¹** and lo, there came a man, whose name [is] Jairus, and he was a chief of the synagogue, and having fallen at the feet of Jesus, was calling on him to come to his house;
 
-<sup>42</sup> because he had an only daughter about twelve years [old], and she was dying. And in his going away, the multitudes were thronging him,
+**⁴²** because he had an only daughter about twelve years [old], and she was dying. And in his going away, the multitudes were thronging him,
 
-<sup>43</sup> and a woman, having an issue of blood for twelve years, who, having spent on physicians all her living, was not able to be healed by any,
+**⁴³** and a woman, having an issue of blood for twelve years, who, having spent on physicians all her living, was not able to be healed by any,
 
-<sup>44</sup> having come near behind, touched the fringe of his garment, and presently the issue of her blood stood.
+**⁴⁴** having come near behind, touched the fringe of his garment, and presently the issue of her blood stood.
 
-<sup>45</sup> And Jesus said, 'Who [is] it that touched me?' and all denying, Peter and those with him said, 'Master, the multitudes press thee, and throng [thee], and thou dost say, Who [is] it that touched me!'
+**⁴⁵** And Jesus said, 'Who [is] it that touched me?' and all denying, Peter and those with him said, 'Master, the multitudes press thee, and throng [thee], and thou dost say, Who [is] it that touched me!'
 
-<sup>46</sup> And Jesus said, 'Some one did touch me, for I knew power having gone forth from me.'
+**⁴⁶** And Jesus said, 'Some one did touch me, for I knew power having gone forth from me.'
 
-<sup>47</sup> And the woman, having seen that she was not hid, trembling, came, and having fallen before him, for what cause she touched him declared to him before all the people, and how she was healed presently;
+**⁴⁷** And the woman, having seen that she was not hid, trembling, came, and having fallen before him, for what cause she touched him declared to him before all the people, and how she was healed presently;
 
-<sup>48</sup> and he said to her, 'Take courage, daughter, thy faith hath saved thee, be going on to peace.'
+**⁴⁸** and he said to her, 'Take courage, daughter, thy faith hath saved thee, be going on to peace.'
 
-<sup>49</sup> While he is yet speaking, there doth come a certain one from the chief of the synagogue's [house], saying to him — 'Thy daughter hath died, harass not the Teacher;'
+**⁴⁹** While he is yet speaking, there doth come a certain one from the chief of the synagogue's [house], saying to him — 'Thy daughter hath died, harass not the Teacher;'
 
-<sup>50</sup> and Jesus having heard, answered him, saying, 'Be not afraid, only believe, and she shall be saved.'
+**⁵⁰** and Jesus having heard, answered him, saying, 'Be not afraid, only believe, and she shall be saved.'
 
-<sup>51</sup> And having come to the house, he suffered no one to go in, except Peter, and James, and John, and the father of the child, and the mother;
+**⁵¹** And having come to the house, he suffered no one to go in, except Peter, and James, and John, and the father of the child, and the mother;
 
-<sup>52</sup> and they were all weeping, and beating themselves for her, and he said, 'Weep not, she did not die, but doth sleep;
+**⁵²** and they were all weeping, and beating themselves for her, and he said, 'Weep not, she did not die, but doth sleep;
 
-<sup>53</sup> and they were deriding him, knowing that she did die;
+**⁵³** and they were deriding him, knowing that she did die;
 
-<sup>54</sup> and he having put all forth without, and having taken hold of her hand, called, saying, 'Child, arise;'
+**⁵⁴** and he having put all forth without, and having taken hold of her hand, called, saying, 'Child, arise;'
 
-<sup>55</sup> and her spirit came back, and she arose presently, and he directed that there be given to her to eat;
+**⁵⁵** and her spirit came back, and she arose presently, and he directed that there be given to her to eat;
 
-<sup>56</sup> and her parents were amazed, but he charged them to say to no one what was come to pass.
+**⁵⁶** and her parents were amazed, but he charged them to say to no one what was come to pass.

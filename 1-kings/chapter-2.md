@@ -1,93 +1,93 @@
 # Chapter 2
 
-<sup>1</sup> And draw near do the days of David to die, and he chargeth Solomon his son, saying,
+**¹** And draw near do the days of David to die, and he chargeth Solomon his son, saying,
 
-<sup>2</sup> 'I am going in the way of all the earth, and thou hast been strong, and become a man,
+**²** 'I am going in the way of all the earth, and thou hast been strong, and become a man,
 
-<sup>3</sup> and kept the charge of Jehovah thy God, to walk in His ways, to keep His statutes, His commands, and His judgments, and His testimonies, as it is written in the law of Moses, so that thou dost wisely all that thou dost, and whithersoever thou turnest,
+**³** and kept the charge of Jehovah thy God, to walk in His ways, to keep His statutes, His commands, and His judgments, and His testimonies, as it is written in the law of Moses, so that thou dost wisely all that thou dost, and whithersoever thou turnest,
 
-<sup>4</sup> so that Jehovah doth establish His word which He spake unto me, saying, If thy sons observe their way to walk before Me in truth, with all their heart, and with all their soul; saying, There is not cut off a man of thine from the throne of Israel.
+**⁴** so that Jehovah doth establish His word which He spake unto me, saying, If thy sons observe their way to walk before Me in truth, with all their heart, and with all their soul; saying, There is not cut off a man of thine from the throne of Israel.
 
-<sup>5</sup> 'And also, thou hast known that which he did to me — Joab son of Zeruiah — that which he did to two heads of the hosts of Israel, to Abner son of Ner, and to Amasa son of Jether — that he slayeth them, and maketh the blood of war in peace, and putteth the blood of war in his girdle, that [is] on his loins, and in his sandals that [are] on his feet;
+**⁵** 'And also, thou hast known that which he did to me — Joab son of Zeruiah — that which he did to two heads of the hosts of Israel, to Abner son of Ner, and to Amasa son of Jether — that he slayeth them, and maketh the blood of war in peace, and putteth the blood of war in his girdle, that [is] on his loins, and in his sandals that [are] on his feet;
 
-<sup>6</sup> and thou hast done according to thy wisdom, and dost not let his old age go down in peace to Sheol.
+**⁶** and thou hast done according to thy wisdom, and dost not let his old age go down in peace to Sheol.
 
-<sup>7</sup> 'And to the sons of Barzillai the Gileadite thou dost do kindness, and they have been among those eating at thy table, for so they drew near unto me in my fleeing from the face of Absalom thy brother.
+**⁷** 'And to the sons of Barzillai the Gileadite thou dost do kindness, and they have been among those eating at thy table, for so they drew near unto me in my fleeing from the face of Absalom thy brother.
 
-<sup>8</sup> 'And lo, with thee [is] Shimei son of Gera, the Benjamite of Bahurim, and he reviled me — a grievous reviling — in the day of my going to Mahanaim; and he hath come down to meet me at the Jordan, and I swear to him by Jehovah, saying, I do not put thee to death by the sword;
+**⁸** 'And lo, with thee [is] Shimei son of Gera, the Benjamite of Bahurim, and he reviled me — a grievous reviling — in the day of my going to Mahanaim; and he hath come down to meet me at the Jordan, and I swear to him by Jehovah, saying, I do not put thee to death by the sword;
 
-<sup>9</sup> and now, acquit him not, for a wise man thou [art], and thou hast known that which thou dost to him, and hast brought down his old age with blood to Sheol.'
+**⁹** and now, acquit him not, for a wise man thou [art], and thou hast known that which thou dost to him, and hast brought down his old age with blood to Sheol.'
 
-<sup>10</sup> And David lieth down with his fathers, and is buried in the city of David,
+**¹⁰** And David lieth down with his fathers, and is buried in the city of David,
 
-<sup>11</sup> and the days that David hath reigned over Israel [are] forty years, in Hebron he hath reigned seven years, and in Jerusalem he hath reigned thirty and three years.
+**¹¹** and the days that David hath reigned over Israel [are] forty years, in Hebron he hath reigned seven years, and in Jerusalem he hath reigned thirty and three years.
 
-<sup>12</sup> And Solomon hath sat on the throne of David his father, and his kingdom is established greatly,
+**¹²** And Solomon hath sat on the throne of David his father, and his kingdom is established greatly,
 
-<sup>13</sup> and Adonijah son of Haggith cometh in unto Bath-Sheba, mother of Solomon, and she saith, 'Is thy coming peace?' and he saith, 'Peace.'
+**¹³** and Adonijah son of Haggith cometh in unto Bath-Sheba, mother of Solomon, and she saith, 'Is thy coming peace?' and he saith, 'Peace.'
 
-<sup>14</sup> And he saith, 'I have a word unto thee,' and she saith, 'Speak.'
+**¹⁴** And he saith, 'I have a word unto thee,' and she saith, 'Speak.'
 
-<sup>15</sup> And he saith, 'Thou hast known that the kingdom was mine, and towards me set their faces had all Israel for reigning, and the kingdom is turned round about, and is my brother's, for from Jehovah it was his;
+**¹⁵** And he saith, 'Thou hast known that the kingdom was mine, and towards me set their faces had all Israel for reigning, and the kingdom is turned round about, and is my brother's, for from Jehovah it was his;
 
-<sup>16</sup> and now, one petition I am asking of thee — turn not back my face;' and she saith unto him, 'Speak.'
+**¹⁶** and now, one petition I am asking of thee — turn not back my face;' and she saith unto him, 'Speak.'
 
-<sup>17</sup> And he saith, 'Speak, I pray thee, to Solomon the king, for he doth not turn back thy face, and he doth give to me Abishag the Shunammite for a wife.'
+**¹⁷** And he saith, 'Speak, I pray thee, to Solomon the king, for he doth not turn back thy face, and he doth give to me Abishag the Shunammite for a wife.'
 
-<sup>18</sup> And Bath-Sheba saith, 'Good; I do speak for thee unto the king.'
+**¹⁸** And Bath-Sheba saith, 'Good; I do speak for thee unto the king.'
 
-<sup>19</sup> And Bath-Sheba cometh in unto king Solomon to speak to him for Adonijah, and the king riseth to meet her, and boweth himself to her, and sitteth on his throne, and placeth a throne for the mother of the king, and she sitteth at his right hand.
+**¹⁹** And Bath-Sheba cometh in unto king Solomon to speak to him for Adonijah, and the king riseth to meet her, and boweth himself to her, and sitteth on his throne, and placeth a throne for the mother of the king, and she sitteth at his right hand.
 
-<sup>20</sup> And she saith, 'One small petition I ask of thee, turn not back my face;' and the king saith to her, 'Ask, my mother, for I do not turn back thy face.'
+**²⁰** And she saith, 'One small petition I ask of thee, turn not back my face;' and the king saith to her, 'Ask, my mother, for I do not turn back thy face.'
 
-<sup>21</sup> And she saith, 'Let Abishag the Shunammite be given to Adonijah thy brother for a wife.'
+**²¹** And she saith, 'Let Abishag the Shunammite be given to Adonijah thy brother for a wife.'
 
-<sup>22</sup> And king Solomon answereth and saith to his mother, 'And why art thou asking Abishag the Shunammite for Adonijah? also ask for him the kingdom — for he [is] mine elder brother — even for him, and for Abiathar the priest, and for Joab son of Zeruiah.'
+**²²** And king Solomon answereth and saith to his mother, 'And why art thou asking Abishag the Shunammite for Adonijah? also ask for him the kingdom — for he [is] mine elder brother — even for him, and for Abiathar the priest, and for Joab son of Zeruiah.'
 
-<sup>23</sup> And king Solomon sweareth by Jehovah, saying, 'Thus doth God to me, and thus He doth add — surely against his soul hath Adonijah spoken this word;
+**²³** And king Solomon sweareth by Jehovah, saying, 'Thus doth God to me, and thus He doth add — surely against his soul hath Adonijah spoken this word;
 
-<sup>24</sup> and now, Jehovah liveth, who hath established me, and causeth me to sit on the throne of David my father, and who hath made for me an house as He spake — surely to-day is Adonijah put to death.'
+**²⁴** and now, Jehovah liveth, who hath established me, and causeth me to sit on the throne of David my father, and who hath made for me an house as He spake — surely to-day is Adonijah put to death.'
 
-<sup>25</sup> And king Solomon sendeth by the hand of Benaiah son of Jehoiada, and he falleth upon him, and he dieth.
+**²⁵** And king Solomon sendeth by the hand of Benaiah son of Jehoiada, and he falleth upon him, and he dieth.
 
-<sup>26</sup> And to Abiathar the priest said the king, 'To Anathoth go, unto thy fields; for a man of death thou [art], but in this day I do not put thee to death, because thou hast borne the ark of the Lord Jehovah before David my father, and because thou wast afflicted in all that my father was afflicted in.'
+**²⁶** And to Abiathar the priest said the king, 'To Anathoth go, unto thy fields; for a man of death thou [art], but in this day I do not put thee to death, because thou hast borne the ark of the Lord Jehovah before David my father, and because thou wast afflicted in all that my father was afflicted in.'
 
-<sup>27</sup> And Solomon casteth out Abiathar from being priest to Jehovah, to fulfil the word of Jehovah which He spake concerning the house of Eli in Shiloh.
+**²⁷** And Solomon casteth out Abiathar from being priest to Jehovah, to fulfil the word of Jehovah which He spake concerning the house of Eli in Shiloh.
 
-<sup>28</sup> And the report hath come unto Joab — for Joab hath turned aside after Adonijah, though after Absalom he did not turn aside — and Joab fleeth unto the tent of Jehovah, and layeth hold on the horns of the altar.
+**²⁸** And the report hath come unto Joab — for Joab hath turned aside after Adonijah, though after Absalom he did not turn aside — and Joab fleeth unto the tent of Jehovah, and layeth hold on the horns of the altar.
 
-<sup>29</sup> And it is declared to king Solomon that Joab hath fled unto the tent of Jehovah, and lo, near the altar; and Solomon sendeth Benaiah son of Jehoiada, saying, 'Go, fall upon him.'
+**²⁹** And it is declared to king Solomon that Joab hath fled unto the tent of Jehovah, and lo, near the altar; and Solomon sendeth Benaiah son of Jehoiada, saying, 'Go, fall upon him.'
 
-<sup>30</sup> And Benaiah cometh in unto the tent of Jehovah, and saith unto him, 'Thus said the king, Come out;' and he saith, 'Nay, but here I die.' And Benaiah bringeth back the king word, saying, 'Thus spake Joab, yea, thus he answered me.'
+**³⁰** And Benaiah cometh in unto the tent of Jehovah, and saith unto him, 'Thus said the king, Come out;' and he saith, 'Nay, but here I die.' And Benaiah bringeth back the king word, saying, 'Thus spake Joab, yea, thus he answered me.'
 
-<sup>31</sup> And the king saith to him, 'Do as he hath spoken, and fall upon him, and thou hast buried him, and turned aside the causeless blood which Joab shed, from off me, and from off the house of my father;
+**³¹** And the king saith to him, 'Do as he hath spoken, and fall upon him, and thou hast buried him, and turned aside the causeless blood which Joab shed, from off me, and from off the house of my father;
 
-<sup>32</sup> and Jehovah hath turned back his blood on his own head, who hath fallen on two men more righteous and better than he, and slayeth them with the sword, — and my father David knew not — Abner son of Ner, head of the host of Israel, and Amasa son of Jether, head of the host of Judah;
+**³²** and Jehovah hath turned back his blood on his own head, who hath fallen on two men more righteous and better than he, and slayeth them with the sword, — and my father David knew not — Abner son of Ner, head of the host of Israel, and Amasa son of Jether, head of the host of Judah;
 
-<sup>33</sup> yea, turned back hath their blood on the head of Joab, and on the head of his seed to the age; and for David, and for his seed, and for his house, and for his throne, there is peace unto the age, from Jehovah.'
+**³³** yea, turned back hath their blood on the head of Joab, and on the head of his seed to the age; and for David, and for his seed, and for his house, and for his throne, there is peace unto the age, from Jehovah.'
 
-<sup>34</sup> And Benaiah son of Jehoiada goeth up and falleth upon him, and putteth him to death, and he is buried in his own house in the wilderness,
+**³⁴** And Benaiah son of Jehoiada goeth up and falleth upon him, and putteth him to death, and he is buried in his own house in the wilderness,
 
-<sup>35</sup> and the king putteth Benaiah son of Jehoiada in his stead over the host, and Zadok the priest hath the king put in the stead of Abiathar.
+**³⁵** and the king putteth Benaiah son of Jehoiada in his stead over the host, and Zadok the priest hath the king put in the stead of Abiathar.
 
-<sup>36</sup> And the king sendeth and calleth for Shimei, and saith to him, 'Build for thee a house in Jerusalem, and thou hast dwelt there, and dost not go out thence any where;
+**³⁶** And the king sendeth and calleth for Shimei, and saith to him, 'Build for thee a house in Jerusalem, and thou hast dwelt there, and dost not go out thence any where;
 
-<sup>37</sup> and it hath been, in the day of thy going out, and thou hast passed over the brook Kidron, thou dost certainly know that thou dost surely die — thy blood is on thy head.'
+**³⁷** and it hath been, in the day of thy going out, and thou hast passed over the brook Kidron, thou dost certainly know that thou dost surely die — thy blood is on thy head.'
 
-<sup>38</sup> And Shimei saith to the king, 'The word [is] good; as my lord the king hath spoken so doth thy servant do;' and Shimei dwelleth in Jerusalem many days.
+**³⁸** And Shimei saith to the king, 'The word [is] good; as my lord the king hath spoken so doth thy servant do;' and Shimei dwelleth in Jerusalem many days.
 
-<sup>39</sup> And it cometh to pass, at the end of three years, that flee do two of the servants of Shimei unto Achish son of Maachah, king of Gath, and they declare to Shimei, saying, 'Lo, thy servants [are] in Gath;'
+**³⁹** And it cometh to pass, at the end of three years, that flee do two of the servants of Shimei unto Achish son of Maachah, king of Gath, and they declare to Shimei, saying, 'Lo, thy servants [are] in Gath;'
 
-<sup>40</sup> and Shimei riseth, and saddleth his ass, and goeth to Gath, unto Achish, to seek his servants, and Shimei goeth and bringeth his servants from Gath.
+**⁴⁰** and Shimei riseth, and saddleth his ass, and goeth to Gath, unto Achish, to seek his servants, and Shimei goeth and bringeth his servants from Gath.
 
-<sup>41</sup> And it is declared to Solomon that Shimei hath gone from Jerusalem to Gath, and doth return,
+**⁴¹** And it is declared to Solomon that Shimei hath gone from Jerusalem to Gath, and doth return,
 
-<sup>42</sup> and the king sendeth and calleth for Shimei, and saith unto him, 'Have I not caused thee to swear by Jehovah — and I testify against thee, saying, In the day of thy going out, and thou hast gone anywhere, thou dost certainly know that thou dost surely die; and thou sayest unto me, The word I have heard [is] good?
+**⁴²** and the king sendeth and calleth for Shimei, and saith unto him, 'Have I not caused thee to swear by Jehovah — and I testify against thee, saying, In the day of thy going out, and thou hast gone anywhere, thou dost certainly know that thou dost surely die; and thou sayest unto me, The word I have heard [is] good?
 
-<sup>43</sup> and wherefore hast thou not kept the oath of Jehovah, and the charge that I charged upon thee?'
+**⁴³** and wherefore hast thou not kept the oath of Jehovah, and the charge that I charged upon thee?'
 
-<sup>44</sup> And the king saith unto Shimei, 'Thou hast known all the evil that thy heart hath known, which thou didst to David my father, and Jehovah hath turned back thine evil on thy head,
+**⁴⁴** And the king saith unto Shimei, 'Thou hast known all the evil that thy heart hath known, which thou didst to David my father, and Jehovah hath turned back thine evil on thy head,
 
-<sup>45</sup> and king Solomon [is] blessed, and the throne of David is established before Jehovah unto the age.'
+**⁴⁵** and king Solomon [is] blessed, and the throne of David is established before Jehovah unto the age.'
 
-<sup>46</sup> And the king chargeth Benaiah son of Jehoiada, and he goeth out and falleth on him, and he dieth, and the kingdom is established in the hand of Solomon.
+**⁴⁶** And the king chargeth Benaiah son of Jehoiada, and he goeth out and falleth on him, and he dieth, and the kingdom is established in the hand of Solomon.

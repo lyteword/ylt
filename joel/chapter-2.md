@@ -1,65 +1,65 @@
 # Chapter 2
 
-<sup>1</sup> Blow ye a trumpet in Zion, And shout ye in My holy hill, Tremble do all inhabitants of the earth, For coming is the day of Jehovah, for [it is] near!
+**¹** Blow ye a trumpet in Zion, And shout ye in My holy hill, Tremble do all inhabitants of the earth, For coming is the day of Jehovah, for [it is] near!
 
-<sup>2</sup> A day of darkness and thick darkness, A day of cloud and thick darkness, As darkness spread on the mountains, A people numerous and mighty, Like it there hath not been from of old, And after it there is not again — till the years of generation and generation.
+**²** A day of darkness and thick darkness, A day of cloud and thick darkness, As darkness spread on the mountains, A people numerous and mighty, Like it there hath not been from of old, And after it there is not again — till the years of generation and generation.
 
-<sup>3</sup> Before it consumed hath fire, And after it burn doth a flame, As the garden of Eden [is] the land before it, And after it a wilderness — a desolation! And also an escape there hath not been to it,
+**³** Before it consumed hath fire, And after it burn doth a flame, As the garden of Eden [is] the land before it, And after it a wilderness — a desolation! And also an escape there hath not been to it,
 
-<sup>4</sup> As the appearance of horses [is] its appearance, And as horsemen, so they run.
+**⁴** As the appearance of horses [is] its appearance, And as horsemen, so they run.
 
-<sup>5</sup> As the noise of chariots, on the tops of the mountains they skip, As the noise of a flame of fire devouring stubble, As a mighty people set in array for battle.
+**⁵** As the noise of chariots, on the tops of the mountains they skip, As the noise of a flame of fire devouring stubble, As a mighty people set in array for battle.
 
-<sup>6</sup> From its face pained are peoples, All faces have gathered paleness.
+**⁶** From its face pained are peoples, All faces have gathered paleness.
 
-<sup>7</sup> As mighty ones they run, As men of war they go up a wall, And each in his own ways they do go, And they embarrass not their paths.
+**⁷** As mighty ones they run, As men of war they go up a wall, And each in his own ways they do go, And they embarrass not their paths.
 
-<sup>8</sup> And each his brother they press not, Each in his way they go on, If by the missile they fall, they are not cut off.
+**⁸** And each his brother they press not, Each in his way they go on, If by the missile they fall, they are not cut off.
 
-<sup>9</sup> In the city they run to and fro, On the wall they run, Into houses they go up by the windows, They go in as a thief.
+**⁹** In the city they run to and fro, On the wall they run, Into houses they go up by the windows, They go in as a thief.
 
-<sup>10</sup> At their face trembled hath the earth, Shaken have the heavens, Sun and moon have been black, And stars have gathered up their shining.
+**¹⁰** At their face trembled hath the earth, Shaken have the heavens, Sun and moon have been black, And stars have gathered up their shining.
 
-<sup>11</sup> And Jehovah hath given forth His voice before His force, For very great [is] His camp, For mighty [is] the doer of His word, For great [is] the day of Jehovah — very fearful, And who doth bear it?
+**¹¹** And Jehovah hath given forth His voice before His force, For very great [is] His camp, For mighty [is] the doer of His word, For great [is] the day of Jehovah — very fearful, And who doth bear it?
 
-<sup>12</sup> And also now — an affirmation of Jehovah, Turn ye back unto Me with all your heart, And with fasting, and with weeping, And with lamentation.
+**¹²** And also now — an affirmation of Jehovah, Turn ye back unto Me with all your heart, And with fasting, and with weeping, And with lamentation.
 
-<sup>13</sup> And rend your heart, and not your garments, And turn back unto Jehovah your God, For gracious and merciful [is] He, Slow to anger, and abundant in kindness, And He hath repented concerning the evil.
+**¹³** And rend your heart, and not your garments, And turn back unto Jehovah your God, For gracious and merciful [is] He, Slow to anger, and abundant in kindness, And He hath repented concerning the evil.
 
-<sup>14</sup> Who knoweth — He doth turn back, Yea — He hath repented, And He hath left behind Him a blessing, A present and libation of Jehovah your God?
+**¹⁴** Who knoweth — He doth turn back, Yea — He hath repented, And He hath left behind Him a blessing, A present and libation of Jehovah your God?
 
-<sup>15</sup> Blow ye a trumpet in Zion, Sanctify a fast — proclaim a restraint.
+**¹⁵** Blow ye a trumpet in Zion, Sanctify a fast — proclaim a restraint.
 
-<sup>16</sup> Gather the people, sanctify an assembly, Assemble the aged, Gather infants and sucklings of the breasts, Go out let a bridegroom from his inner chamber, And a bride out of her closet.
+**¹⁶** Gather the people, sanctify an assembly, Assemble the aged, Gather infants and sucklings of the breasts, Go out let a bridegroom from his inner chamber, And a bride out of her closet.
 
-<sup>17</sup> Between the porch and the altar weep let the priests, ministrants of Jehovah, And let them say: 'Have pity, O Jehovah, on Thy people, And give not Thy inheritance to reproach, To the ruling over them of nations, Why do they say among peoples, Where [is] their God?'
+**¹⁷** Between the porch and the altar weep let the priests, ministrants of Jehovah, And let them say: 'Have pity, O Jehovah, on Thy people, And give not Thy inheritance to reproach, To the ruling over them of nations, Why do they say among peoples, Where [is] their God?'
 
-<sup>18</sup> And let Jehovah be zealous for His land, And have pity on His people.
+**¹⁸** And let Jehovah be zealous for His land, And have pity on His people.
 
-<sup>19</sup> Let Jehovah answer and say to His people, 'Lo, I am sending to you the corn, And the new wine, and the oil, And ye have been satisfied with it, And I make you no more a reproach among nations,
+**¹⁹** Let Jehovah answer and say to His people, 'Lo, I am sending to you the corn, And the new wine, and the oil, And ye have been satisfied with it, And I make you no more a reproach among nations,
 
-<sup>20</sup> And the northern I put far off from you, And have driven him unto a land dry and desolate, With his face unto the eastern sea, And his rear unto the western sea, And come up hath his stink, And come up doth his stench, For he hath exerted himself to work.
+**²⁰** And the northern I put far off from you, And have driven him unto a land dry and desolate, With his face unto the eastern sea, And his rear unto the western sea, And come up hath his stink, And come up doth his stench, For he hath exerted himself to work.
 
-<sup>21</sup> Do not fear, O land! joy and rejoice, For Jehovah hath exerted Himself to work.
+**²¹** Do not fear, O land! joy and rejoice, For Jehovah hath exerted Himself to work.
 
-<sup>22</sup> Do not fear, O cattle of the field! For sprung forth have pastures of a wilderness, For the tree hath borne its fruit, Fig-tree and vine have given their strength!
+**²²** Do not fear, O cattle of the field! For sprung forth have pastures of a wilderness, For the tree hath borne its fruit, Fig-tree and vine have given their strength!
 
-<sup>23</sup> And ye sons of Zion, joy and rejoice, In Jehovah your God, For He hath given to you the Teacher for righteousness, And causeth to come down to you a shower, Sprinkling and gathered — in the beginning.
+**²³** And ye sons of Zion, joy and rejoice, In Jehovah your God, For He hath given to you the Teacher for righteousness, And causeth to come down to you a shower, Sprinkling and gathered — in the beginning.
 
-<sup>24</sup> And full have been the floors [with] pure corn, And overflown have the presses [with] new wine and oil.
+**²⁴** And full have been the floors [with] pure corn, And overflown have the presses [with] new wine and oil.
 
-<sup>25</sup> And I have recompensed to you the years That consume did the locust, the cankerworm, And the caterpillar, and the palmer-worm, My great force that I did send against you.
+**²⁵** And I have recompensed to you the years That consume did the locust, the cankerworm, And the caterpillar, and the palmer-worm, My great force that I did send against you.
 
-<sup>26</sup> And ye have eaten, eating and being satisfied, And have praised the name of Jehovah your God, Who hath dealt with you wonderfully, And not ashamed are My people to the age.
+**²⁶** And ye have eaten, eating and being satisfied, And have praised the name of Jehovah your God, Who hath dealt with you wonderfully, And not ashamed are My people to the age.
 
-<sup>27</sup> And ye have known that in the midst of Israel [am] I, And I [am] Jehovah your God, and there is none else, And not ashamed are My people to the age.
+**²⁷** And ye have known that in the midst of Israel [am] I, And I [am] Jehovah your God, and there is none else, And not ashamed are My people to the age.
 
-<sup>28</sup> And it hath come to pass afterwards, I do pour out My Spirit on all flesh, And prophesied have your sons and your daughters, Your old men do dream dreams, Your young men do see visions.
+**²⁸** And it hath come to pass afterwards, I do pour out My Spirit on all flesh, And prophesied have your sons and your daughters, Your old men do dream dreams, Your young men do see visions.
 
-<sup>29</sup> And also on the men-servants, and on the maid-servants, In those days I do pour out My Spirit.
+**²⁹** And also on the men-servants, and on the maid-servants, In those days I do pour out My Spirit.
 
-<sup>30</sup> And I have given wonders in the heavens, and in the earth, Blood and fire, and columns of smoke.
+**³⁰** And I have given wonders in the heavens, and in the earth, Blood and fire, and columns of smoke.
 
-<sup>31</sup> The sun is turned to darkness, and the moon to blood, Before the coming of the day of Jehovah, The great and the fearful.
+**³¹** The sun is turned to darkness, and the moon to blood, Before the coming of the day of Jehovah, The great and the fearful.
 
-<sup>32</sup> And it hath come to pass, Every one who calleth in the name of Jehovah is delivered, For in mount Zion and in Jerusalem there is an escape, As Jehovah hath said, And among the remnants whom Jehovah is calling!
+**³²** And it hath come to pass, Every one who calleth in the name of Jehovah is delivered, For in mount Zion and in Jerusalem there is an escape, As Jehovah hath said, And among the remnants whom Jehovah is calling!

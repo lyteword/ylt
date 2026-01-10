@@ -1,71 +1,71 @@
 # Chapter 18
 
-<sup>1</sup> At that hour came the disciples near to Jesus, saying, 'Who, now, is greater in the reign of the heavens?'
+**¹** At that hour came the disciples near to Jesus, saying, 'Who, now, is greater in the reign of the heavens?'
 
-<sup>2</sup> And Jesus having called near a child, did set him in the midst of them,
+**²** And Jesus having called near a child, did set him in the midst of them,
 
-<sup>3</sup> and said, 'Verily I say to you, if ye may not be turned and become as the children, ye may not enter into the reign of the heavens;
+**³** and said, 'Verily I say to you, if ye may not be turned and become as the children, ye may not enter into the reign of the heavens;
 
-<sup>4</sup> whoever then may humble himself as this child, he is the greater in the reign of the heavens.
+**⁴** whoever then may humble himself as this child, he is the greater in the reign of the heavens.
 
-<sup>5</sup> 'And he who may receive one such child in my name, doth receive me,
+**⁵** 'And he who may receive one such child in my name, doth receive me,
 
-<sup>6</sup> and whoever may cause to stumble one of those little ones who are believing in me, it is better for him that a weighty millstone may be hanged upon his neck, and he may be sunk in the depth of the sea.
+**⁶** and whoever may cause to stumble one of those little ones who are believing in me, it is better for him that a weighty millstone may be hanged upon his neck, and he may be sunk in the depth of the sea.
 
-<sup>7</sup> 'Woe to the world from the stumbling-blocks! for there is a necessity for the stumbling-blocks to come, but woe to that man through whom the stumbling-block doth come!
+**⁷** 'Woe to the world from the stumbling-blocks! for there is a necessity for the stumbling-blocks to come, but woe to that man through whom the stumbling-block doth come!
 
-<sup>8</sup> 'And if thy hand or thy foot doth cause thee to stumble, cut them off and cast from thee; it is good for thee to enter into the life lame or maimed, rather than having two hands or two feet, to be cast to the fire the age-during.
+**⁸** 'And if thy hand or thy foot doth cause thee to stumble, cut them off and cast from thee; it is good for thee to enter into the life lame or maimed, rather than having two hands or two feet, to be cast to the fire the age-during.
 
-<sup>9</sup> 'And if thine eye doth cause thee to stumble, pluck it out and cast from thee; it is good for thee one-eyed to enter into the life, rather than having two eyes to be cast to the gehenna of the fire.
+**⁹** 'And if thine eye doth cause thee to stumble, pluck it out and cast from thee; it is good for thee one-eyed to enter into the life, rather than having two eyes to be cast to the gehenna of the fire.
 
-<sup>10</sup> 'Beware! — ye may not despise one of these little ones, for I say to you, that their messengers in the heavens do always behold the face of my Father who is in the heavens,
+**¹⁰** 'Beware! — ye may not despise one of these little ones, for I say to you, that their messengers in the heavens do always behold the face of my Father who is in the heavens,
 
-<sup>11</sup> for the Son of Man did come to save the lost.
+**¹¹** for the Son of Man did come to save the lost.
 
-<sup>12</sup> 'What think ye? if a man may have an hundred sheep, and there may go astray one of them, doth he not — having left the ninety-nine, having gone on the mountains — seek that which is gone astray?
+**¹²** 'What think ye? if a man may have an hundred sheep, and there may go astray one of them, doth he not — having left the ninety-nine, having gone on the mountains — seek that which is gone astray?
 
-<sup>13</sup> and if it may come to pass that he doth find it, verily I say to you, that he doth rejoice over it more than over the ninety-nine that have not gone astray;
+**¹³** and if it may come to pass that he doth find it, verily I say to you, that he doth rejoice over it more than over the ninety-nine that have not gone astray;
 
-<sup>14</sup> so it is not will in presence of your Father who is in the heavens, that one of these little ones may perish.
+**¹⁴** so it is not will in presence of your Father who is in the heavens, that one of these little ones may perish.
 
-<sup>15</sup> 'And if thy brother may sin against thee, go and show him his fault between thee and him alone, if he may hear thee, thou didst gain thy brother;
+**¹⁵** 'And if thy brother may sin against thee, go and show him his fault between thee and him alone, if he may hear thee, thou didst gain thy brother;
 
-<sup>16</sup> and if he may not hear, take with thee yet one or two, that by the mouth of two witnesses or three every word may stand.
+**¹⁶** and if he may not hear, take with thee yet one or two, that by the mouth of two witnesses or three every word may stand.
 
-<sup>17</sup> 'And if he may not hear them, say [it] to the assembly, and if also the assembly he may not hear, let him be to thee as the heathen man and the tax-gatherer.
+**¹⁷** 'And if he may not hear them, say [it] to the assembly, and if also the assembly he may not hear, let him be to thee as the heathen man and the tax-gatherer.
 
-<sup>18</sup> 'Verily I say to you, Whatever things ye may bind upon the earth shall be having been bound in the heavens, and whatever things ye may loose on the earth shall be having been loosed in the heavens.
+**¹⁸** 'Verily I say to you, Whatever things ye may bind upon the earth shall be having been bound in the heavens, and whatever things ye may loose on the earth shall be having been loosed in the heavens.
 
-<sup>19</sup> 'Again, I say to you, that, if two of you may agree on the earth concerning anything, whatever they may ask — it shall be done to them from my Father who is in the heavens,
+**¹⁹** 'Again, I say to you, that, if two of you may agree on the earth concerning anything, whatever they may ask — it shall be done to them from my Father who is in the heavens,
 
-<sup>20</sup> for where there are two or three gathered together — to my name, there am I in the midst of them.'
+**²⁰** for where there are two or three gathered together — to my name, there am I in the midst of them.'
 
-<sup>21</sup> Then Peter having come near to him, said, 'Sir, how often shall my brother sin against me, and I forgive him — till seven times?'
+**²¹** Then Peter having come near to him, said, 'Sir, how often shall my brother sin against me, and I forgive him — till seven times?'
 
-<sup>22</sup> Jesus saith to him, 'I do not say to thee till seven times, but till seventy times seven.
+**²²** Jesus saith to him, 'I do not say to thee till seven times, but till seventy times seven.
 
-<sup>23</sup> 'Because of this was the reign of the heavens likened to a man, a king, who did will to take reckoning with his servants,
+**²³** 'Because of this was the reign of the heavens likened to a man, a king, who did will to take reckoning with his servants,
 
-<sup>24</sup> and he having begun to take account, there was brought near to him one debtor of a myriad of talents,
+**²⁴** and he having begun to take account, there was brought near to him one debtor of a myriad of talents,
 
-<sup>25</sup> and he having nothing to pay, his lord did command him to be sold, and his wife, and the children, and all, whatever he had, and payment to be made.
+**²⁵** and he having nothing to pay, his lord did command him to be sold, and his wife, and the children, and all, whatever he had, and payment to be made.
 
-<sup>26</sup> The servant then, having fallen down, was bowing to him, saying, Sir, have patience with me, and I will pay thee all;
+**²⁶** The servant then, having fallen down, was bowing to him, saying, Sir, have patience with me, and I will pay thee all;
 
-<sup>27</sup> and the lord of that servant having been moved with compassion did release him, and the debt he forgave him.
+**²⁷** and the lord of that servant having been moved with compassion did release him, and the debt he forgave him.
 
-<sup>28</sup> 'And, that servant having come forth, found one of his fellow-servants who was owing him an hundred denaries, and having laid hold, he took him by the throat, saying, Pay me that which thou owest.
+**²⁸** 'And, that servant having come forth, found one of his fellow-servants who was owing him an hundred denaries, and having laid hold, he took him by the throat, saying, Pay me that which thou owest.
 
-<sup>29</sup> His fellow-servant then, having fallen down at his feet, was calling on him, saying, Have patience with me, and I will pay thee all;
+**²⁹** His fellow-servant then, having fallen down at his feet, was calling on him, saying, Have patience with me, and I will pay thee all;
 
-<sup>30</sup> and he would not, but having gone away, he cast him into prison, till he might pay that which was owing.
+**³⁰** and he would not, but having gone away, he cast him into prison, till he might pay that which was owing.
 
-<sup>31</sup> 'And his fellow-servants having seen the things that were done, were grieved exceedingly, and having come, shewed fully to their lord all the things that were done;
+**³¹** 'And his fellow-servants having seen the things that were done, were grieved exceedingly, and having come, shewed fully to their lord all the things that were done;
 
-<sup>32</sup> then having called him, his lord saith to him, Evil servant! all that debt I did forgive thee, seeing thou didst call upon me,
+**³²** then having called him, his lord saith to him, Evil servant! all that debt I did forgive thee, seeing thou didst call upon me,
 
-<sup>33</sup> did it not behove also thee to have dealt kindly with thy fellow-servant, as I also dealt kindly with thee?
+**³³** did it not behove also thee to have dealt kindly with thy fellow-servant, as I also dealt kindly with thee?
 
-<sup>34</sup> 'And having been wroth, his lord delivered him to the inquisitors, till he might pay all that was owing to him;
+**³⁴** 'And having been wroth, his lord delivered him to the inquisitors, till he might pay all that was owing to him;
 
-<sup>35</sup> so also my heavenly Father will do to you, if ye may not forgive each one his brother from your hearts their trespasses.'
+**³⁵** so also my heavenly Father will do to you, if ye may not forgive each one his brother from your hearts their trespasses.'

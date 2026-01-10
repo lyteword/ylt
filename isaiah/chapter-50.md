@@ -1,23 +1,23 @@
 # Chapter 50
 
-<sup>1</sup> Thus said Jehovah: 'Where [is] this — the bill of your mother's divorce, Whom I sent away? Or to which of My creditors have I sold you? Lo, for your iniquities ye have been sold, And for your transgressions Hath your mother been sent away.
+**¹** Thus said Jehovah: 'Where [is] this — the bill of your mother's divorce, Whom I sent away? Or to which of My creditors have I sold you? Lo, for your iniquities ye have been sold, And for your transgressions Hath your mother been sent away.
 
-<sup>2</sup> Wherefore have I come, and there is no one? I called, and there is none answering, Hath My hand been at all short of redemption? And is there not in me power to deliver? Lo, by My rebuke I dry up a sea, I make rivers a wilderness, Their fish stinketh, for there is no water, And dieth with thirst.
+**²** Wherefore have I come, and there is no one? I called, and there is none answering, Hath My hand been at all short of redemption? And is there not in me power to deliver? Lo, by My rebuke I dry up a sea, I make rivers a wilderness, Their fish stinketh, for there is no water, And dieth with thirst.
 
-<sup>3</sup> I clothe the heavens [with] blackness, And sackcloth I make their covering.
+**³** I clothe the heavens [with] blackness, And sackcloth I make their covering.
 
-<sup>4</sup> The Lord Jehovah hath given to me The tongue of taught ones, To know to aid the weary [by] a word, He waketh morning by morning, He waketh for me an ear to hear as taught ones.
+**⁴** The Lord Jehovah hath given to me The tongue of taught ones, To know to aid the weary [by] a word, He waketh morning by morning, He waketh for me an ear to hear as taught ones.
 
-<sup>5</sup> The Lord Jehovah opened for me the ear, And I rebelled not — backward I moved not.
+**⁵** The Lord Jehovah opened for me the ear, And I rebelled not — backward I moved not.
 
-<sup>6</sup> My back I have given to those smiting, And my cheeks to those plucking out, My face I hid not from shame and spitting.
+**⁶** My back I have given to those smiting, And my cheeks to those plucking out, My face I hid not from shame and spitting.
 
-<sup>7</sup> And the Lord Jehovah giveth help to me, Therefore I have not been ashamed, Therefore I have set my face as a flint, And I know that I am not ashamed.
+**⁷** And the Lord Jehovah giveth help to me, Therefore I have not been ashamed, Therefore I have set my face as a flint, And I know that I am not ashamed.
 
-<sup>8</sup> Near [is] He who is justifying me, Who doth contend with me? We stand together, who [is] mine opponent? Let him come nigh unto me.
+**⁸** Near [is] He who is justifying me, Who doth contend with me? We stand together, who [is] mine opponent? Let him come nigh unto me.
 
-<sup>9</sup> Lo, the Lord Jehovah giveth help to me, Who [is] he that declareth me wicked? Lo, all of them as a garment wear out, A moth doth eat them.
+**⁹** Lo, the Lord Jehovah giveth help to me, Who [is] he that declareth me wicked? Lo, all of them as a garment wear out, A moth doth eat them.
 
-<sup>10</sup> Who [is] among you, fearing Jehovah, Hearkening to the voice of His servant, That hath walked in dark places, And there is no brightness for him? Let him trust in the name of Jehovah, And lean upon his God.
+**¹⁰** Who [is] among you, fearing Jehovah, Hearkening to the voice of His servant, That hath walked in dark places, And there is no brightness for him? Let him trust in the name of Jehovah, And lean upon his God.
 
-<sup>11</sup> Lo, all ye kindling a fire, girding on sparks, Walk ye in the light of your fire, And in the sparks ye have caused to burn, From my hand hath this been to you, In grief ye lie down!
+**¹¹** Lo, all ye kindling a fire, girding on sparks, Walk ye in the light of your fire, And in the sparks ye have caused to burn, From my hand hath this been to you, In grief ye lie down!

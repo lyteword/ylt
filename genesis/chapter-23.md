@@ -1,41 +1,41 @@
 # Chapter 23
 
-<sup>1</sup> And the life of Sarah is a hundred and twenty and seven years — years of the life of Sarah;
+**¹** And the life of Sarah is a hundred and twenty and seven years — years of the life of Sarah;
 
-<sup>2</sup> and Sarah dieth in Kirjath-Arba, which [is] Hebron, in the land of Caanan, and Abraham goeth in to mourn for Sarah, and to bewail her.
+**²** and Sarah dieth in Kirjath-Arba, which [is] Hebron, in the land of Caanan, and Abraham goeth in to mourn for Sarah, and to bewail her.
 
-<sup>3</sup> And Abraham riseth up from the presence of his dead, and speaketh unto the sons of Heth, saying,
+**³** And Abraham riseth up from the presence of his dead, and speaketh unto the sons of Heth, saying,
 
-<sup>4</sup> 'A sojourner and a settler I [am] with you; give to me a possession of a burying-place with you, and I bury my dead from before me.'
+**⁴** 'A sojourner and a settler I [am] with you; give to me a possession of a burying-place with you, and I bury my dead from before me.'
 
-<sup>5</sup> And the sons of Heth answer Abraham, saying to him,
+**⁵** And the sons of Heth answer Abraham, saying to him,
 
-<sup>6</sup> 'Hear us, my lord; a prince of God [art] thou in our midst; in the choice of our burying-places bury thy dead: none of us his burying-place doth withhold from thee, from burying thy dead.'
+**⁶** 'Hear us, my lord; a prince of God [art] thou in our midst; in the choice of our burying-places bury thy dead: none of us his burying-place doth withhold from thee, from burying thy dead.'
 
-<sup>7</sup> And Abraham riseth and boweth himself to the people of the land, to the sons of Heth,
+**⁷** And Abraham riseth and boweth himself to the people of the land, to the sons of Heth,
 
-<sup>8</sup> and he speaketh with them, saying, 'If it is your desire to bury my dead from before me, hear me, and meet for me with Ephron, son of Zoar;
+**⁸** and he speaketh with them, saying, 'If it is your desire to bury my dead from before me, hear me, and meet for me with Ephron, son of Zoar;
 
-<sup>9</sup> and he giveth to me the cave of Machpelah, which he hath, which [is] in the extremity of his field; for full money doth he give it to me, in your midst, for a possession of a burying-place.'
+**⁹** and he giveth to me the cave of Machpelah, which he hath, which [is] in the extremity of his field; for full money doth he give it to me, in your midst, for a possession of a burying-place.'
 
-<sup>10</sup> And Ephron is sitting in the midst of the sons of Heth, and Ephron the Hittite answereth Abraham in the ears of the sons of Heth, of all those entering the gate of his city, saying,
+**¹⁰** And Ephron is sitting in the midst of the sons of Heth, and Ephron the Hittite answereth Abraham in the ears of the sons of Heth, of all those entering the gate of his city, saying,
 
-<sup>11</sup> 'Nay, my lord, hear me: the field I have given to thee, and the cave that [is] in it, to thee I have given it; before the eyes of the sons of my people I have given it to thee — bury thy dead.'
+**¹¹** 'Nay, my lord, hear me: the field I have given to thee, and the cave that [is] in it, to thee I have given it; before the eyes of the sons of my people I have given it to thee — bury thy dead.'
 
-<sup>12</sup> And Abraham boweth himself before the people of the land,
+**¹²** And Abraham boweth himself before the people of the land,
 
-<sup>13</sup> and speaketh unto Ephron in the ears of the people of the land, saying, 'Only — if thou wouldest hear me — I have given the money of the field — accept from me, and I bury my dead there.'
+**¹³** and speaketh unto Ephron in the ears of the people of the land, saying, 'Only — if thou wouldest hear me — I have given the money of the field — accept from me, and I bury my dead there.'
 
-<sup>14</sup> And Ephron answereth Abraham, saying to him,
+**¹⁴** And Ephron answereth Abraham, saying to him,
 
-<sup>15</sup> 'My lord, hear me: the land — four hundred shekels of silver; between me and thee, what [is] it? — thy dead bury.'
+**¹⁵** 'My lord, hear me: the land — four hundred shekels of silver; between me and thee, what [is] it? — thy dead bury.'
 
-<sup>16</sup> And Abraham hearkeneth unto Ephron, and Abraham weigheth to Ephron the silver which he hath spoken of in the ears of the sons of Heth, four hundred silver shekels, passing with the merchant.
+**¹⁶** And Abraham hearkeneth unto Ephron, and Abraham weigheth to Ephron the silver which he hath spoken of in the ears of the sons of Heth, four hundred silver shekels, passing with the merchant.
 
-<sup>17</sup> And established are the field of Ephron, which [is] in Machpelah, which [is] before Mamre, the field and the cave which [is] in it, and all the trees which [are] in the field, which [are] in all its border round about,
+**¹⁷** And established are the field of Ephron, which [is] in Machpelah, which [is] before Mamre, the field and the cave which [is] in it, and all the trees which [are] in the field, which [are] in all its border round about,
 
-<sup>18</sup> to Abraham by purchase, before the eyes of the sons of Heth, among all entering the gate of his city.
+**¹⁸** to Abraham by purchase, before the eyes of the sons of Heth, among all entering the gate of his city.
 
-<sup>19</sup> And after this hath Abraham buried Sarah his wife at the cave of the field of Machpelah before Mamre (which [is] Hebron), in the land of Canaan;
+**¹⁹** And after this hath Abraham buried Sarah his wife at the cave of the field of Machpelah before Mamre (which [is] Hebron), in the land of Canaan;
 
-<sup>20</sup> and established are the field, and the cave which [is] in it, to Abraham for a possession of a burying-place, from the sons of Heth.
+**²⁰** and established are the field, and the cave which [is] in it, to Abraham for a possession of a burying-place, from the sons of Heth.

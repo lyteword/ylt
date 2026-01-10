@@ -1,27 +1,27 @@
 # Chapter 46
 
-<sup>1</sup> Bowed down hath Bel, stooping is Nebo, Their idols have been for the beast and for cattle, Your burdens are loaded, a burden to the weary.
+**¹** Bowed down hath Bel, stooping is Nebo, Their idols have been for the beast and for cattle, Your burdens are loaded, a burden to the weary.
 
-<sup>2</sup> They have stooped, they have bowed together, They have not been able to deliver the burden, And themselves into captivity have gone.
+**²** They have stooped, they have bowed together, They have not been able to deliver the burden, And themselves into captivity have gone.
 
-<sup>3</sup> Hearken unto Me, O house of Jacob, And all the remnant of Israel, Who are borne from the belly, Who are carried from the womb,
+**³** Hearken unto Me, O house of Jacob, And all the remnant of Israel, Who are borne from the belly, Who are carried from the womb,
 
-<sup>4</sup> Even to old age I [am] He, and to grey hairs I carry, I made, and I bear, yea, I carry and deliver.
+**⁴** Even to old age I [am] He, and to grey hairs I carry, I made, and I bear, yea, I carry and deliver.
 
-<sup>5</sup> To whom do ye liken Me, and make equal? And compare Me, that we may be like?
+**⁵** To whom do ye liken Me, and make equal? And compare Me, that we may be like?
 
-<sup>6</sup> — They are pouring out gold from a bag, And silver on the beam they weigh, They hire a refiner, and he maketh it a god, They fall down, yea, they bow themselves.
+**⁶** — They are pouring out gold from a bag, And silver on the beam they weigh, They hire a refiner, and he maketh it a god, They fall down, yea, they bow themselves.
 
-<sup>7</sup> They lift him up on the shoulder, They carry him, and cause him to rest in his place, And he standeth, from his place he moveth not, Yea, one crieth unto him, and he answereth not, From his adversity he saveth him not.
+**⁷** They lift him up on the shoulder, They carry him, and cause him to rest in his place, And he standeth, from his place he moveth not, Yea, one crieth unto him, and he answereth not, From his adversity he saveth him not.
 
-<sup>8</sup> Remember this, and shew yourselves men, Turn [it] back, O transgressors, to the heart.
+**⁸** Remember this, and shew yourselves men, Turn [it] back, O transgressors, to the heart.
 
-<sup>9</sup> Remember former things of old, For I [am] Mighty, and there is none else, God — and there is none like Me.
+**⁹** Remember former things of old, For I [am] Mighty, and there is none else, God — and there is none like Me.
 
-<sup>10</sup> Declaring from the beginning the latter end, And from of old that which hath not been done, Saying, 'My counsel doth stand, And all My delight I do.'
+**¹⁰** Declaring from the beginning the latter end, And from of old that which hath not been done, Saying, 'My counsel doth stand, And all My delight I do.'
 
-<sup>11</sup> Calling from the east a ravenous bird, From a far land the man of My counsel, Yea, I have spoken, yea, I bring it in, I have formed [it], yea, I do it.
+**¹¹** Calling from the east a ravenous bird, From a far land the man of My counsel, Yea, I have spoken, yea, I bring it in, I have formed [it], yea, I do it.
 
-<sup>12</sup> Hearken unto Me, ye mighty in heart, Who are far from righteousness.
+**¹²** Hearken unto Me, ye mighty in heart, Who are far from righteousness.
 
-<sup>13</sup> I have brought near My righteousness, It is not far off, And My salvation — it doth not tarry, And I have given in Zion salvation, To Israel My glory!
+**¹³** I have brought near My righteousness, It is not far off, And My salvation — it doth not tarry, And I have given in Zion salvation, To Israel My glory!

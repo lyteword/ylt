@@ -1,55 +1,55 @@
 # Chapter 11
 
-<sup>1</sup> And it cometh to pass, at the revolution of the year — at the time of the going out of the messengers — that David sendeth Joab, and his servants with him, and all Israel, and they destroy the Bene-Ammon, and lay siege against Rabbah. And David is dwelling in Jerusalem,
+**¹** And it cometh to pass, at the revolution of the year — at the time of the going out of the messengers — that David sendeth Joab, and his servants with him, and all Israel, and they destroy the Bene-Ammon, and lay siege against Rabbah. And David is dwelling in Jerusalem,
 
-<sup>2</sup> and it cometh to pass, at evening-time, that David riseth from off his couch, and walketh up and down on the roof of the king's house, and seeth from the roof a woman bathing, and the woman [is] of very good appearance,
+**²** and it cometh to pass, at evening-time, that David riseth from off his couch, and walketh up and down on the roof of the king's house, and seeth from the roof a woman bathing, and the woman [is] of very good appearance,
 
-<sup>3</sup> and David sendeth and inquireth about the woman, and saith, 'Is not this Bath-Sheba, daughter of Eliam, wife of Uriah the Hittite?'
+**³** and David sendeth and inquireth about the woman, and saith, 'Is not this Bath-Sheba, daughter of Eliam, wife of Uriah the Hittite?'
 
-<sup>4</sup> And David sendeth messengers, and taketh her, and she cometh unto him, and he lieth with her — and she is purifying herself from her uncleanness — and she turneth back unto her house;
+**⁴** And David sendeth messengers, and taketh her, and she cometh unto him, and he lieth with her — and she is purifying herself from her uncleanness — and she turneth back unto her house;
 
-<sup>5</sup> and the woman conceiveth, and sendeth, and declareth to David, and saith, 'I [am] conceiving.'
+**⁵** and the woman conceiveth, and sendeth, and declareth to David, and saith, 'I [am] conceiving.'
 
-<sup>6</sup> And David sendeth unto Joab, 'Send unto me Uriah the Hittite,' and Joab sendeth Uriah unto David;
+**⁶** And David sendeth unto Joab, 'Send unto me Uriah the Hittite,' and Joab sendeth Uriah unto David;
 
-<sup>7</sup> and Uriah cometh unto him, and David asketh of the prosperity of Joab, and of the prosperity of the people, and of the prosperity of the war.
+**⁷** and Uriah cometh unto him, and David asketh of the prosperity of Joab, and of the prosperity of the people, and of the prosperity of the war.
 
-<sup>8</sup> And David saith to Uriah, 'Go down to thy house, and wash thy feet;' and Uriah goeth out of the king's house, and there goeth out after him a gift from the king,
+**⁸** And David saith to Uriah, 'Go down to thy house, and wash thy feet;' and Uriah goeth out of the king's house, and there goeth out after him a gift from the king,
 
-<sup>9</sup> and Uriah lieth down at the opening of the king's house, with all the servants of his lord, and hath not gone down unto his house.
+**⁹** and Uriah lieth down at the opening of the king's house, with all the servants of his lord, and hath not gone down unto his house.
 
-<sup>10</sup> And they declare to David, saying, 'Uriah hath not gone down unto his house;' and David saith unto Uriah, 'Hast thou not come from a journey? wherefore hast thou not gone down unto thy house?'
+**¹⁰** And they declare to David, saying, 'Uriah hath not gone down unto his house;' and David saith unto Uriah, 'Hast thou not come from a journey? wherefore hast thou not gone down unto thy house?'
 
-<sup>11</sup> And Uriah saith unto David, 'The ark, and Israel, and Judah, are abiding in booths, and my lord Joab, and the servants of my lord, on the face of the field are encamping; and I — I go in unto my house to eat and to drink, and to lie with my wife! — thy life, and the life of thy soul — if I do this thing.'
+**¹¹** And Uriah saith unto David, 'The ark, and Israel, and Judah, are abiding in booths, and my lord Joab, and the servants of my lord, on the face of the field are encamping; and I — I go in unto my house to eat and to drink, and to lie with my wife! — thy life, and the life of thy soul — if I do this thing.'
 
-<sup>12</sup> And David saith unto Uriah, 'Abide in this [place] also to-day, and to-morrow I send thee away;' and Uriah abideth in Jerusalem, on that day, and on the morrow,
+**¹²** And David saith unto Uriah, 'Abide in this [place] also to-day, and to-morrow I send thee away;' and Uriah abideth in Jerusalem, on that day, and on the morrow,
 
-<sup>13</sup> and David calleth for him, and he eateth before him, and drinketh, and he causeth him to drink, and he goeth out in the evening to lie on his couch with the servants of his lord, and unto his house he hath not gone down.
+**¹³** and David calleth for him, and he eateth before him, and drinketh, and he causeth him to drink, and he goeth out in the evening to lie on his couch with the servants of his lord, and unto his house he hath not gone down.
 
-<sup>14</sup> And it cometh to pass in the morning, that David writeth a letter unto Joab, and sendeth by the hand of Uriah;
+**¹⁴** And it cometh to pass in the morning, that David writeth a letter unto Joab, and sendeth by the hand of Uriah;
 
-<sup>15</sup> and he writeth in the letter, saying, 'Place ye Uriah over-against the front of the severest battle, and ye have turned back from after him, and he hath been smitten, and hath died.'
+**¹⁵** and he writeth in the letter, saying, 'Place ye Uriah over-against the front of the severest battle, and ye have turned back from after him, and he hath been smitten, and hath died.'
 
-<sup>16</sup> And it cometh to pass in Joab's watching of the city, that he appointeth Uriah unto the place where he knew that valiant men [are];
+**¹⁶** And it cometh to pass in Joab's watching of the city, that he appointeth Uriah unto the place where he knew that valiant men [are];
 
-<sup>17</sup> and the men of the city go out and fight with Joab, and there fall [some] of the people, of the servants of David; and there dieth also Uriah the Hittite.
+**¹⁷** and the men of the city go out and fight with Joab, and there fall [some] of the people, of the servants of David; and there dieth also Uriah the Hittite.
 
-<sup>18</sup> And Joab sendeth and declareth to David all the matters of the war,
+**¹⁸** And Joab sendeth and declareth to David all the matters of the war,
 
-<sup>19</sup> and commandeth the messenger, saying, 'At thy finishing all the matters of the war to speak unto the king,
+**¹⁹** and commandeth the messenger, saying, 'At thy finishing all the matters of the war to speak unto the king,
 
-<sup>20</sup> then, it hath been, if the king's fury ascend, and he hath said to thee, Wherefore did ye draw nigh unto the city to fight? did ye not know that they shoot from off the wall?
+**²⁰** then, it hath been, if the king's fury ascend, and he hath said to thee, Wherefore did ye draw nigh unto the city to fight? did ye not know that they shoot from off the wall?
 
-<sup>21</sup> Who smote Abimelech son of Jerubbesheth? did not a woman cast on him a piece of a rider from the wall, and he dieth in Thebez? why drew ye nigh unto the wall? that thou hast said, Also thy servant Uriah the Hittite is dead.'
+**²¹** Who smote Abimelech son of Jerubbesheth? did not a woman cast on him a piece of a rider from the wall, and he dieth in Thebez? why drew ye nigh unto the wall? that thou hast said, Also thy servant Uriah the Hittite is dead.'
 
-<sup>22</sup> And the messenger goeth, and cometh in, and declareth to David all that with which Joab sent him,
+**²²** And the messenger goeth, and cometh in, and declareth to David all that with which Joab sent him,
 
-<sup>23</sup> and the messenger saith unto David, 'Surely the men have been mighty against us, and come out unto us into the field, and we are upon them unto the opening of the gate,
+**²³** and the messenger saith unto David, 'Surely the men have been mighty against us, and come out unto us into the field, and we are upon them unto the opening of the gate,
 
-<sup>24</sup> and those shooting shoot at thy servants from off the wall, and [some] of the servants of the king are dead, and also, thy servant Uriah the Hittite is dead.
+**²⁴** and those shooting shoot at thy servants from off the wall, and [some] of the servants of the king are dead, and also, thy servant Uriah the Hittite is dead.
 
-<sup>25</sup> And David saith unto the messenger, 'Thus dost thou say unto Joab, Let not this thing be evil in thine eyes; for thus and thus doth the sword devour; strengthen thy warfare against the city, and throw it down — and strengthen thou him.'
+**²⁵** And David saith unto the messenger, 'Thus dost thou say unto Joab, Let not this thing be evil in thine eyes; for thus and thus doth the sword devour; strengthen thy warfare against the city, and throw it down — and strengthen thou him.'
 
-<sup>26</sup> And the wife of Uriah heareth that Uriah her husband [is] dead, and lamenteth for her lord;
+**²⁶** And the wife of Uriah heareth that Uriah her husband [is] dead, and lamenteth for her lord;
 
-<sup>27</sup> and the mourning passeth by, and David sendeth and gathereth her unto his house, and she is to him for a wife, and beareth to him a son; and the thing which David hath done is evil in the eyes of Jehovah.
+**²⁷** and the mourning passeth by, and David sendeth and gathereth her unto his house, and she is to him for a wife, and beareth to him a son; and the thing which David hath done is evil in the eyes of Jehovah.

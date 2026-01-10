@@ -1,45 +1,45 @@
 # Chapter 1
 
-<sup>1</sup> How hath she sat alone, The city abounding with people! She hath been as a widow, The mighty among nations! Princes among provinces, She hath become tributary!
+**¹** How hath she sat alone, The city abounding with people! She hath been as a widow, The mighty among nations! Princes among provinces, She hath become tributary!
 
-<sup>2</sup> She weepeth sore in the night, And her tear [is] on her cheeks, There is no comforter for her out of all her lovers, All her friends dealt treacherously by her, They have been to her for enemies.
+**²** She weepeth sore in the night, And her tear [is] on her cheeks, There is no comforter for her out of all her lovers, All her friends dealt treacherously by her, They have been to her for enemies.
 
-<sup>3</sup> Removed hath Judah because of affliction, And because of the abundance of her service; She hath dwelt among nations, She hath not found rest, All her pursuers have overtaken her between the straits.
+**³** Removed hath Judah because of affliction, And because of the abundance of her service; She hath dwelt among nations, She hath not found rest, All her pursuers have overtaken her between the straits.
 
-<sup>4</sup> The ways of Zion are mourning, Without any coming at the appointed time, All her gates are desolate, her priests sigh, Her virgins are afflicted — and she hath bitterness.
+**⁴** The ways of Zion are mourning, Without any coming at the appointed time, All her gates are desolate, her priests sigh, Her virgins are afflicted — and she hath bitterness.
 
-<sup>5</sup> Her adversaries have become chief, Her enemies have been at ease, For Jehovah hath afflicted her, For the abundance of her transgressions, Her infants have gone captive before the adversary.
+**⁵** Her adversaries have become chief, Her enemies have been at ease, For Jehovah hath afflicted her, For the abundance of her transgressions, Her infants have gone captive before the adversary.
 
-<sup>6</sup> And go out from the daughter of Zion doth all her honour, Her princes have been as harts — They have not found pasture, And they go powerless before a pursuer.
+**⁶** And go out from the daughter of Zion doth all her honour, Her princes have been as harts — They have not found pasture, And they go powerless before a pursuer.
 
-<sup>7</sup> Remembered hath Jerusalem [In] the days of her affliction and her mournings, all her desirable things that were from the days of old, In the falling of her people into the hand of an adversary, And she hath no helper; Seen her have adversaries, They have laughed at her cessation.
+**⁷** Remembered hath Jerusalem [In] the days of her affliction and her mournings, all her desirable things that were from the days of old, In the falling of her people into the hand of an adversary, And she hath no helper; Seen her have adversaries, They have laughed at her cessation.
 
-<sup>8</sup> A sin hath Jerusalem sinned, Therefore impure she hath become, All who honoured her have esteemed her lightly, For they have seen her nakedness, Yea, she herself hath sighed and turneth backward.
+**⁸** A sin hath Jerusalem sinned, Therefore impure she hath become, All who honoured her have esteemed her lightly, For they have seen her nakedness, Yea, she herself hath sighed and turneth backward.
 
-<sup>9</sup> Her uncleanness [is] in her skirts, She hath not remembered her latter end, And she cometh down wonderfully, There is no comforter for her. See, O Jehovah, mine affliction, For exerted himself hath an enemy.
+**⁹** Her uncleanness [is] in her skirts, She hath not remembered her latter end, And she cometh down wonderfully, There is no comforter for her. See, O Jehovah, mine affliction, For exerted himself hath an enemy.
 
-<sup>10</sup> His hand spread out hath an adversary On all her desirable things, For she hath seen — Nations have entered her sanctuary, Concerning which Thou didst command, 'They do not come into the assembly to thee.'
+**¹⁰** His hand spread out hath an adversary On all her desirable things, For she hath seen — Nations have entered her sanctuary, Concerning which Thou didst command, 'They do not come into the assembly to thee.'
 
-<sup>11</sup> All her people are sighing — seeking bread, They have given their desirable things For food to refresh the body; See, O Jehovah, and behold attentively, For I have been lightly esteemed.
+**¹¹** All her people are sighing — seeking bread, They have given their desirable things For food to refresh the body; See, O Jehovah, and behold attentively, For I have been lightly esteemed.
 
-<sup>12</sup> [Is it] nothing to you, all ye passing by the way? Look attentively, and see, If there is any pain like my pain, That He is rolling to me? Whom Jehovah hath afflicted In the day of the fierceness of His anger.
+**¹²** [Is it] nothing to you, all ye passing by the way? Look attentively, and see, If there is any pain like my pain, That He is rolling to me? Whom Jehovah hath afflicted In the day of the fierceness of His anger.
 
-<sup>13</sup> From above He hath sent fire into my bone, And it subdueth it, He hath spread a net for my feet, He hath turned me backward, He hath made me desolate — all the day sick.
+**¹³** From above He hath sent fire into my bone, And it subdueth it, He hath spread a net for my feet, He hath turned me backward, He hath made me desolate — all the day sick.
 
-<sup>14</sup> Bound hath been the yoke of my transgressions by His hand, They are wrapped together, They have gone up on my neck, He hath caused my power to stumble, The Lord hath given me into hands, I am not able to rise.
+**¹⁴** Bound hath been the yoke of my transgressions by His hand, They are wrapped together, They have gone up on my neck, He hath caused my power to stumble, The Lord hath given me into hands, I am not able to rise.
 
-<sup>15</sup> Trodden down all my mighty ones hath the Lord in my midst, He proclaimed against me an appointed time, To destroy my young men, A wine-press hath the Lord trodden, To the virgin daughter of Judah.
+**¹⁵** Trodden down all my mighty ones hath the Lord in my midst, He proclaimed against me an appointed time, To destroy my young men, A wine-press hath the Lord trodden, To the virgin daughter of Judah.
 
-<sup>16</sup> For these I am weeping, My eye, my eye, is running down with waters, For, far from me hath been a comforter, Refreshing my soul, My sons have been desolate, For mighty hath been an enemy.
+**¹⁶** For these I am weeping, My eye, my eye, is running down with waters, For, far from me hath been a comforter, Refreshing my soul, My sons have been desolate, For mighty hath been an enemy.
 
-<sup>17</sup> Spread forth hath Zion her hands, There is no comforter for her, Jehovah hath charged concerning Jacob, His neighbours [are] his adversaries, Jerusalem hath become impure among them.
+**¹⁷** Spread forth hath Zion her hands, There is no comforter for her, Jehovah hath charged concerning Jacob, His neighbours [are] his adversaries, Jerusalem hath become impure among them.
 
-<sup>18</sup> Righteous is Jehovah, For His mouth I have provoked. Hear, I pray you, all ye peoples, and see my pain, My virgins and my young men have gone into captivity.
+**¹⁸** Righteous is Jehovah, For His mouth I have provoked. Hear, I pray you, all ye peoples, and see my pain, My virgins and my young men have gone into captivity.
 
-<sup>19</sup> I called for my lovers, they — they have deceived me, My priests and my elders in the city have expired; When they have sought food for themselves, Then they give back their soul.
+**¹⁹** I called for my lovers, they — they have deceived me, My priests and my elders in the city have expired; When they have sought food for themselves, Then they give back their soul.
 
-<sup>20</sup> See, O Jehovah, for distress [is] to me, My bowels have been troubled, Turned hath been my heart in my midst, For I have greatly provoked, From without bereaved hath the sword, In the house [it is] as death.
+**²⁰** See, O Jehovah, for distress [is] to me, My bowels have been troubled, Turned hath been my heart in my midst, For I have greatly provoked, From without bereaved hath the sword, In the house [it is] as death.
 
-<sup>21</sup> They have heard that I have sighed, There is no comforter for me, All my enemies have heard of my calamity, They have rejoiced that Thou hast done [it], Thou hast brought in the day Thou hast called, And they are like to me.
+**²¹** They have heard that I have sighed, There is no comforter for me, All my enemies have heard of my calamity, They have rejoiced that Thou hast done [it], Thou hast brought in the day Thou hast called, And they are like to me.
 
-<sup>22</sup> Come in doth all their evil before Thee, And one is doing to them as Thou hast done to me, For all my transgressions, For many [are] my sighs, and my heart [is] sick!
+**²²** Come in doth all their evil before Thee, And one is doing to them as Thou hast done to me, For all my transgressions, For many [are] my sighs, and my heart [is] sick!

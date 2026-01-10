@@ -1,77 +1,77 @@
 # Chapter 20
 
-<sup>1</sup> And after the ceasing of the tumult, Paul having called near the disciples, and having embraced [them], went forth to go on to Macedonia;
+**¹** And after the ceasing of the tumult, Paul having called near the disciples, and having embraced [them], went forth to go on to Macedonia;
 
-<sup>2</sup> and having gone through those parts, and having exhorted them with many words, he came to Greece;
+**²** and having gone through those parts, and having exhorted them with many words, he came to Greece;
 
-<sup>3</sup> having made also three months' [stay] — a counsel of the Jews having been against him — being about to set forth to Syria, there came [to him] a resolution of returning through Macedonia.
+**³** having made also three months' [stay] — a counsel of the Jews having been against him — being about to set forth to Syria, there came [to him] a resolution of returning through Macedonia.
 
-<sup>4</sup> And there were accompanying him unto Asia, Sopater of Berea, and of Thessalonians Aristarchus and Secundus, and Gaius of Derbe, and Timotheus, and of Asiatics Tychicus and Trophimus;
+**⁴** And there were accompanying him unto Asia, Sopater of Berea, and of Thessalonians Aristarchus and Secundus, and Gaius of Derbe, and Timotheus, and of Asiatics Tychicus and Trophimus;
 
-<sup>5</sup> these, having gone before, did remain for us in Troas,
+**⁵** these, having gone before, did remain for us in Troas,
 
-<sup>6</sup> and we sailed, after the days of the unleavened food, from Philippi, and came unto them to Troas in five days, where we abode seven days.
+**⁶** and we sailed, after the days of the unleavened food, from Philippi, and came unto them to Troas in five days, where we abode seven days.
 
-<sup>7</sup> And on the first of the week, the disciples having been gathered together to break bread, Paul was discoursing to them, about to depart on the morrow, he was also continuing the discourse till midnight,
+**⁷** And on the first of the week, the disciples having been gathered together to break bread, Paul was discoursing to them, about to depart on the morrow, he was also continuing the discourse till midnight,
 
-<sup>8</sup> and there were many lamps in the upper chamber where they were gathered together,
+**⁸** and there were many lamps in the upper chamber where they were gathered together,
 
-<sup>9</sup> and there was sitting a certain youth, by name Eutychus, upon the window — being borne down by a deep sleep, Paul discoursing long — he having sunk down from the sleep, fell down from the third story, and was lifted up dead.
+**⁹** and there was sitting a certain youth, by name Eutychus, upon the window — being borne down by a deep sleep, Paul discoursing long — he having sunk down from the sleep, fell down from the third story, and was lifted up dead.
 
-<sup>10</sup> And Paul, having gone down, fell upon him, and having embraced [him], said, 'Make no tumult, for his life is in him;'
+**¹⁰** And Paul, having gone down, fell upon him, and having embraced [him], said, 'Make no tumult, for his life is in him;'
 
-<sup>11</sup> and having come up, and having broken bread, and having tasted, for a long time also having talked — till daylight, so he went forth,
+**¹¹** and having come up, and having broken bread, and having tasted, for a long time also having talked — till daylight, so he went forth,
 
-<sup>12</sup> and they brought up the lad alive, and were comforted in no ordinary measure.
+**¹²** and they brought up the lad alive, and were comforted in no ordinary measure.
 
-<sup>13</sup> And we having gone before unto the ship, did sail to Assos, thence intending to take in Paul, for so he had arranged, intending himself to go on foot;
+**¹³** And we having gone before unto the ship, did sail to Assos, thence intending to take in Paul, for so he had arranged, intending himself to go on foot;
 
-<sup>14</sup> and when he met with us at Assos, having taken him up, we came to Mitylene,
+**¹⁴** and when he met with us at Assos, having taken him up, we came to Mitylene,
 
-<sup>15</sup> and thence having sailed, on the morrow we came over-against Chios, and the next day we arrived at Samos, and having remained in Trogyllium, on the following day we came to Miletus,
+**¹⁵** and thence having sailed, on the morrow we came over-against Chios, and the next day we arrived at Samos, and having remained in Trogyllium, on the following day we came to Miletus,
 
-<sup>16</sup> for Paul decided to sail past Ephesus, that there may not be to him a loss of time in Asia, for he hasted, if it were possible for him, on the day of the Pentecost to be at Jerusalem.
+**¹⁶** for Paul decided to sail past Ephesus, that there may not be to him a loss of time in Asia, for he hasted, if it were possible for him, on the day of the Pentecost to be at Jerusalem.
 
-<sup>17</sup> And from Miletus, having sent to Ephesus, he called for the elders of the assembly,
+**¹⁷** And from Miletus, having sent to Ephesus, he called for the elders of the assembly,
 
-<sup>18</sup> and when they were come unto him, he said to them, 'Ye — ye know from the first day in which I came to Asia, how, with you at all times I was;
+**¹⁸** and when they were come unto him, he said to them, 'Ye — ye know from the first day in which I came to Asia, how, with you at all times I was;
 
-<sup>19</sup> serving the Lord with all humility, and many tears, and temptations, that befell me in the counsels of the Jews against [me];
+**¹⁹** serving the Lord with all humility, and many tears, and temptations, that befell me in the counsels of the Jews against [me];
 
-<sup>20</sup> how nothing I did keep back of what things are profitable, not to declare to you, and to teach you publicly, and in every house,
+**²⁰** how nothing I did keep back of what things are profitable, not to declare to you, and to teach you publicly, and in every house,
 
-<sup>21</sup> testifying fully both to Jews and Greeks, toward God reformation, and faith toward our Lord Jesus Christ.
+**²¹** testifying fully both to Jews and Greeks, toward God reformation, and faith toward our Lord Jesus Christ.
 
-<sup>22</sup> 'And now, lo, I — bound in the Spirit — go on to Jerusalem, the things that shall befall me in it not knowing,
+**²²** 'And now, lo, I — bound in the Spirit — go on to Jerusalem, the things that shall befall me in it not knowing,
 
-<sup>23</sup> save that the Holy Spirit in every city doth testify fully, saying, that for me bonds and tribulations remain;
+**²³** save that the Holy Spirit in every city doth testify fully, saying, that for me bonds and tribulations remain;
 
-<sup>24</sup> but I make account of none of these, neither do I count my life precious to myself, so that I finish my course with joy, and the ministration that I received from the Lord Jesus, to testify fully the good news of the grace of God.
+**²⁴** but I make account of none of these, neither do I count my life precious to myself, so that I finish my course with joy, and the ministration that I received from the Lord Jesus, to testify fully the good news of the grace of God.
 
-<sup>25</sup> 'And now, lo, I have known that no more shall ye see my face, — ye all among whom I did go preaching the reign of God;
+**²⁵** 'And now, lo, I have known that no more shall ye see my face, — ye all among whom I did go preaching the reign of God;
 
-<sup>26</sup> wherefore I take you to witness this day, that I [am] clear from the blood of all,
+**²⁶** wherefore I take you to witness this day, that I [am] clear from the blood of all,
 
-<sup>27</sup> for I did not keep back from declaring to you all the counsel of God.
+**²⁷** for I did not keep back from declaring to you all the counsel of God.
 
-<sup>28</sup> 'Take heed, therefore, to yourselves, and to all the flock, among which the Holy Spirit made you overseers, to feed the assembly of God that He acquired through His own blood,
+**²⁸** 'Take heed, therefore, to yourselves, and to all the flock, among which the Holy Spirit made you overseers, to feed the assembly of God that He acquired through His own blood,
 
-<sup>29</sup> for I have known this, that there shall enter in, after my departing, grievous wolves unto you, not sparing the flock,
+**²⁹** for I have known this, that there shall enter in, after my departing, grievous wolves unto you, not sparing the flock,
 
-<sup>30</sup> and of your own selves there shall arise men, speaking perverse things, to draw away the disciples after them.
+**³⁰** and of your own selves there shall arise men, speaking perverse things, to draw away the disciples after them.
 
-<sup>31</sup> 'Therefore, watch, remembering that three years, night and day, I did not cease with tears warning each one;
+**³¹** 'Therefore, watch, remembering that three years, night and day, I did not cease with tears warning each one;
 
-<sup>32</sup> and now, I commend you, brethren, to God, and to the word of His grace, that is able to build up, and to give you an inheritance among all those sanctified.
+**³²** and now, I commend you, brethren, to God, and to the word of His grace, that is able to build up, and to give you an inheritance among all those sanctified.
 
-<sup>33</sup> 'The silver or gold or garments of no one did I covet;
+**³³** 'The silver or gold or garments of no one did I covet;
 
-<sup>34</sup> and ye yourselves know that to my necessities, and to those who were with me, minister did these hands;
+**³⁴** and ye yourselves know that to my necessities, and to those who were with me, minister did these hands;
 
-<sup>35</sup> all things I did shew you, that, thus labouring, it behoveth [us] to partake with the ailing, to be mindful also of the words of the Lord Jesus, that he himself said, It is more blessed to give than to receive.'
+**³⁵** all things I did shew you, that, thus labouring, it behoveth [us] to partake with the ailing, to be mindful also of the words of the Lord Jesus, that he himself said, It is more blessed to give than to receive.'
 
-<sup>36</sup> And these things having said, having bowed his knees, with them all, he did pray,
+**³⁶** And these things having said, having bowed his knees, with them all, he did pray,
 
-<sup>37</sup> and there came a great weeping to all, and having fallen upon the neck of Paul, they were kissing him,
+**³⁷** and there came a great weeping to all, and having fallen upon the neck of Paul, they were kissing him,
 
-<sup>38</sup> sorrowing most of all for the word that he had said — that they are about no more to see his face; and they were accompanying him to the ship.
+**³⁸** sorrowing most of all for the word that he had said — that they are about no more to see his face; and they were accompanying him to the ship.

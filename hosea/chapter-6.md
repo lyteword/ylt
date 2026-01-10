@@ -1,23 +1,23 @@
 # Chapter 6
 
-<sup>1</sup> 'Come, and we turn back unto Jehovah, For He hath torn, and He doth heal us, He doth smite, and He bindeth us up.
+**¹** 'Come, and we turn back unto Jehovah, For He hath torn, and He doth heal us, He doth smite, and He bindeth us up.
 
-<sup>2</sup> He doth revive us after two days, In the third day He doth raise us up, And we live before Him.
+**²** He doth revive us after two days, In the third day He doth raise us up, And we live before Him.
 
-<sup>3</sup> And we know — we pursue to know Jehovah, As the dawn prepared is His going forth, And He cometh in as a shower to us, As gathered rain — sprinkling earth.'
+**³** And we know — we pursue to know Jehovah, As the dawn prepared is His going forth, And He cometh in as a shower to us, As gathered rain — sprinkling earth.'
 
-<sup>4</sup> What do I do to thee, O Ephraim? What do I do to thee, O Judah? Your goodness [is] as a cloud of the morning, And as dew rising early — going.
+**⁴** What do I do to thee, O Ephraim? What do I do to thee, O Judah? Your goodness [is] as a cloud of the morning, And as dew rising early — going.
 
-<sup>5</sup> Therefore I have hewed by prophets, I have slain them by sayings of My mouth, And My judgments to the light goeth forth.
+**⁵** Therefore I have hewed by prophets, I have slain them by sayings of My mouth, And My judgments to the light goeth forth.
 
-<sup>6</sup> For kindness I desired, and not sacrifice, And a knowledge of God above burnt-offerings.
+**⁶** For kindness I desired, and not sacrifice, And a knowledge of God above burnt-offerings.
 
-<sup>7</sup> And they, as Adam, transgressed a covenant, There they dealt treacherously against me.
+**⁷** And they, as Adam, transgressed a covenant, There they dealt treacherously against me.
 
-<sup>8</sup> Gilead [is] a city of workers of iniquity, Slippery from blood.
+**⁸** Gilead [is] a city of workers of iniquity, Slippery from blood.
 
-<sup>9</sup> And as bands do wait for a man, A company of priests do murder — the way to Shechem, For wickedness they have done.
+**⁹** And as bands do wait for a man, A company of priests do murder — the way to Shechem, For wickedness they have done.
 
-<sup>10</sup> In the house of Israel I have seen a horrible thing, There [is] the whoredom of Ephraim — defiled is Israel.
+**¹⁰** In the house of Israel I have seen a horrible thing, There [is] the whoredom of Ephraim — defiled is Israel.
 
-<sup>11</sup> Also, O Judah, appointed is a harvest to thee, In My turning back [to] the captivity of My people!
+**¹¹** Also, O Judah, appointed is a harvest to thee, In My turning back [to] the captivity of My people!

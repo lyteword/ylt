@@ -1,53 +1,53 @@
 # Chapter 27
 
-<sup>1</sup> 'And Moses — the elders of Israel also — commandeth the people, saying, Keep all the command which I am commanding you to-day;
+**¹** 'And Moses — the elders of Israel also — commandeth the people, saying, Keep all the command which I am commanding you to-day;
 
-<sup>2</sup> and it hath been, in the day that ye pass over the Jordan unto the land which Jehovah thy God is giving to thee, that thou hast raised up for thee great stones, and plaistered them with plaister,
+**²** and it hath been, in the day that ye pass over the Jordan unto the land which Jehovah thy God is giving to thee, that thou hast raised up for thee great stones, and plaistered them with plaister,
 
-<sup>3</sup> and written on them all the words of this law in thy passing over, so that thou goest in unto the land which Jehovah thy God is giving to thee — a land flowing with milk and honey, as Jehovah, God of thy fathers, hath spoken to thee.
+**³** and written on them all the words of this law in thy passing over, so that thou goest in unto the land which Jehovah thy God is giving to thee — a land flowing with milk and honey, as Jehovah, God of thy fathers, hath spoken to thee.
 
-<sup>4</sup> 'And it hath been, in your passing over the Jordan, ye raise up these stones which I am commanding you to-day, in mount Ebal, and thou hast plaistered them with plaister,
+**⁴** 'And it hath been, in your passing over the Jordan, ye raise up these stones which I am commanding you to-day, in mount Ebal, and thou hast plaistered them with plaister,
 
-<sup>5</sup> and built there an altar to Jehovah thy God, an altar of stones, thou dost not wave over them iron.
+**⁵** and built there an altar to Jehovah thy God, an altar of stones, thou dost not wave over them iron.
 
-<sup>6</sup> Of complete stones thou buildest the altar of Jehovah thy God, and hast caused to ascend on it burnt-offerings to Jehovah thy God,
+**⁶** Of complete stones thou buildest the altar of Jehovah thy God, and hast caused to ascend on it burnt-offerings to Jehovah thy God,
 
-<sup>7</sup> and sacrificed peace-offerings, and eaten there, and rejoiced before Jehovah thy God,
+**⁷** and sacrificed peace-offerings, and eaten there, and rejoiced before Jehovah thy God,
 
-<sup>8</sup> and written on the stones all the words of this law, well engraved.'
+**⁸** and written on the stones all the words of this law, well engraved.'
 
-<sup>9</sup> And Moses speaketh — the priests, the Levites, also — unto all Israel, saying, 'Keep silent, and hear, O Israel, this day thou hast become a people to Jehovah thy God;
+**⁹** And Moses speaketh — the priests, the Levites, also — unto all Israel, saying, 'Keep silent, and hear, O Israel, this day thou hast become a people to Jehovah thy God;
 
-<sup>10</sup> and thou hast hearkened to the voice of Jehovah thy God, and done His commands, and His statutes, which I am commanding thee to-day.'
+**¹⁰** and thou hast hearkened to the voice of Jehovah thy God, and done His commands, and His statutes, which I am commanding thee to-day.'
 
-<sup>11</sup> And Moses commandeth the people on that day, saying,
+**¹¹** And Moses commandeth the people on that day, saying,
 
-<sup>12</sup> 'These do stand, to bless the people, on mount Gerizzim, in your passing over the Jordan: Simeon, and Levi, and Judah, and Issachar, and Joseph, and Benjamin.
+**¹²** 'These do stand, to bless the people, on mount Gerizzim, in your passing over the Jordan: Simeon, and Levi, and Judah, and Issachar, and Joseph, and Benjamin.
 
-<sup>13</sup> And these do stand, for the reviling, on mount Ebal: Reuben, Gad, and Asher, and Zebulun, Dan, and Naphtali.
+**¹³** And these do stand, for the reviling, on mount Ebal: Reuben, Gad, and Asher, and Zebulun, Dan, and Naphtali.
 
-<sup>14</sup> 'And the Levites have answered and said unto every man of Israel — a loud voice:
+**¹⁴** 'And the Levites have answered and said unto every man of Israel — a loud voice:
 
-<sup>15</sup> 'Cursed [is] the man who maketh a graven and molten image, the abomination of Jehovah, work of the hands of an artificer, and hath put [it] in a secret place, — and all the people have answered and said, Amen.
+**¹⁵** 'Cursed [is] the man who maketh a graven and molten image, the abomination of Jehovah, work of the hands of an artificer, and hath put [it] in a secret place, — and all the people have answered and said, Amen.
 
-<sup>16</sup> 'Cursed [is] He who is making light of his father and his mother, — and all the people have said, Amen.
+**¹⁶** 'Cursed [is] He who is making light of his father and his mother, — and all the people have said, Amen.
 
-<sup>17</sup> 'Cursed [is] he who is removing his neighbour's border, — and all the people have said, Amen.
+**¹⁷** 'Cursed [is] he who is removing his neighbour's border, — and all the people have said, Amen.
 
-<sup>18</sup> 'Cursed [is] he who is causing the blind to err in the way, — and all the people have said, Amen.
+**¹⁸** 'Cursed [is] he who is causing the blind to err in the way, — and all the people have said, Amen.
 
-<sup>19</sup> 'Cursed [is] he who is turning aside the judgment of fatherless, sojourner, and widow, — and all the people have said, Amen.
+**¹⁹** 'Cursed [is] he who is turning aside the judgment of fatherless, sojourner, and widow, — and all the people have said, Amen.
 
-<sup>20</sup> 'Cursed [is] he who is lying with his father's wife, for he hath uncovered his father's skirt, — and all the people have said, Amen.
+**²⁰** 'Cursed [is] he who is lying with his father's wife, for he hath uncovered his father's skirt, — and all the people have said, Amen.
 
-<sup>21</sup> 'Cursed [is] he who is lying with any beast, — and all the people have said, Amen.
+**²¹** 'Cursed [is] he who is lying with any beast, — and all the people have said, Amen.
 
-<sup>22</sup> 'Cursed [is] he who is lying with his sister, daughter of his father, or daughter of his mother, — and all the people have said, Amen.
+**²²** 'Cursed [is] he who is lying with his sister, daughter of his father, or daughter of his mother, — and all the people have said, Amen.
 
-<sup>23</sup> 'Cursed [is] he who is lying with his mother-in-law, — and all the people have said, Amen.
+**²³** 'Cursed [is] he who is lying with his mother-in-law, — and all the people have said, Amen.
 
-<sup>24</sup> 'Cursed [is] he who is smiting his neighbour in secret, — and all the people have said, Amen.
+**²⁴** 'Cursed [is] he who is smiting his neighbour in secret, — and all the people have said, Amen.
 
-<sup>25</sup> 'Cursed [is] he who is taking a bribe to smite a person, innocent blood, — and all the people have said, Amen.
+**²⁵** 'Cursed [is] he who is taking a bribe to smite a person, innocent blood, — and all the people have said, Amen.
 
-<sup>26</sup> 'Cursed [is] he who doth not establish the words of this law, to do them, — and all the people have said, Amen.
+**²⁶** 'Cursed [is] he who doth not establish the words of this law, to do them, — and all the people have said, Amen.

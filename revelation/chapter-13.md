@@ -1,37 +1,37 @@
 # Chapter 13
 
-<sup>1</sup> And I stood upon the sand of the sea, and I saw out of the sea a beast coming up, having seven heads and ten horns, and upon its horns ten diadems, and upon its heads a name of evil speaking,
+**¹** And I stood upon the sand of the sea, and I saw out of the sea a beast coming up, having seven heads and ten horns, and upon its horns ten diadems, and upon its heads a name of evil speaking,
 
-<sup>2</sup> and the beast that I saw was like to a leopard, and its feet as of a bear, and its mouth as the mouth of a lion, and the dragon did give to it his power, and his throne, and great authority.
+**²** and the beast that I saw was like to a leopard, and its feet as of a bear, and its mouth as the mouth of a lion, and the dragon did give to it his power, and his throne, and great authority.
 
-<sup>3</sup> And I saw one of its heads as slain to death, and its deadly stroke was healed, and all the earth did wonder after the beast,
+**³** And I saw one of its heads as slain to death, and its deadly stroke was healed, and all the earth did wonder after the beast,
 
-<sup>4</sup> and they did bow before the dragon who did give authority to the beast, and they did bow before the beast, saying, 'Who [is] like to the beast? who is able to war with it?'
+**⁴** and they did bow before the dragon who did give authority to the beast, and they did bow before the beast, saying, 'Who [is] like to the beast? who is able to war with it?'
 
-<sup>5</sup> And there was given to it a mouth speaking great things, and evil-speakings, and there was given to it authority to make war forty-two months,
+**⁵** And there was given to it a mouth speaking great things, and evil-speakings, and there was given to it authority to make war forty-two months,
 
-<sup>6</sup> and it did open its mouth for evil-speaking toward God, to speak evil of His name, and of His tabernacle, and of those who in the heaven tabernacle,
+**⁶** and it did open its mouth for evil-speaking toward God, to speak evil of His name, and of His tabernacle, and of those who in the heaven tabernacle,
 
-<sup>7</sup> and there was given to it to make war with the saints, and to overcome them, and there was given to it authority over every tribe, and tongue, and nation.
+**⁷** and there was given to it to make war with the saints, and to overcome them, and there was given to it authority over every tribe, and tongue, and nation.
 
-<sup>8</sup> And bow before it shall all who are dwelling upon the land, whose names have not been written in the scroll of the life of the Lamb slain from the foundation of the world;
+**⁸** And bow before it shall all who are dwelling upon the land, whose names have not been written in the scroll of the life of the Lamb slain from the foundation of the world;
 
-<sup>9</sup> if any one hath an ear — let him hear:
+**⁹** if any one hath an ear — let him hear:
 
-<sup>10</sup> if any one a captivity doth gather, into captivity he doth go away; if any one by sword doth kill, it behoveth him by sword to be killed; here is the endurance and the faith of the saints.
+**¹⁰** if any one a captivity doth gather, into captivity he doth go away; if any one by sword doth kill, it behoveth him by sword to be killed; here is the endurance and the faith of the saints.
 
-<sup>11</sup> And I saw another beast coming up out of the land, and it had two horns, like a lamb, and it was speaking as a dragon,
+**¹¹** And I saw another beast coming up out of the land, and it had two horns, like a lamb, and it was speaking as a dragon,
 
-<sup>12</sup> and all the authority of the first beast doth it do before it, and it maketh the land and those dwelling in it that they shall bow before the first beast, whose deadly stroke was healed,
+**¹²** and all the authority of the first beast doth it do before it, and it maketh the land and those dwelling in it that they shall bow before the first beast, whose deadly stroke was healed,
 
-<sup>13</sup> and it doth great signs, that fire also it may make to come down from the heaven to the earth before men,
+**¹³** and it doth great signs, that fire also it may make to come down from the heaven to the earth before men,
 
-<sup>14</sup> and it leadeth astray those dwelling on the land, because of the signs that were given it to do before the beast, saying to those dwelling upon the land to make an image to the beast that hath the stroke of the sword and did live,
+**¹⁴** and it leadeth astray those dwelling on the land, because of the signs that were given it to do before the beast, saying to those dwelling upon the land to make an image to the beast that hath the stroke of the sword and did live,
 
-<sup>15</sup> and there was given to it to give a spirit to the image of the beast, that also the image of the beast may speak, and [that] it may cause as many as shall not bow before the image of the beast, that they may be killed.
+**¹⁵** and there was given to it to give a spirit to the image of the beast, that also the image of the beast may speak, and [that] it may cause as many as shall not bow before the image of the beast, that they may be killed.
 
-<sup>16</sup> And it maketh all, the small, and the great, and the rich, and the poor, and the freemen, and the servants, that it may give to them a mark upon their right hand or upon their foreheads,
+**¹⁶** And it maketh all, the small, and the great, and the rich, and the poor, and the freemen, and the servants, that it may give to them a mark upon their right hand or upon their foreheads,
 
-<sup>17</sup> and that no one may be able to buy, or to sell, except he who is having the mark, or the name of the beast, or the number of his name.
+**¹⁷** and that no one may be able to buy, or to sell, except he who is having the mark, or the name of the beast, or the number of his name.
 
-<sup>18</sup> Here is the wisdom! He who is having the understanding, let him count the number of the beast, for the number of a man it is, and its number [is] six hundred and sixty six.
+**¹⁸** Here is the wisdom! He who is having the understanding, let him count the number of the beast, for the number of a man it is, and its number [is] six hundred and sixty six.

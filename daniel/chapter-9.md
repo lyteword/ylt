@@ -1,55 +1,55 @@
 # Chapter 9
 
-<sup>1</sup> In the first year of Darius, son of Ahasuerus, of the seed of the Medes, who hath been made king over the kingdom of the Chaldeans,
+**¹** In the first year of Darius, son of Ahasuerus, of the seed of the Medes, who hath been made king over the kingdom of the Chaldeans,
 
-<sup>2</sup> in the first year of his reign, I, Daniel, have understood by books the number of the years, (in that a word of Jehovah hath been unto Jeremiah the prophet,) concerning the fulfilling of the wastes of Jerusalem — seventy years;
+**²** in the first year of his reign, I, Daniel, have understood by books the number of the years, (in that a word of Jehovah hath been unto Jeremiah the prophet,) concerning the fulfilling of the wastes of Jerusalem — seventy years;
 
-<sup>3</sup> and I set my face unto the Lord God, to seek [by] prayer and supplications, with fasting, and sackcloth, and ashes.
+**³** and I set my face unto the Lord God, to seek [by] prayer and supplications, with fasting, and sackcloth, and ashes.
 
-<sup>4</sup> And I pray to Jehovah my God, and confess, and say: 'I beseech Thee, O Lord God, the great and the fearful, keeping the covenant and the kindness to those loving Him, and to those keeping His commands;
+**⁴** And I pray to Jehovah my God, and confess, and say: 'I beseech Thee, O Lord God, the great and the fearful, keeping the covenant and the kindness to those loving Him, and to those keeping His commands;
 
-<sup>5</sup> we have sinned, and done perversely, and done wickedly, and rebelled, to turn aside from Thy commands, and from Thy judgments:
+**⁵** we have sinned, and done perversely, and done wickedly, and rebelled, to turn aside from Thy commands, and from Thy judgments:
 
-<sup>6</sup> and we have not hearkened unto Thy servants, the prophets, who have spoken in Thy name unto our kings, our heads, and our fathers, and to all the people of the land.
+**⁶** and we have not hearkened unto Thy servants, the prophets, who have spoken in Thy name unto our kings, our heads, and our fathers, and to all the people of the land.
 
-<sup>7</sup> 'To Thee, O Lord, [is] the righteousness, and to us the shame of face, as [at] this day, to the men of Judah, and to the inhabitants of Jerusalem, and to all Israel, who are near, and who are far off, in all the lands whither Thou hast driven them, in their trespass that they have trespassed against Thee.
+**⁷** 'To Thee, O Lord, [is] the righteousness, and to us the shame of face, as [at] this day, to the men of Judah, and to the inhabitants of Jerusalem, and to all Israel, who are near, and who are far off, in all the lands whither Thou hast driven them, in their trespass that they have trespassed against Thee.
 
-<sup>8</sup> 'O Lord, to us [is] the shame of face, to our kings, to our heads, and to our fathers, in that we have sinned against Thee.
+**⁸** 'O Lord, to us [is] the shame of face, to our kings, to our heads, and to our fathers, in that we have sinned against Thee.
 
-<sup>9</sup> 'To the Lord our God [are] the mercies and the forgivenesses, for we have rebelled against Him,
+**⁹** 'To the Lord our God [are] the mercies and the forgivenesses, for we have rebelled against Him,
 
-<sup>10</sup> and have not hearkened to the voice of Jehovah our God, to walk in His laws, that He hath set before us by the hand of His servants the prophets;
+**¹⁰** and have not hearkened to the voice of Jehovah our God, to walk in His laws, that He hath set before us by the hand of His servants the prophets;
 
-<sup>11</sup> and all Israel have transgressed Thy law, to turn aside so as not to hearken to Thy voice; and poured on us is the execration, and the oath, that is written in the law of Moses, servant of God, because we have sinned against Him.
+**¹¹** and all Israel have transgressed Thy law, to turn aside so as not to hearken to Thy voice; and poured on us is the execration, and the oath, that is written in the law of Moses, servant of God, because we have sinned against Him.
 
-<sup>12</sup> 'And He confirmeth His words that He hath spoken against us, and against our judges who have judged us, to bring in upon us great evil, in that it hath not been done under the whole heavens as it hath been done in Jerusalem,
+**¹²** 'And He confirmeth His words that He hath spoken against us, and against our judges who have judged us, to bring in upon us great evil, in that it hath not been done under the whole heavens as it hath been done in Jerusalem,
 
-<sup>13</sup> as it is written in the law of Moses, all this evil hath come upon us, and we have not appeased the face of Jehovah our God to turn back from our iniquities, and to act wisely in Thy truth.
+**¹³** as it is written in the law of Moses, all this evil hath come upon us, and we have not appeased the face of Jehovah our God to turn back from our iniquities, and to act wisely in Thy truth.
 
-<sup>14</sup> And Jehovah doth watch for the evil, and bringeth it upon us, for righteous [is] Jehovah our God concerning all His works that He hath done, and we have not hearkened to His voice.
+**¹⁴** And Jehovah doth watch for the evil, and bringeth it upon us, for righteous [is] Jehovah our God concerning all His works that He hath done, and we have not hearkened to His voice.
 
-<sup>15</sup> And now, O Lord our God, who hast brought forth Thy people from the land of Egypt by a strong hand, and dost make for Thee a name as at this day, we have sinned, we have done wickedly.
+**¹⁵** And now, O Lord our God, who hast brought forth Thy people from the land of Egypt by a strong hand, and dost make for Thee a name as at this day, we have sinned, we have done wickedly.
 
-<sup>16</sup> 'O Lord, according to all Thy righteous acts, let turn back, I pray Thee, Thine anger and Thy fury from Thy city Jerusalem, Thy holy mount, for by our sins, and by the iniquities of our fathers, Jerusalem and Thy people [are] for a reproach to all our neighbours;
+**¹⁶** 'O Lord, according to all Thy righteous acts, let turn back, I pray Thee, Thine anger and Thy fury from Thy city Jerusalem, Thy holy mount, for by our sins, and by the iniquities of our fathers, Jerusalem and Thy people [are] for a reproach to all our neighbours;
 
-<sup>17</sup> and now, hearken, O our God, unto the prayer of Thy servant, and unto his supplication, and cause Thy face to shine on Thy sanctuary that [is] desolate, for the Lord's sake.
+**¹⁷** and now, hearken, O our God, unto the prayer of Thy servant, and unto his supplication, and cause Thy face to shine on Thy sanctuary that [is] desolate, for the Lord's sake.
 
-<sup>18</sup> 'Incline, O my God, Thine ear, and hear, open Thine eyes and see our desolations, and the city on which Thy name is called; for not for our righteous acts are we causing our supplications to fall before Thee, but for Thy mercies that [are] many.
+**¹⁸** 'Incline, O my God, Thine ear, and hear, open Thine eyes and see our desolations, and the city on which Thy name is called; for not for our righteous acts are we causing our supplications to fall before Thee, but for Thy mercies that [are] many.
 
-<sup>19</sup> O lord, hear, O Lord, forgive; O Lord, attend and do; do not delay, for Thine own sake, O my God, for Thy name is called on Thy city, and on Thy people.'
+**¹⁹** O lord, hear, O Lord, forgive; O Lord, attend and do; do not delay, for Thine own sake, O my God, for Thy name is called on Thy city, and on Thy people.'
 
-<sup>20</sup> And while I am speaking, and praying, and confessing my sin, and the sin of my people Israel, and causing my supplication to fall before Jehovah my God, for the holy mount of my God,
+**²⁰** And while I am speaking, and praying, and confessing my sin, and the sin of my people Israel, and causing my supplication to fall before Jehovah my God, for the holy mount of my God,
 
-<sup>21</sup> yea, while I am speaking in prayer, then that one Gabriel, whom I had seen in vision at the commencement, being caused to fly swiftly, is coming unto me at the time of the evening present.
+**²¹** yea, while I am speaking in prayer, then that one Gabriel, whom I had seen in vision at the commencement, being caused to fly swiftly, is coming unto me at the time of the evening present.
 
-<sup>22</sup> And he giveth understanding, and speaketh with me, and saith, 'O Daniel, now I have come forth to cause thee to consider understanding wisely;
+**²²** And he giveth understanding, and speaketh with me, and saith, 'O Daniel, now I have come forth to cause thee to consider understanding wisely;
 
-<sup>23</sup> at the commencement of thy supplications hath the word come forth, and I have come to declare [it], for thou [art] greatly desired, and understand thou concerning the matter, and consider concerning the appearance.
+**²³** at the commencement of thy supplications hath the word come forth, and I have come to declare [it], for thou [art] greatly desired, and understand thou concerning the matter, and consider concerning the appearance.
 
-<sup>24</sup> 'Seventy weeks are determined for thy people, and for thy holy city, to shut up the transgression, and to seal up sins, and to cover iniquity, and to bring in righteousness age-during, and to seal up vision and prophet, and to anoint the holy of holies.
+**²⁴** 'Seventy weeks are determined for thy people, and for thy holy city, to shut up the transgression, and to seal up sins, and to cover iniquity, and to bring in righteousness age-during, and to seal up vision and prophet, and to anoint the holy of holies.
 
-<sup>25</sup> And thou dost know, and dost consider wisely, from the going forth of the word to restore and to build Jerusalem till Messiah the Leader [is] seven weeks, and sixty and two weeks: the broad place hath been built again, and the rampart, even in the distress of the times.
+**²⁵** And thou dost know, and dost consider wisely, from the going forth of the word to restore and to build Jerusalem till Messiah the Leader [is] seven weeks, and sixty and two weeks: the broad place hath been built again, and the rampart, even in the distress of the times.
 
-<sup>26</sup> And after the sixty and two weeks, cut off is Messiah, and the city and the holy place are not his, the Leader who hath come doth destroy the people; and its end [is] with a flood, and till the end [is] war, determined [are] desolations.
+**²⁶** And after the sixty and two weeks, cut off is Messiah, and the city and the holy place are not his, the Leader who hath come doth destroy the people; and its end [is] with a flood, and till the end [is] war, determined [are] desolations.
 
-<sup>27</sup> And he hath strengthened a covenant with many — one week, and [in] the midst of the week he causeth sacrifice and present to cease, and by the wing of abominations he is making desolate, even till the consummation, and that which is determined is poured on the desolate one.'
+**²⁷** And he hath strengthened a covenant with many — one week, and [in] the midst of the week he causeth sacrifice and present to cease, and by the wing of abominations he is making desolate, even till the consummation, and that which is determined is poured on the desolate one.'

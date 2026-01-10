@@ -1,99 +1,99 @@
 # Chapter 23
 
-<sup>1</sup> And there is a word of Jehovah unto me, saying, 'Son of man,
+**¹** And there is a word of Jehovah unto me, saying, 'Son of man,
 
-<sup>2</sup> Two women were daughters of one mother,
+**²** Two women were daughters of one mother,
 
-<sup>3</sup> And they go a-whoring in Egypt, In their youth they have gone a-whoring, There they have bruised their breasts, And there they have dealt with the loves of their virginity.
+**³** And they go a-whoring in Egypt, In their youth they have gone a-whoring, There they have bruised their breasts, And there they have dealt with the loves of their virginity.
 
-<sup>4</sup> And their names [are] Aholah the elder, And Aholibah her sister, And they are Mine, and bear sons and daughters. As to their names — Samaria [is] Aholah, And Jerusalem [is] Aholibah.
+**⁴** And their names [are] Aholah the elder, And Aholibah her sister, And they are Mine, and bear sons and daughters. As to their names — Samaria [is] Aholah, And Jerusalem [is] Aholibah.
 
-<sup>5</sup> And go a-whoring doth Aholah under Me, And she doteth on her lovers, On the neighbouring Assyrians,
+**⁵** And go a-whoring doth Aholah under Me, And she doteth on her lovers, On the neighbouring Assyrians,
 
-<sup>6</sup> Clothed with blue — governors and prefects, Desirable young men all of them, Horsemen, riding on horses,
+**⁶** Clothed with blue — governors and prefects, Desirable young men all of them, Horsemen, riding on horses,
 
-<sup>7</sup> And she giveth her whoredoms on them, The choice of the sons of Asshur, All of them — even all on whom she doted, By all their idols she hath been defiled.
+**⁷** And she giveth her whoredoms on them, The choice of the sons of Asshur, All of them — even all on whom she doted, By all their idols she hath been defiled.
 
-<sup>8</sup> And her whoredoms out of Egypt she hath not forsaken, For with her they lay in her youth, And they dealt with the loves of her virginity, And they pour out their whoredoms on her.
+**⁸** And her whoredoms out of Egypt she hath not forsaken, For with her they lay in her youth, And they dealt with the loves of her virginity, And they pour out their whoredoms on her.
 
-<sup>9</sup> Therefore I have given her into the hand of her lovers, Into the hand of sons of Asshur on whom she doted.
+**⁹** Therefore I have given her into the hand of her lovers, Into the hand of sons of Asshur on whom she doted.
 
-<sup>10</sup> They have uncovered her nakedness, Her sons and her daughters they have taken, And her by sword they have slain, And she is a name for women, And judgments they have done with her.
+**¹⁰** They have uncovered her nakedness, Her sons and her daughters they have taken, And her by sword they have slain, And she is a name for women, And judgments they have done with her.
 
-<sup>11</sup> And see doth her sister Aholibah, And she maketh her doting love more corrupt than she, And her whoredoms than the whoredoms of her sister.
+**¹¹** And see doth her sister Aholibah, And she maketh her doting love more corrupt than she, And her whoredoms than the whoredoms of her sister.
 
-<sup>12</sup> On sons of Asshur she hath doted, Governors and prefects, Neighbouring ones — clothed in perfection, Horsemen, riding on horses, Desirable young men all of them.
+**¹²** On sons of Asshur she hath doted, Governors and prefects, Neighbouring ones — clothed in perfection, Horsemen, riding on horses, Desirable young men all of them.
 
-<sup>13</sup> And I see that she hath been defiled, One way [is] to them both.
+**¹³** And I see that she hath been defiled, One way [is] to them both.
 
-<sup>14</sup> And she doth add unto her whoredoms, And she seeth graved men on the wall, Pictures of Chaldeans, graved with red lead,
+**¹⁴** And she doth add unto her whoredoms, And she seeth graved men on the wall, Pictures of Chaldeans, graved with red lead,
 
-<sup>15</sup> Girded with a girdle on their loins, Dyed attire spread out on their heads, The appearance of rulers — all of them, The likeness of sons of Babylon, Chaldea is the land of their birth.
+**¹⁵** Girded with a girdle on their loins, Dyed attire spread out on their heads, The appearance of rulers — all of them, The likeness of sons of Babylon, Chaldea is the land of their birth.
 
-<sup>16</sup> And she doteth on them at the sight of her eyes, And sendeth messengers to them, to Chaldea.
+**¹⁶** And she doteth on them at the sight of her eyes, And sendeth messengers to them, to Chaldea.
 
-<sup>17</sup> And come in unto her do sons of Babylon, To the bed of loves, And they defile her with their whoredoms, And she is defiled with them, And her soul is alienated from them.
+**¹⁷** And come in unto her do sons of Babylon, To the bed of loves, And they defile her with their whoredoms, And she is defiled with them, And her soul is alienated from them.
 
-<sup>18</sup> And she revealeth her whoredoms, And she revealeth her nakedness, And alienated is My soul from off her, As alienated was My soul from off her sister.
+**¹⁸** And she revealeth her whoredoms, And she revealeth her nakedness, And alienated is My soul from off her, As alienated was My soul from off her sister.
 
-<sup>19</sup> And she multiplieth her whoredoms, To remember the days of her youth, When she went a-whoring in the land of Egypt.
+**¹⁹** And she multiplieth her whoredoms, To remember the days of her youth, When she went a-whoring in the land of Egypt.
 
-<sup>20</sup> And she doteth on their paramours, Whose flesh [is] the flesh of asses, And the issue of horses — their issue.
+**²⁰** And she doteth on their paramours, Whose flesh [is] the flesh of asses, And the issue of horses — their issue.
 
-<sup>21</sup> Thou lookest after the wickedness of thy youth, In dealing out of Egypt thy loves, For the sake of the breasts of thy youth.
+**²¹** Thou lookest after the wickedness of thy youth, In dealing out of Egypt thy loves, For the sake of the breasts of thy youth.
 
-<sup>22</sup> Therefore, O Aholibah, thus said the Lord Jehovah: Lo, I am stirring up thy lovers against thee, From whom thy soul hath been alienated, And have brought them in against thee from round about.
+**²²** Therefore, O Aholibah, thus said the Lord Jehovah: Lo, I am stirring up thy lovers against thee, From whom thy soul hath been alienated, And have brought them in against thee from round about.
 
-<sup>23</sup> Sons of Babylon, and of all Chaldea, Pekod, and Shoa, and Koa, All the sons of Asshur with them, Desirable young men, governors and prefects, All of them — rulers and proclaimed ones, Riding on horses, all of them.
+**²³** Sons of Babylon, and of all Chaldea, Pekod, and Shoa, and Koa, All the sons of Asshur with them, Desirable young men, governors and prefects, All of them — rulers and proclaimed ones, Riding on horses, all of them.
 
-<sup>24</sup> And they have come in against thee, With arms, rider, and wheel, And with an assembly of peoples; Target, and shield, and helmet, They do set against thee round about, And I have set before them judgment, They have judged thee in their Judgments.
+**²⁴** And they have come in against thee, With arms, rider, and wheel, And with an assembly of peoples; Target, and shield, and helmet, They do set against thee round about, And I have set before them judgment, They have judged thee in their Judgments.
 
-<sup>25</sup> And I have set My jealousy against thee, And they have dealt with thee in fury, Thy nose and thine ears they turn aside, And thy posterity by sword falleth, They, thy sons and thy daughters do take away, And thy posterity is devoured by fire.
+**²⁵** And I have set My jealousy against thee, And they have dealt with thee in fury, Thy nose and thine ears they turn aside, And thy posterity by sword falleth, They, thy sons and thy daughters do take away, And thy posterity is devoured by fire.
 
-<sup>26</sup> And they have stripped thee of thy garments, And have taken thy beauteous jewels.
+**²⁶** And they have stripped thee of thy garments, And have taken thy beauteous jewels.
 
-<sup>27</sup> And I have caused thy wickedness to cease from thee, And thy whoredoms out of the land of Egypt, And thou liftest not up thine eyes unto them, And Egypt thou dost not remember again.
+**²⁷** And I have caused thy wickedness to cease from thee, And thy whoredoms out of the land of Egypt, And thou liftest not up thine eyes unto them, And Egypt thou dost not remember again.
 
-<sup>28</sup> For thus said the Lord Jehovah: Lo, I am giving thee into a hand that thou hast hated, Into a hand from which thou wast alienated.
+**²⁸** For thus said the Lord Jehovah: Lo, I am giving thee into a hand that thou hast hated, Into a hand from which thou wast alienated.
 
-<sup>29</sup> And they have dealt with thee in hatred, And they have taken all thy labour, And they have left thee naked and bare, And revealed hath been the nakedness of thy whoredoms, And the wickedness of thy whoredoms.
+**²⁹** And they have dealt with thee in hatred, And they have taken all thy labour, And they have left thee naked and bare, And revealed hath been the nakedness of thy whoredoms, And the wickedness of thy whoredoms.
 
-<sup>30</sup> To do these things to thee, In thy going a-whoring after nations, Because thou hast been defiled with their idols,
+**³⁰** To do these things to thee, In thy going a-whoring after nations, Because thou hast been defiled with their idols,
 
-<sup>31</sup> In the way of thy sister thou hast walked, And I have given her cup into thy hand.
+**³¹** In the way of thy sister thou hast walked, And I have given her cup into thy hand.
 
-<sup>32</sup> Thus said the Lord Jehovah: The cup of thy sister thou dost drink, The deep and the wide one, (Thou art for laughter and for scorn,) Abundant to contain.
+**³²** Thus said the Lord Jehovah: The cup of thy sister thou dost drink, The deep and the wide one, (Thou art for laughter and for scorn,) Abundant to contain.
 
-<sup>33</sup> With drunkenness and sorrow thou art filled, A cup of astonishment and desolation, The cup of thy sister Samaria.
+**³³** With drunkenness and sorrow thou art filled, A cup of astonishment and desolation, The cup of thy sister Samaria.
 
-<sup>34</sup> And thou hast drunk it, and hast drained [it], And its earthen ware thou dost gnaw, And thine own breasts thou pluckest off, For I have spoken, An affirmation of the Lord Jehovah,
+**³⁴** And thou hast drunk it, and hast drained [it], And its earthen ware thou dost gnaw, And thine own breasts thou pluckest off, For I have spoken, An affirmation of the Lord Jehovah,
 
-<sup>35</sup> Therefore, thus said the Lord Jehovah: Because thou hast forgotten Me, And thou dost cast Me behind thy back, Even thou also bear thy wickedness and thy whoredoms.'
+**³⁵** Therefore, thus said the Lord Jehovah: Because thou hast forgotten Me, And thou dost cast Me behind thy back, Even thou also bear thy wickedness and thy whoredoms.'
 
-<sup>36</sup> And Jehovah saith unto me, 'Son of man, Dost thou judge Aholah and Aholibah? Declare then to them their abominations.
+**³⁶** And Jehovah saith unto me, 'Son of man, Dost thou judge Aholah and Aholibah? Declare then to them their abominations.
 
-<sup>37</sup> For they have committed adultery, And blood [is] in their hands, With their idols they committed adultery, And also their sons whom they bore to Me, They caused to pass over to them for food.
+**³⁷** For they have committed adultery, And blood [is] in their hands, With their idols they committed adultery, And also their sons whom they bore to Me, They caused to pass over to them for food.
 
-<sup>38</sup> Again, this they have done to Me, They defiled My sanctuary in that day, And My sabbaths they have polluted.
+**³⁸** Again, this they have done to Me, They defiled My sanctuary in that day, And My sabbaths they have polluted.
 
-<sup>39</sup> And in their slaughtering their sons to their idols They also come in unto My sanctuary in that day to pollute it, And lo, thus they have done in the midst of My house,
+**³⁹** And in their slaughtering their sons to their idols They also come in unto My sanctuary in that day to pollute it, And lo, thus they have done in the midst of My house,
 
-<sup>40</sup> And also that they send to men coming from afar, Unto whom a messenger is sent, And lo, they have come in for whom thou hast washed, Painted thine eyes, and put on adornment.
+**⁴⁰** And also that they send to men coming from afar, Unto whom a messenger is sent, And lo, they have come in for whom thou hast washed, Painted thine eyes, and put on adornment.
 
-<sup>41</sup> And thou hast sat on a couch of honour, And a table arrayed before it, And My perfume and My oil placed on it.
+**⁴¹** And thou hast sat on a couch of honour, And a table arrayed before it, And My perfume and My oil placed on it.
 
-<sup>42</sup> And the voice of a multitude at ease [is] with her, And unto men of the common people are brought in Sabeans from the wilderness, And they put bracelets on their hands, And a beauteous crown on their heads.
+**⁴²** And the voice of a multitude at ease [is] with her, And unto men of the common people are brought in Sabeans from the wilderness, And they put bracelets on their hands, And a beauteous crown on their heads.
 
-<sup>43</sup> And I say of the worn-out one in adulteries, Now they commit her whoredoms — she also!
+**⁴³** And I say of the worn-out one in adulteries, Now they commit her whoredoms — she also!
 
-<sup>44</sup> And they come in unto her, As the coming in unto a whorish woman, So they have come in unto Aholah, And unto Aholibah — the wicked women.
+**⁴⁴** And they come in unto her, As the coming in unto a whorish woman, So they have come in unto Aholah, And unto Aholibah — the wicked women.
 
-<sup>45</sup> As to righteous men, they judge them with the judgment of adulteresses, And the judgment of women shedding blood, For they [are] adulteresses, And blood [is] in their hands.
+**⁴⁵** As to righteous men, they judge them with the judgment of adulteresses, And the judgment of women shedding blood, For they [are] adulteresses, And blood [is] in their hands.
 
-<sup>46</sup> For thus said the Lord Jehovah: Bring up against them an assembly, And give them to trembling and to spoiling.
+**⁴⁶** For thus said the Lord Jehovah: Bring up against them an assembly, And give them to trembling and to spoiling.
 
-<sup>47</sup> And they have cast at them the stone of the assembly, And cut them with their swords, Their sons and their daughters they do slay, And their houses with fire they burn.
+**⁴⁷** And they have cast at them the stone of the assembly, And cut them with their swords, Their sons and their daughters they do slay, And their houses with fire they burn.
 
-<sup>48</sup> And I have caused wickedness to cease from the land, And instructed have been all the women, And they do not according to your wickedness.
+**⁴⁸** And I have caused wickedness to cease from the land, And instructed have been all the women, And they do not according to your wickedness.
 
-<sup>49</sup> And they have put your wickedness on you, And the sins of your idols ye bear, And ye have known that I [am] the Lord Jehovah!
+**⁴⁹** And they have put your wickedness on you, And the sins of your idols ye bear, And ye have known that I [am] the Lord Jehovah!

@@ -1,51 +1,51 @@
 # Chapter 21
 
-<sup>1</sup> After these things did Jesus manifest himself again to the disciples on the sea of Tiberias, and he did manifest himself thus:
+**¹** After these things did Jesus manifest himself again to the disciples on the sea of Tiberias, and he did manifest himself thus:
 
-<sup>2</sup> There were together Simon Peter, and Thomas who is called Didymus, and Nathanael from Cana of Galilee, and the [sons] of Zebedee, and two others of his disciples.
+**²** There were together Simon Peter, and Thomas who is called Didymus, and Nathanael from Cana of Galilee, and the [sons] of Zebedee, and two others of his disciples.
 
-<sup>3</sup> Simon Peter saith to them, 'I go away to fish;' they say to him, 'We go — we also — with thee;' they went forth and entered into the boat immediately, and on that night they caught nothing.
+**³** Simon Peter saith to them, 'I go away to fish;' they say to him, 'We go — we also — with thee;' they went forth and entered into the boat immediately, and on that night they caught nothing.
 
-<sup>4</sup> And morning being now come, Jesus stood at the shore, yet indeed the disciples did not know that it is Jesus;
+**⁴** And morning being now come, Jesus stood at the shore, yet indeed the disciples did not know that it is Jesus;
 
-<sup>5</sup> Jesus, therefore, saith to them, 'Lads, have ye any meat?'
+**⁵** Jesus, therefore, saith to them, 'Lads, have ye any meat?'
 
-<sup>6</sup> they answered him, 'No;' and he said to them, 'Cast the net at the right side of the boat, and ye shall find;' they cast, therefore, and no longer were they able to draw it, from the multitude of the fishes.
+**⁶** they answered him, 'No;' and he said to them, 'Cast the net at the right side of the boat, and ye shall find;' they cast, therefore, and no longer were they able to draw it, from the multitude of the fishes.
 
-<sup>7</sup> That disciple, therefore, whom Jesus was loving saith to Peter, 'The Lord it is!' Simon Peter, therefore, having heard that it is the Lord, did gird on the outer coat, (for he was naked,) and did cast himself into the sea;
+**⁷** That disciple, therefore, whom Jesus was loving saith to Peter, 'The Lord it is!' Simon Peter, therefore, having heard that it is the Lord, did gird on the outer coat, (for he was naked,) and did cast himself into the sea;
 
-<sup>8</sup> and the other disciples came by the little boat, for they were not far from the land, but as it were about two hundred cubits off, dragging the net of the fishes;
+**⁸** and the other disciples came by the little boat, for they were not far from the land, but as it were about two hundred cubits off, dragging the net of the fishes;
 
-<sup>9</sup> when, therefore, they came to the land, they behold a fire of coals lying, and a fish lying on it, and bread.
+**⁹** when, therefore, they came to the land, they behold a fire of coals lying, and a fish lying on it, and bread.
 
-<sup>10</sup> Jesus saith to them, 'Bring ye from the fishes that ye caught now;'
+**¹⁰** Jesus saith to them, 'Bring ye from the fishes that ye caught now;'
 
-<sup>11</sup> Simon Peter went up, and drew the net up on the land, full of great fishes, an hundred fifty and three, and though they were so many, the net was not rent.
+**¹¹** Simon Peter went up, and drew the net up on the land, full of great fishes, an hundred fifty and three, and though they were so many, the net was not rent.
 
-<sup>12</sup> Jesus saith to them, 'Come ye, dine;' and none of the disciples was venturing to inquire of him, 'Who art thou?' knowing that it is the Lord;
+**¹²** Jesus saith to them, 'Come ye, dine;' and none of the disciples was venturing to inquire of him, 'Who art thou?' knowing that it is the Lord;
 
-<sup>13</sup> Jesus, therefore, doth come and take the bread and give to them, and the fish in like manner;
+**¹³** Jesus, therefore, doth come and take the bread and give to them, and the fish in like manner;
 
-<sup>14</sup> this [is] now a third time Jesus was manifested to his disciples, having been raised from the dead.
+**¹⁴** this [is] now a third time Jesus was manifested to his disciples, having been raised from the dead.
 
-<sup>15</sup> When, therefore, they dined, Jesus saith to Simon Peter, 'Simon, [son] of Jonas, dost thou love me more than these?' he saith to him, 'Yes, Lord; thou hast known that I dearly love thee;' he saith to him, 'Feed my lambs.'
+**¹⁵** When, therefore, they dined, Jesus saith to Simon Peter, 'Simon, [son] of Jonas, dost thou love me more than these?' he saith to him, 'Yes, Lord; thou hast known that I dearly love thee;' he saith to him, 'Feed my lambs.'
 
-<sup>16</sup> He saith to him again, a second time, 'Simon, [son] of Jonas, dost thou love me?' he saith to him, 'Yes, Lord; thou hast known that I dearly love thee;' he saith to him, 'Tend my sheep.'
+**¹⁶** He saith to him again, a second time, 'Simon, [son] of Jonas, dost thou love me?' he saith to him, 'Yes, Lord; thou hast known that I dearly love thee;' he saith to him, 'Tend my sheep.'
 
-<sup>17</sup> He saith to him the third time, 'Simon, [son] of Jonas, dost thou dearly love me?' Peter was grieved that he said to him the third time, 'Dost thou dearly love me?' and he said to him, 'Lord, thou hast known all things; thou dost know that I dearly love thee.' Jesus saith to him, 'Feed my sheep;
+**¹⁷** He saith to him the third time, 'Simon, [son] of Jonas, dost thou dearly love me?' Peter was grieved that he said to him the third time, 'Dost thou dearly love me?' and he said to him, 'Lord, thou hast known all things; thou dost know that I dearly love thee.' Jesus saith to him, 'Feed my sheep;
 
-<sup>18</sup> verily, verily, I say to thee, When thou wast younger, thou wast girding thyself and wast walking whither thou didst will, but when thou mayest be old, thou shalt stretch forth thy hands, and another will gird thee, and shall carry [thee] whither thou dost not will;'
+**¹⁸** verily, verily, I say to thee, When thou wast younger, thou wast girding thyself and wast walking whither thou didst will, but when thou mayest be old, thou shalt stretch forth thy hands, and another will gird thee, and shall carry [thee] whither thou dost not will;'
 
-<sup>19</sup> and this he said, signifying by what death he shall glorify God; and having said this, he saith to him, 'Be following me.'
+**¹⁹** and this he said, signifying by what death he shall glorify God; and having said this, he saith to him, 'Be following me.'
 
-<sup>20</sup> And Peter having turned about doth see the disciple whom Jesus was loving following, (who also reclined in the supper on his breast, and said, 'Sir, who is he who is delivering thee up?')
+**²⁰** And Peter having turned about doth see the disciple whom Jesus was loving following, (who also reclined in the supper on his breast, and said, 'Sir, who is he who is delivering thee up?')
 
-<sup>21</sup> Peter having seen this one, saith to Jesus, 'Lord, and what of this one?'
+**²¹** Peter having seen this one, saith to Jesus, 'Lord, and what of this one?'
 
-<sup>22</sup> Jesus saith to him, 'If him I will to remain till I come, what — to thee? be thou following me.' This word, therefore, went forth to the brethren that that disciple doth not die,
+**²²** Jesus saith to him, 'If him I will to remain till I come, what — to thee? be thou following me.' This word, therefore, went forth to the brethren that that disciple doth not die,
 
-<sup>23</sup> yet Jesus did not say to him, that he doth not die, but, 'If him I will to remain till I come, what — to thee?'
+**²³** yet Jesus did not say to him, that he doth not die, but, 'If him I will to remain till I come, what — to thee?'
 
-<sup>24</sup> this is the disciple who is testifying concerning these things, and he wrote these things, and we have known that his testimony is true.
+**²⁴** this is the disciple who is testifying concerning these things, and he wrote these things, and we have known that his testimony is true.
 
-<sup>25</sup> And there are also many other things — as many as Jesus did — which, if they may be written one by one, not even the world itself I think to have place for the books written. Amen.
+**²⁵** And there are also many other things — as many as Jesus did — which, if they may be written one by one, not even the world itself I think to have place for the books written. Amen.

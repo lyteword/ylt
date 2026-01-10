@@ -1,53 +1,53 @@
 # Chapter 21
 
-<sup>1</sup> A son of twelve years [is] Manasseh in his reigning, and fifty and five years he hath reigned in Jerusalem, and the name of his mother [is] Hephzi-Bah;
+**¹** A son of twelve years [is] Manasseh in his reigning, and fifty and five years he hath reigned in Jerusalem, and the name of his mother [is] Hephzi-Bah;
 
-<sup>2</sup> and he doth the evil thing in the eyes of Jehovah, according to the abominations of the nations that Jehovah dispossessed from the presence of the sons of Israel,
+**²** and he doth the evil thing in the eyes of Jehovah, according to the abominations of the nations that Jehovah dispossessed from the presence of the sons of Israel,
 
-<sup>3</sup> and he turneth and buildeth the high places that Hezekiah his father destroyed, and raiseth altars for Baal, and maketh a shrine, as did Ahab king of Israel, and boweth himself to all the host of the heavens, and serveth them.
+**³** and he turneth and buildeth the high places that Hezekiah his father destroyed, and raiseth altars for Baal, and maketh a shrine, as did Ahab king of Israel, and boweth himself to all the host of the heavens, and serveth them.
 
-<sup>4</sup> And he hath built altars in the house of Jehovah, of which Jehovah said, 'In Jerusalem I put My name.'
+**⁴** And he hath built altars in the house of Jehovah, of which Jehovah said, 'In Jerusalem I put My name.'
 
-<sup>5</sup> And he buildeth altars to all the host of the heavens in the two courts of the house of Jehovah;
+**⁵** And he buildeth altars to all the host of the heavens in the two courts of the house of Jehovah;
 
-<sup>6</sup> and he hath caused his son to pass through fire, and observed clouds, and used enchantment, and dealt with a familiar spirit and wizards; he hath multiplied to do the evil thing in the eyes of Jehovah — to provoke to anger.
+**⁶** and he hath caused his son to pass through fire, and observed clouds, and used enchantment, and dealt with a familiar spirit and wizards; he hath multiplied to do the evil thing in the eyes of Jehovah — to provoke to anger.
 
-<sup>7</sup> And he setteth the graven image of the shrine that he made in the house of which Jehovah said unto David and unto Solomon his son, 'In this house, and in Jerusalem, that I have chosen out of all the tribes of Israel, I put My name — to the age;
+**⁷** And he setteth the graven image of the shrine that he made in the house of which Jehovah said unto David and unto Solomon his son, 'In this house, and in Jerusalem, that I have chosen out of all the tribes of Israel, I put My name — to the age;
 
-<sup>8</sup> and I do not add to cause the foot of Israel to move from the ground that I gave to their fathers, only, if they observe to do according to all that I commanded them, and to all the law that My servant Moses commanded them.'
+**⁸** and I do not add to cause the foot of Israel to move from the ground that I gave to their fathers, only, if they observe to do according to all that I commanded them, and to all the law that My servant Moses commanded them.'
 
-<sup>9</sup> And they have not hearkened, and Manasseh causeth them to err, to do the evil thing above the nations that Jehovah destroyed from the presence of the sons of Israel.
+**⁹** And they have not hearkened, and Manasseh causeth them to err, to do the evil thing above the nations that Jehovah destroyed from the presence of the sons of Israel.
 
-<sup>10</sup> And Jehovah speaketh by the hand of his servants the prophets, saying,
+**¹⁰** And Jehovah speaketh by the hand of his servants the prophets, saying,
 
-<sup>11</sup> 'Because that Manasseh king of Judah hath done these abominations — he hath done evil above all that the Amorites have done who [are] before him, and causeth also Judah to sin by his idols;
+**¹¹** 'Because that Manasseh king of Judah hath done these abominations — he hath done evil above all that the Amorites have done who [are] before him, and causeth also Judah to sin by his idols;
 
-<sup>12</sup> therefore thus said Jehovah, God of Israel, Lo, I am bringing in evil on Jerusalem and Judah, that whoever heareth of it, tingle do his two ears.
+**¹²** therefore thus said Jehovah, God of Israel, Lo, I am bringing in evil on Jerusalem and Judah, that whoever heareth of it, tingle do his two ears.
 
-<sup>13</sup> And I have stretched out over Jerusalem the line of Samaria, and the plummet of the house of Ahab, and wiped Jerusalem as one wipeth the dish — he hath wiped, and hath turned [it] on its face.
+**¹³** And I have stretched out over Jerusalem the line of Samaria, and the plummet of the house of Ahab, and wiped Jerusalem as one wipeth the dish — he hath wiped, and hath turned [it] on its face.
 
-<sup>14</sup> 'And I have left the remnant of Mine inheritance, and given them into the hand of their enemies, and they have been for a prey and for a spoil to all their enemies,
+**¹⁴** 'And I have left the remnant of Mine inheritance, and given them into the hand of their enemies, and they have been for a prey and for a spoil to all their enemies,
 
-<sup>15</sup> because that they have done the evil thing in Mine eyes, and are provoking Me to anger from the day that their fathers came out of Egypt, even unto this day.'
+**¹⁵** because that they have done the evil thing in Mine eyes, and are provoking Me to anger from the day that their fathers came out of Egypt, even unto this day.'
 
-<sup>16</sup> And also, innocent blood hath Manasseh shed very much, till that he hath filled Jerusalem — mouth to mouth; apart from his sin that he hath caused Judah to sin, to do the evil thing in the eyes of Jehovah.
+**¹⁶** And also, innocent blood hath Manasseh shed very much, till that he hath filled Jerusalem — mouth to mouth; apart from his sin that he hath caused Judah to sin, to do the evil thing in the eyes of Jehovah.
 
-<sup>17</sup> And the rest of the matters of Manasseh, and all that he did, and his sin that he sinned, are they not written on the book of the Chronicles of the kings of Judah?
+**¹⁷** And the rest of the matters of Manasseh, and all that he did, and his sin that he sinned, are they not written on the book of the Chronicles of the kings of Judah?
 
-<sup>18</sup> And Manasseh lieth with his fathers, and is buried in the garden of his house, in the garden of Uzza, and reign doth Amon his son in his stead.
+**¹⁸** And Manasseh lieth with his fathers, and is buried in the garden of his house, in the garden of Uzza, and reign doth Amon his son in his stead.
 
-<sup>19</sup> A son of twenty and two years [is] Amon in his reigning, and two years he hath reigned in Jerusalem, and the name of his mother [is] Meshullemeth daughter of Haruz of Jotbah,
+**¹⁹** A son of twenty and two years [is] Amon in his reigning, and two years he hath reigned in Jerusalem, and the name of his mother [is] Meshullemeth daughter of Haruz of Jotbah,
 
-<sup>20</sup> and he doth the evil thing in the eyes of Jehovah, as did Manasseh his father,
+**²⁰** and he doth the evil thing in the eyes of Jehovah, as did Manasseh his father,
 
-<sup>21</sup> and walketh in all the way that his father walked in, and serveth the idols that his father served, and boweth himself to them,
+**²¹** and walketh in all the way that his father walked in, and serveth the idols that his father served, and boweth himself to them,
 
-<sup>22</sup> and forsaketh Jehovah, God of his fathers, and hath not walked in the way of Jehovah.
+**²²** and forsaketh Jehovah, God of his fathers, and hath not walked in the way of Jehovah.
 
-<sup>23</sup> And the servants of Amon conspire against him, and put the king to death in his own house,
+**²³** And the servants of Amon conspire against him, and put the king to death in his own house,
 
-<sup>24</sup> and the people of the land smite all those conspiring against king Amon, and the people of the land cause Josiah his son to reign in his stead.
+**²⁴** and the people of the land smite all those conspiring against king Amon, and the people of the land cause Josiah his son to reign in his stead.
 
-<sup>25</sup> And the rest of the matters of Amon that he did, are they not written on the book of the Chronicles of the kings of Judah?
+**²⁵** And the rest of the matters of Amon that he did, are they not written on the book of the Chronicles of the kings of Judah?
 
-<sup>26</sup> and [one] burieth him in his burying-place in the garden of Uzza, and reign doth Josiah his son in his stead.
+**²⁶** and [one] burieth him in his burying-place in the garden of Uzza, and reign doth Josiah his son in his stead.

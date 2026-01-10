@@ -1,45 +1,45 @@
 # Chapter 2
 
-<sup>1</sup> And there did come also false prophets among the people, as also among you there shall be false teachers, who shall bring in besides destructive sects, and the Master who bought them denying, bringing to themselves quick destruction,
+**¹** And there did come also false prophets among the people, as also among you there shall be false teachers, who shall bring in besides destructive sects, and the Master who bought them denying, bringing to themselves quick destruction,
 
-<sup>2</sup> and many shall follow out their destructive ways, because of whom the way of the truth shall be evil spoken of,
+**²** and many shall follow out their destructive ways, because of whom the way of the truth shall be evil spoken of,
 
-<sup>3</sup> and in covetousness, with moulded words, of you they shall make merchandise, whose judgment of old is not idle, and their destruction doth not slumber.
+**³** and in covetousness, with moulded words, of you they shall make merchandise, whose judgment of old is not idle, and their destruction doth not slumber.
 
-<sup>4</sup> For if God messengers who sinned did not spare, but with chains of thick gloom, having cast [them] down to Tartarus, did deliver [them] to judgment, having been reserved,
+**⁴** For if God messengers who sinned did not spare, but with chains of thick gloom, having cast [them] down to Tartarus, did deliver [them] to judgment, having been reserved,
 
-<sup>5</sup> and the old world did not spare, but the eighth person, Noah, of righteousness a preacher, did keep, a flood on the world of the impious having brought,
+**⁵** and the old world did not spare, but the eighth person, Noah, of righteousness a preacher, did keep, a flood on the world of the impious having brought,
 
-<sup>6</sup> and the cities of Sodom and Gomorrah having turned to ashes, with an overthrow did condemn, an example to those about to be impious having set [them];
+**⁶** and the cities of Sodom and Gomorrah having turned to ashes, with an overthrow did condemn, an example to those about to be impious having set [them];
 
-<sup>7</sup> and righteous Lot, worn down by the conduct in lasciviousness of the impious, He did rescue,
+**⁷** and righteous Lot, worn down by the conduct in lasciviousness of the impious, He did rescue,
 
-<sup>8</sup> for in seeing and hearing, the righteous man, dwelling among them, day by day the righteous soul with unlawful works was harassing.
+**⁸** for in seeing and hearing, the righteous man, dwelling among them, day by day the righteous soul with unlawful works was harassing.
 
-<sup>9</sup> The Lord hath known to rescue pious ones out of temptation, and unrighteous ones to a day of judgment, being punished, to keep,
+**⁹** The Lord hath known to rescue pious ones out of temptation, and unrighteous ones to a day of judgment, being punished, to keep,
 
-<sup>10</sup> and chiefly those going behind the flesh in desire of uncleanness, and lordship despising; presumptuous, self-complacent, dignities they are not afraid to speak evil of,
+**¹⁰** and chiefly those going behind the flesh in desire of uncleanness, and lordship despising; presumptuous, self-complacent, dignities they are not afraid to speak evil of,
 
-<sup>11</sup> whereas messengers, in strength and power being greater, do not bear against them before the Lord an evil speaking judgment;
+**¹¹** whereas messengers, in strength and power being greater, do not bear against them before the Lord an evil speaking judgment;
 
-<sup>12</sup> and these, as irrational natural beasts, made to be caught and destroyed — in what things they are ignorant of, speaking evil — in their destruction shall be destroyed,
+**¹²** and these, as irrational natural beasts, made to be caught and destroyed — in what things they are ignorant of, speaking evil — in their destruction shall be destroyed,
 
-<sup>13</sup> about to receive a reward of unrighteousness, pleasures counting the luxury in the day, spots and blemishes, luxuriating in their deceits, feasting with you,
+**¹³** about to receive a reward of unrighteousness, pleasures counting the luxury in the day, spots and blemishes, luxuriating in their deceits, feasting with you,
 
-<sup>14</sup> having eyes full of adultery, and unable to cease from sin, enticing unstable souls, having an heart exercised in covetousnesses, children of a curse,
+**¹⁴** having eyes full of adultery, and unable to cease from sin, enticing unstable souls, having an heart exercised in covetousnesses, children of a curse,
 
-<sup>15</sup> having forsaken a right way, they did go astray, having followed in the way of Balaam the [son] of Bosor, who a reward of unrighteousness did love,
+**¹⁵** having forsaken a right way, they did go astray, having followed in the way of Balaam the [son] of Bosor, who a reward of unrighteousness did love,
 
-<sup>16</sup> and had a rebuke of his own iniquity — a dumb ass, in man's voice having spoken, did forbid the madness of the prophet.
+**¹⁶** and had a rebuke of his own iniquity — a dumb ass, in man's voice having spoken, did forbid the madness of the prophet.
 
-<sup>17</sup> These are wells without water, and clouds by a tempest driven, to whom the thick gloom of the darkness to the age hath been kept;
+**¹⁷** These are wells without water, and clouds by a tempest driven, to whom the thick gloom of the darkness to the age hath been kept;
 
-<sup>18</sup> for overswellings of vanity speaking, they do entice in desires of the flesh — lasciviousnesses, those who had truly escaped from those conducting themselves in error,
+**¹⁸** for overswellings of vanity speaking, they do entice in desires of the flesh — lasciviousnesses, those who had truly escaped from those conducting themselves in error,
 
-<sup>19</sup> liberty to them promising, themselves being servants of the corruption, for by whom any one hath been overcome, to this one also he hath been brought to servitude,
+**¹⁹** liberty to them promising, themselves being servants of the corruption, for by whom any one hath been overcome, to this one also he hath been brought to servitude,
 
-<sup>20</sup> for, if having escaped from the pollutions of the world, in the acknowledging of the Lord and Saviour Jesus Christ, and by these again being entangled, they have been overcome, become to them hath the last things worse than the first,
+**²⁰** for, if having escaped from the pollutions of the world, in the acknowledging of the Lord and Saviour Jesus Christ, and by these again being entangled, they have been overcome, become to them hath the last things worse than the first,
 
-<sup>21</sup> for it were better to them not to have acknowledged the way of the righteousness, than having acknowledged [it], to turn back from the holy command delivered to them,
+**²¹** for it were better to them not to have acknowledged the way of the righteousness, than having acknowledged [it], to turn back from the holy command delivered to them,
 
-<sup>22</sup> and happened to them hath that of the true similitude; 'A dog did turn back upon his own vomit,' and, 'A sow having bathed herself — to rolling in mire.'
+**²²** and happened to them hath that of the true similitude; 'A dog did turn back upon his own vomit,' and, 'A sow having bathed herself — to rolling in mire.'

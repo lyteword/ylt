@@ -1,51 +1,51 @@
 # Chapter 5
 
-<sup>1</sup> And all the tribes of Israel come unto David, to Hebron, and speak, saying, 'Lo, we [are] thy bone and thy flesh;
+**¹** And all the tribes of Israel come unto David, to Hebron, and speak, saying, 'Lo, we [are] thy bone and thy flesh;
 
-<sup>2</sup> also heretofore, in Saul's being king over us, thou hast been he who is bringing out and bringing in Israel, and Jehovah saith to thee, Thou dost feed My people Israel, and thou art for leader over Israel.'
+**²** also heretofore, in Saul's being king over us, thou hast been he who is bringing out and bringing in Israel, and Jehovah saith to thee, Thou dost feed My people Israel, and thou art for leader over Israel.'
 
-<sup>3</sup> And all the elders of Israel come unto the king, to Hebron, and king David maketh with them a covenant in Hebron before Jehovah, and they anoint David for king over Israel.
+**³** And all the elders of Israel come unto the king, to Hebron, and king David maketh with them a covenant in Hebron before Jehovah, and they anoint David for king over Israel.
 
-<sup>4</sup> A son of thirty years [is] David in his being king; forty years he hath reigned;
+**⁴** A son of thirty years [is] David in his being king; forty years he hath reigned;
 
-<sup>5</sup> in Hebron he reigned over Judah seven years and six months, and in Jerusalem he reigned thirty and three years, over all Israel and Judah.
+**⁵** in Hebron he reigned over Judah seven years and six months, and in Jerusalem he reigned thirty and three years, over all Israel and Judah.
 
-<sup>6</sup> And the king goeth, and his men, to Jerusalem, unto the Jebusite, the inhabitant of the land, and they speak to David, saying, 'Thou dost not come in hither, except thou turn aside the blind and the lame;' saying, 'David doth not come in hither.'
+**⁶** And the king goeth, and his men, to Jerusalem, unto the Jebusite, the inhabitant of the land, and they speak to David, saying, 'Thou dost not come in hither, except thou turn aside the blind and the lame;' saying, 'David doth not come in hither.'
 
-<sup>7</sup> And David captureth the fortress of Zion, it [is] the city of David.
+**⁷** And David captureth the fortress of Zion, it [is] the city of David.
 
-<sup>8</sup> And David saith on that day, 'Any one smiting the Jebusite, (let him go up by the watercourse), and the lame and the blind — the hated of David's soul,' — because the blind and lame say, 'He doth not come into the house.'
+**⁸** And David saith on that day, 'Any one smiting the Jebusite, (let him go up by the watercourse), and the lame and the blind — the hated of David's soul,' — because the blind and lame say, 'He doth not come into the house.'
 
-<sup>9</sup> And David dwelleth in the fortress, and calleth it — City of David, and David buildeth round about, from Millo and inward,
+**⁹** And David dwelleth in the fortress, and calleth it — City of David, and David buildeth round about, from Millo and inward,
 
-<sup>10</sup> and David goeth, going on and becoming great, and Jehovah, God of Hosts, [is] with him.
+**¹⁰** and David goeth, going on and becoming great, and Jehovah, God of Hosts, [is] with him.
 
-<sup>11</sup> And Hiram king of Tyre sendeth messengers unto David, and cedar-trees, and artificers of wood, and artificers of stone, for walls, and they build a house for David,
+**¹¹** And Hiram king of Tyre sendeth messengers unto David, and cedar-trees, and artificers of wood, and artificers of stone, for walls, and they build a house for David,
 
-<sup>12</sup> and David knoweth that Jehovah hath established him for king over Israel, and that He hath lifted up his kingdom, because of His people Israel.
+**¹²** and David knoweth that Jehovah hath established him for king over Israel, and that He hath lifted up his kingdom, because of His people Israel.
 
-<sup>13</sup> And David taketh again concubines and wives out of Jerusalem, after his coming from Hebron, and there are born again to David sons and daughters.
+**¹³** And David taketh again concubines and wives out of Jerusalem, after his coming from Hebron, and there are born again to David sons and daughters.
 
-<sup>14</sup> And these [are] the names of those born to him in Jerusalem: Shammuah, and Shobab, and Nathan, and Solomon,
+**¹⁴** And these [are] the names of those born to him in Jerusalem: Shammuah, and Shobab, and Nathan, and Solomon,
 
-<sup>15</sup> and Ibhar, and Elishua, and Nepheg, and Japhia,
+**¹⁵** and Ibhar, and Elishua, and Nepheg, and Japhia,
 
-<sup>16</sup> and Elishama, and Eliada, and Eliphalet.
+**¹⁶** and Elishama, and Eliada, and Eliphalet.
 
-<sup>17</sup> And the Philistines hear that they have anointed David for king over Israel, and all the Philistines come up to seek David, and David heareth, and goeth down unto the fortress,
+**¹⁷** And the Philistines hear that they have anointed David for king over Israel, and all the Philistines come up to seek David, and David heareth, and goeth down unto the fortress,
 
-<sup>18</sup> and the Philistines have come, and are spread out in the valley of Rephaim.
+**¹⁸** and the Philistines have come, and are spread out in the valley of Rephaim.
 
-<sup>19</sup> And David asketh of Jehovah, saying, 'Do I go up unto the Philistines? dost Thou give them into my hand?' And Jehovah saith unto David, 'Go up, for I certainly give the Philistines into thy hand.'
+**¹⁹** And David asketh of Jehovah, saying, 'Do I go up unto the Philistines? dost Thou give them into my hand?' And Jehovah saith unto David, 'Go up, for I certainly give the Philistines into thy hand.'
 
-<sup>20</sup> And David cometh in to Baal-Perazim, and David smiteth them there, and saith, 'Jehovah hath broken forth [on] mine enemies before me, as the breaking forth of waters;' therefore he hath called the name of that place Baal-Perazim.
+**²⁰** And David cometh in to Baal-Perazim, and David smiteth them there, and saith, 'Jehovah hath broken forth [on] mine enemies before me, as the breaking forth of waters;' therefore he hath called the name of that place Baal-Perazim.
 
-<sup>21</sup> And they forsake there their idols, and David and his men lift them up.
+**²¹** And they forsake there their idols, and David and his men lift them up.
 
-<sup>22</sup> And the Philistines add again to come up, and are spread out in the valley of Rephaim,
+**²²** And the Philistines add again to come up, and are spread out in the valley of Rephaim,
 
-<sup>23</sup> and David asketh of Jehovah, and He saith, 'Thou dost not go up, turn round unto their rear, and thou hast come to them over-against the mulberries,
+**²³** and David asketh of Jehovah, and He saith, 'Thou dost not go up, turn round unto their rear, and thou hast come to them over-against the mulberries,
 
-<sup>24</sup> and it cometh to pass, in thy hearing the sound of a stepping in the tops of the mulberries, then thou dost move sharply, for then hath Jehovah gone out before thee to smite in the camp of the Philistines.'
+**²⁴** and it cometh to pass, in thy hearing the sound of a stepping in the tops of the mulberries, then thou dost move sharply, for then hath Jehovah gone out before thee to smite in the camp of the Philistines.'
 
-<sup>25</sup> And David doth so, as Jehovah commanded him, and smiteth the Philistines from Geba unto thy coming to Gazer.
+**²⁵** And David doth so, as Jehovah commanded him, and smiteth the Philistines from Geba unto thy coming to Gazer.

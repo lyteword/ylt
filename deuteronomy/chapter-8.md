@@ -1,41 +1,41 @@
 # Chapter 8
 
-<sup>1</sup> 'All the command which I am commanding thee to-day ye observe to do, so that ye live, and have multiplied, and gone in, and possessed the land which Jehovah hath sworn to your fathers;
+**¹** 'All the command which I am commanding thee to-day ye observe to do, so that ye live, and have multiplied, and gone in, and possessed the land which Jehovah hath sworn to your fathers;
 
-<sup>2</sup> and thou hast remembered all the way which Jehovah thy God hath caused thee to go these forty years in the wilderness, in order to humble thee to try thee, to know that which [is] in thy heart, whether thou dost keep His commands or not.
+**²** and thou hast remembered all the way which Jehovah thy God hath caused thee to go these forty years in the wilderness, in order to humble thee to try thee, to know that which [is] in thy heart, whether thou dost keep His commands or not.
 
-<sup>3</sup> 'And He doth humble thee, and cause thee to hunger and doth cause thee to eat the manna (which thou hast not known, even thy fathers have not known), in order to cause thee to know that not by bread alone doth man live, but by every produce of the mouth of Jehovah man doth live.
+**³** 'And He doth humble thee, and cause thee to hunger and doth cause thee to eat the manna (which thou hast not known, even thy fathers have not known), in order to cause thee to know that not by bread alone doth man live, but by every produce of the mouth of Jehovah man doth live.
 
-<sup>4</sup> 'Thy raiment hath not worn out from off thee, and thy foot hath not swelled these forty years,
+**⁴** 'Thy raiment hath not worn out from off thee, and thy foot hath not swelled these forty years,
 
-<sup>5</sup> and thou hast known, with thy heart, that as a man chastiseth his son Jehovah thy God is chastising thee,
+**⁵** and thou hast known, with thy heart, that as a man chastiseth his son Jehovah thy God is chastising thee,
 
-<sup>6</sup> and thou hast kept the commands of Jehovah thy God, to walk in His ways, and to fear Him.
+**⁶** and thou hast kept the commands of Jehovah thy God, to walk in His ways, and to fear Him.
 
-<sup>7</sup> 'For Jehovah thy God is bringing thee in unto a good land, a land of brooks of waters, of fountains, and of depths coming out in valley and in mountain:
+**⁷** 'For Jehovah thy God is bringing thee in unto a good land, a land of brooks of waters, of fountains, and of depths coming out in valley and in mountain:
 
-<sup>8</sup> a land of wheat, and barley, and vine, and fig, and pomegranate; a land of oil olive and honey;
+**⁸** a land of wheat, and barley, and vine, and fig, and pomegranate; a land of oil olive and honey;
 
-<sup>9</sup> a land in which without scarcity thou dost eat bread, thou dost not lack anything in it; a land whose stones [are] iron, and out of its mountains thou dost dig brass;
+**⁹** a land in which without scarcity thou dost eat bread, thou dost not lack anything in it; a land whose stones [are] iron, and out of its mountains thou dost dig brass;
 
-<sup>10</sup> and thou hast eaten, and been satisfied, and hast blessed Jehovah thy God, on the good land which he hath given to thee.
+**¹⁰** and thou hast eaten, and been satisfied, and hast blessed Jehovah thy God, on the good land which he hath given to thee.
 
-<sup>11</sup> 'Take heed to thyself, lest thou forget Jehovah thy God so as not to keep His commands, and His judgments, and His statutes which I am commanding thee to-day;
+**¹¹** 'Take heed to thyself, lest thou forget Jehovah thy God so as not to keep His commands, and His judgments, and His statutes which I am commanding thee to-day;
 
-<sup>12</sup> lest thou eat, and hast been satisfied, and good houses dost build, and hast inhabited;
+**¹²** lest thou eat, and hast been satisfied, and good houses dost build, and hast inhabited;
 
-<sup>13</sup> and thy herd and thy flock be multiplied, and silver and gold be multiplied to thee; and all that is thine be multiplied:
+**¹³** and thy herd and thy flock be multiplied, and silver and gold be multiplied to thee; and all that is thine be multiplied:
 
-<sup>14</sup> 'And thy heart hath been high, and thou hast forgotten Jehovah thy God (who is bringing thee out of the land of Egypt, out of a house of servants;
+**¹⁴** 'And thy heart hath been high, and thou hast forgotten Jehovah thy God (who is bringing thee out of the land of Egypt, out of a house of servants;
 
-<sup>15</sup> who is causing thee to go in the great and the terrible wilderness — burning serpent, and scorpion, and thirst — where there is no water; who is bringing out to thee waters from the flinty rock;
+**¹⁵** who is causing thee to go in the great and the terrible wilderness — burning serpent, and scorpion, and thirst — where there is no water; who is bringing out to thee waters from the flinty rock;
 
-<sup>16</sup> who is causing thee to eat manna in the wilderness, which thy fathers have not known, in order to humble thee, and in order to try thee, to do thee good in thy latter end),
+**¹⁶** who is causing thee to eat manna in the wilderness, which thy fathers have not known, in order to humble thee, and in order to try thee, to do thee good in thy latter end),
 
-<sup>17</sup> and thou hast said in thy heart, My power, and the might of my hand, hath made for me this wealth:
+**¹⁷** and thou hast said in thy heart, My power, and the might of my hand, hath made for me this wealth:
 
-<sup>18</sup> 'And thou hast remembered Jehovah thy God, for He it [is] who is giving to thee power to make wealth, in order to establish His covenant which He hath sworn to thy fathers as [at] this day.
+**¹⁸** 'And thou hast remembered Jehovah thy God, for He it [is] who is giving to thee power to make wealth, in order to establish His covenant which He hath sworn to thy fathers as [at] this day.
 
-<sup>19</sup> 'And it hath been — if thou really forget Jehovah thy God, and hast gone after other gods, and served them, and bowed thyself to them, I have testified against you to-day that ye do utterly perish;
+**¹⁹** 'And it hath been — if thou really forget Jehovah thy God, and hast gone after other gods, and served them, and bowed thyself to them, I have testified against you to-day that ye do utterly perish;
 
-<sup>20</sup> as the nations whom Jehovah is destroying from your presence, so ye perish; because ye hearken not to the voice of Jehovah your God.
+**²⁰** as the nations whom Jehovah is destroying from your presence, so ye perish; because ye hearken not to the voice of Jehovah your God.

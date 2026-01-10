@@ -1,43 +1,43 @@
 # Chapter 29
 
-<sup>1</sup> In the tenth year, in the tenth [month], in the twelfth of the month, hath a word of Jehovah been unto me, saying,
+**¹** In the tenth year, in the tenth [month], in the twelfth of the month, hath a word of Jehovah been unto me, saying,
 
-<sup>2</sup> 'Son of man, set thy face against Pharaoh king of Egypt, and prophesy concerning him, and concerning Egypt — all of it.
+**²** 'Son of man, set thy face against Pharaoh king of Egypt, and prophesy concerning him, and concerning Egypt — all of it.
 
-<sup>3</sup> Speak, and thou hast said: Thus said the Lord Jehovah: Lo, I [am] against thee, Pharaoh king of Egypt! The great dragon that is crouching in the midst of his floods, Who hath said, My flood [is] my own, And I — I have made it [for] myself.
+**³** Speak, and thou hast said: Thus said the Lord Jehovah: Lo, I [am] against thee, Pharaoh king of Egypt! The great dragon that is crouching in the midst of his floods, Who hath said, My flood [is] my own, And I — I have made it [for] myself.
 
-<sup>4</sup> And I have put hooks in thy jaws, And I have caused the fish of thy floods to cleave to thy scales, And I have caused thee to come up from the midst of thy floods, And every fish of thy floods to thy scales doth cleave.
+**⁴** And I have put hooks in thy jaws, And I have caused the fish of thy floods to cleave to thy scales, And I have caused thee to come up from the midst of thy floods, And every fish of thy floods to thy scales doth cleave.
 
-<sup>5</sup> And I have left thee in the wilderness, Thou and every fish of thy floods, On the face of the field thou dost fall, Thou art not gathered nor assembled, To the beast of the earth and to the fowl of the heavens I have given thee for food.
+**⁵** And I have left thee in the wilderness, Thou and every fish of thy floods, On the face of the field thou dost fall, Thou art not gathered nor assembled, To the beast of the earth and to the fowl of the heavens I have given thee for food.
 
-<sup>6</sup> And known have all inhabitants of Egypt That I [am] Jehovah, Because of their being a staff of reed to the house of Israel.
+**⁶** And known have all inhabitants of Egypt That I [am] Jehovah, Because of their being a staff of reed to the house of Israel.
 
-<sup>7</sup> In their taking hold of thee by thy hand, — thou art crushed, And hast rent to them all the shoulder, And in their leaning on thee thou art broken, And hast caused all their thighs to stand.
+**⁷** In their taking hold of thee by thy hand, — thou art crushed, And hast rent to them all the shoulder, And in their leaning on thee thou art broken, And hast caused all their thighs to stand.
 
-<sup>8</sup> Therefore, thus said the Lord Jehovah: Lo, I am bringing in against thee a sword, And have cut off from thee man and beast.
+**⁸** Therefore, thus said the Lord Jehovah: Lo, I am bringing in against thee a sword, And have cut off from thee man and beast.
 
-<sup>9</sup> And the land of Egypt hath been for a desolation and a waste, And they have known that I [am] Jehovah. Because he said: The flood [is] mine, and I made [it].
+**⁹** And the land of Egypt hath been for a desolation and a waste, And they have known that I [am] Jehovah. Because he said: The flood [is] mine, and I made [it].
 
-<sup>10</sup> Therefore, lo, I [am] against thee, and against thy floods, And have given the land of Egypt for wastes, A waste, a desolation, from Migdol to Syene, And unto the border of Cush.
+**¹⁰** Therefore, lo, I [am] against thee, and against thy floods, And have given the land of Egypt for wastes, A waste, a desolation, from Migdol to Syene, And unto the border of Cush.
 
-<sup>11</sup> Not pass over into it doth a foot of man, Yea, the foot of beast doth not pass into it, Nor is it inhabited forty years.
+**¹¹** Not pass over into it doth a foot of man, Yea, the foot of beast doth not pass into it, Nor is it inhabited forty years.
 
-<sup>12</sup> And I have made the land of Egypt a desolation, In the midst of desolate lands, And its cities, in the midst of waste cities, Are a desolation forty years, And I have scattered the Egyptians among nations, And I have dispersed them through lands.
+**¹²** And I have made the land of Egypt a desolation, In the midst of desolate lands, And its cities, in the midst of waste cities, Are a desolation forty years, And I have scattered the Egyptians among nations, And I have dispersed them through lands.
 
-<sup>13</sup> But thus said the Lord Jehovah: At the end of forty years I gather the Egyptians Out of the peoples whither they have been scattered,
+**¹³** But thus said the Lord Jehovah: At the end of forty years I gather the Egyptians Out of the peoples whither they have been scattered,
 
-<sup>14</sup> And I have turned back [to] the captivity of Egypt, And I have brought them back [To] the land of Pathros, to the land of their birth, And they have been there a low kingdom.
+**¹⁴** And I have turned back [to] the captivity of Egypt, And I have brought them back [To] the land of Pathros, to the land of their birth, And they have been there a low kingdom.
 
-<sup>15</sup> Of the kingdoms it is lowest, And it lifteth not up itself any more above the nations, And I have made them few, So as not to rule among nations.
+**¹⁵** Of the kingdoms it is lowest, And it lifteth not up itself any more above the nations, And I have made them few, So as not to rule among nations.
 
-<sup>16</sup> And it is no more to the house of Israel for a confidence, Bringing iniquity to remembrance, By their turning after them, And they have known that I [am] the Lord Jehovah.'
+**¹⁶** And it is no more to the house of Israel for a confidence, Bringing iniquity to remembrance, By their turning after them, And they have known that I [am] the Lord Jehovah.'
 
-<sup>17</sup> And it cometh to pass, in the twenty and seventh year, in the first [month], in the first of the month, hath a word of Jehovah been unto me, saying:
+**¹⁷** And it cometh to pass, in the twenty and seventh year, in the first [month], in the first of the month, hath a word of Jehovah been unto me, saying:
 
-<sup>18</sup> 'Son of man, Nebuchadrezzar king of Babylon, Hath caused his force to serve a great service against Tyre, Every head [is] bald — every shoulder peeled, And reward he had none, nor his force, out of Tyre, For the service that he served against it.
+**¹⁸** 'Son of man, Nebuchadrezzar king of Babylon, Hath caused his force to serve a great service against Tyre, Every head [is] bald — every shoulder peeled, And reward he had none, nor his force, out of Tyre, For the service that he served against it.
 
-<sup>19</sup> Therefore, thus said the Lord Jehovah, Lo, I am giving to Nebuchadrezzar king of Babylon the land of Egypt, And he hath taken away its store, And hath taken its spoil, and taken its prey, And it hath been a reward to his force.
+**¹⁹** Therefore, thus said the Lord Jehovah, Lo, I am giving to Nebuchadrezzar king of Babylon the land of Egypt, And he hath taken away its store, And hath taken its spoil, and taken its prey, And it hath been a reward to his force.
 
-<sup>20</sup> His wage for which he laboured I have given to him, The land of Egypt — in that they wrought for Me, An affirmation of the Lord Jehovah.
+**²⁰** His wage for which he laboured I have given to him, The land of Egypt — in that they wrought for Me, An affirmation of the Lord Jehovah.
 
-<sup>21</sup> In that day I cause to shoot up a horn to the house of Israel, And to thee I give an opening of the mouth in their midst, And they have known that I [am] Jehovah!'
+**²¹** In that day I cause to shoot up a horn to the house of Israel, And to thee I give an opening of the mouth in their midst, And they have known that I [am] Jehovah!'

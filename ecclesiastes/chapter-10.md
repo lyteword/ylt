@@ -1,41 +1,41 @@
 # Chapter 10
 
-<sup>1</sup> Dead flies cause a perfumer's perfume To send forth a stink; The precious by reason of wisdom — By reason of honour — a little folly!
+**¹** Dead flies cause a perfumer's perfume To send forth a stink; The precious by reason of wisdom — By reason of honour — a little folly!
 
-<sup>2</sup> The heart of the wise [is] at his right hand, And the heart of a fool at his left.
+**²** The heart of the wise [is] at his right hand, And the heart of a fool at his left.
 
-<sup>3</sup> And also, when he that is a fool Is walking in the way, his heart is lacking, And he hath said to every one, 'He [is] a fool.'
+**³** And also, when he that is a fool Is walking in the way, his heart is lacking, And he hath said to every one, 'He [is] a fool.'
 
-<sup>4</sup> If the spirit of the ruler go up against thee, Thy place leave not, For yielding quieteth great sinners.
+**⁴** If the spirit of the ruler go up against thee, Thy place leave not, For yielding quieteth great sinners.
 
-<sup>5</sup> There is an evil I have seen under the sun, As an error that goeth out from the ruler,
+**⁵** There is an evil I have seen under the sun, As an error that goeth out from the ruler,
 
-<sup>6</sup> He hath set the fool in many high places, And the rich in a low place do sit.
+**⁶** He hath set the fool in many high places, And the rich in a low place do sit.
 
-<sup>7</sup> I have seen servants on horses, And princes walking as servants on the earth.
+**⁷** I have seen servants on horses, And princes walking as servants on the earth.
 
-<sup>8</sup> Whoso is digging a pit falleth into it, And whoso is breaking a hedge, a serpent biteth him.
+**⁸** Whoso is digging a pit falleth into it, And whoso is breaking a hedge, a serpent biteth him.
 
-<sup>9</sup> Whoso is removing stones is grieved by them, Whoso is cleaving trees endangered by them.
+**⁹** Whoso is removing stones is grieved by them, Whoso is cleaving trees endangered by them.
 
-<sup>10</sup> If the iron hath been blunt, And he the face hath not sharpened, Then doth he increase strength, And wisdom [is] advantageous to make right.
+**¹⁰** If the iron hath been blunt, And he the face hath not sharpened, Then doth he increase strength, And wisdom [is] advantageous to make right.
 
-<sup>11</sup> If the serpent biteth without enchantment, Then there is no advantage to a master of the tongue.
+**¹¹** If the serpent biteth without enchantment, Then there is no advantage to a master of the tongue.
 
-<sup>12</sup> Words of the mouth of the wise [are] gracious, And the lips of a fool swallow him up.
+**¹²** Words of the mouth of the wise [are] gracious, And the lips of a fool swallow him up.
 
-<sup>13</sup> The beginning of the words of his mouth [is] folly, And the latter end of his mouth [Is] mischievous madness.
+**¹³** The beginning of the words of his mouth [is] folly, And the latter end of his mouth [Is] mischievous madness.
 
-<sup>14</sup> And the fool multiplieth words: 'Man knoweth not that which is, And that which is after him, who doth declare to him?'
+**¹⁴** And the fool multiplieth words: 'Man knoweth not that which is, And that which is after him, who doth declare to him?'
 
-<sup>15</sup> The labour of the foolish wearieth him, In that he hath not known to go unto the city.
+**¹⁵** The labour of the foolish wearieth him, In that he hath not known to go unto the city.
 
-<sup>16</sup> Woe to thee, O land, when thy king [is] a youth, And thy princes do eat in the morning.
+**¹⁶** Woe to thee, O land, when thy king [is] a youth, And thy princes do eat in the morning.
 
-<sup>17</sup> Happy art thou, O land, When thy king [is] a son of freemen, And thy princes do eat in due season, For might, and not for drunkenness.
+**¹⁷** Happy art thou, O land, When thy king [is] a son of freemen, And thy princes do eat in due season, For might, and not for drunkenness.
 
-<sup>18</sup> By slothfulness is the wall brought low, And by idleness of the hands doth the house drop.
+**¹⁸** By slothfulness is the wall brought low, And by idleness of the hands doth the house drop.
 
-<sup>19</sup> For mirth they are making a feast, And wine maketh life joyful, And the silver answereth with all.
+**¹⁹** For mirth they are making a feast, And wine maketh life joyful, And the silver answereth with all.
 
-<sup>20</sup> Even in thy mind a king revile not, And in the inner parts of thy bed-chamber Revile not the rich: For a fowl of the heavens causeth the voice to go, And a possessor of wings declareth the word.
+**²⁰** Even in thy mind a king revile not, And in the inner parts of thy bed-chamber Revile not the rich: For a fowl of the heavens causeth the voice to go, And a possessor of wings declareth the word.

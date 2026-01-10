@@ -1,25 +1,25 @@
 # Chapter 5
 
-<sup>1</sup> And the Philistines have taken the ark of God, and bring it in from Eben-Ezer to Ashdod,
+**¹** And the Philistines have taken the ark of God, and bring it in from Eben-Ezer to Ashdod,
 
-<sup>2</sup> and the Philistines take the ark of God and bring it into the house of Dagon, and set it near Dagon.
+**²** and the Philistines take the ark of God and bring it into the house of Dagon, and set it near Dagon.
 
-<sup>3</sup> And the Ashdodites rise early on the morrow, and lo, Dagon is fallen on its face to the earth, before the ark of Jehovah; and they take Dagon, and put it back to its place.
+**³** And the Ashdodites rise early on the morrow, and lo, Dagon is fallen on its face to the earth, before the ark of Jehovah; and they take Dagon, and put it back to its place.
 
-<sup>4</sup> And they rise early in the morning on the morrow, and lo, Dagon is fallen on its face to the earth, before the ark of Jehovah, and the head of Dagon, and the two palms of its hands are cut off at the threshold, only the fishy part hath been left to him;
+**⁴** And they rise early in the morning on the morrow, and lo, Dagon is fallen on its face to the earth, before the ark of Jehovah, and the head of Dagon, and the two palms of its hands are cut off at the threshold, only the fishy part hath been left to him;
 
-<sup>5</sup> therefore the priests of Dagon, and all those coming into the house of Dagon, tread not on the threshold of Dagon, in Ashdod, till this day.
+**⁵** therefore the priests of Dagon, and all those coming into the house of Dagon, tread not on the threshold of Dagon, in Ashdod, till this day.
 
-<sup>6</sup> And the hand of Jehovah is heavy on the Ashdodites, and He maketh them desolate, and smiteth them with emerods, Ashdod and its borders.
+**⁶** And the hand of Jehovah is heavy on the Ashdodites, and He maketh them desolate, and smiteth them with emerods, Ashdod and its borders.
 
-<sup>7</sup> And the men of Ashdod see that [it is] so, and have said, 'The ark of the God of Israel doth not abide with us, for hard hath been His hand upon us, and upon Dagon our god.'
+**⁷** And the men of Ashdod see that [it is] so, and have said, 'The ark of the God of Israel doth not abide with us, for hard hath been His hand upon us, and upon Dagon our god.'
 
-<sup>8</sup> And they send and gather all the princes of the Philistines unto them, and say, 'What do we do to the ark of the God of Israel?' and they say, 'To Gath let the ark of the God of Israel be brought round;' and they bring round the ark of the God of Israel;
+**⁸** And they send and gather all the princes of the Philistines unto them, and say, 'What do we do to the ark of the God of Israel?' and they say, 'To Gath let the ark of the God of Israel be brought round;' and they bring round the ark of the God of Israel;
 
-<sup>9</sup> and it cometh to pass after they have brought it round, that the hand of Jehovah is against the city — a very great destruction; and He smiteth the men of the city, from small even unto great; and break forth on them do emerods.
+**⁹** and it cometh to pass after they have brought it round, that the hand of Jehovah is against the city — a very great destruction; and He smiteth the men of the city, from small even unto great; and break forth on them do emerods.
 
-<sup>10</sup> And they send the ark of God to Ekron, and it cometh to pass, at the coming in of the ark of God to Ekron, that the Ekronites cry out, saying, 'They have brought round unto us the ark of the God of Israel, to put us to death — and our people.'
+**¹⁰** And they send the ark of God to Ekron, and it cometh to pass, at the coming in of the ark of God to Ekron, that the Ekronites cry out, saying, 'They have brought round unto us the ark of the God of Israel, to put us to death — and our people.'
 
-<sup>11</sup> And they send and gather all the princes of the Philistines, and say, 'Send away the ark of the God of Israel, and it turneth back to its place, and it doth not put us to death — and our people;' for there hath been a deadly destruction throughout all the city, very heavy hath the hand of God been there,
+**¹¹** And they send and gather all the princes of the Philistines, and say, 'Send away the ark of the God of Israel, and it turneth back to its place, and it doth not put us to death — and our people;' for there hath been a deadly destruction throughout all the city, very heavy hath the hand of God been there,
 
-<sup>12</sup> and the men who have not died have been smitten with emerods, and the cry of the city goeth up into the heavens.
+**¹²** and the men who have not died have been smitten with emerods, and the cry of the city goeth up into the heavens.

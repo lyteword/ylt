@@ -1,47 +1,47 @@
 # Chapter 47
 
-<sup>1</sup> And he causeth me to turn back unto the opening of the house; and lo, water is coming forth from under the threshold of the house eastward, for the front of the house [is] eastward, and the water is coming down from beneath, from the right side of the house, from the south of the altar.
+**¹** And he causeth me to turn back unto the opening of the house; and lo, water is coming forth from under the threshold of the house eastward, for the front of the house [is] eastward, and the water is coming down from beneath, from the right side of the house, from the south of the altar.
 
-<sup>2</sup> And he causeth me to go out the way of the gate northward, and causeth me to turn round the way without, unto the gate that [is] without, the way that is looking eastward, and lo, water is coming forth from the right side.
+**²** And he causeth me to go out the way of the gate northward, and causeth me to turn round the way without, unto the gate that [is] without, the way that is looking eastward, and lo, water is coming forth from the right side.
 
-<sup>3</sup> In the going out of the man eastward, and a line in his hand, then he measureth a thousand by the cubit, and he causeth me to pass over into water — water to the ankles.
+**³** In the going out of the man eastward, and a line in his hand, then he measureth a thousand by the cubit, and he causeth me to pass over into water — water to the ankles.
 
-<sup>4</sup> And he measureth a thousand, and causeth me to pass over into water — water to the knees. And he measureth a thousand, and causeth me to pass over — water to the loins.
+**⁴** And he measureth a thousand, and causeth me to pass over into water — water to the knees. And he measureth a thousand, and causeth me to pass over — water to the loins.
 
-<sup>5</sup> And he measureth a thousand — a stream that I am not able to pass over; for risen have the waters — waters to swim in — a stream that is not passed over.
+**⁵** And he measureth a thousand — a stream that I am not able to pass over; for risen have the waters — waters to swim in — a stream that is not passed over.
 
-<sup>6</sup> And he saith unto me, 'Hast thou seen, son of man?' and he leadeth me, and bringeth me back unto the edge of the stream.
+**⁶** And he saith unto me, 'Hast thou seen, son of man?' and he leadeth me, and bringeth me back unto the edge of the stream.
 
-<sup>7</sup> In my turning back, then, lo, at the edge of the stream [are] very many trees, on this side and on that side.
+**⁷** In my turning back, then, lo, at the edge of the stream [are] very many trees, on this side and on that side.
 
-<sup>8</sup> And he saith unto me, 'These waters are going forth unto the east circuit, and have gone down unto the desert, and have entered the sea; unto the sea they are brought forth, and the waters have been healed.
+**⁸** And he saith unto me, 'These waters are going forth unto the east circuit, and have gone down unto the desert, and have entered the sea; unto the sea they are brought forth, and the waters have been healed.
 
-<sup>9</sup> And it hath come to pass, every living creature that teemeth, whithersoever the streams come, doth live: and there hath been great abundance of fish, for these waters have come thither, and they are healed; and every thing whither the stream cometh hath lived.
+**⁹** And it hath come to pass, every living creature that teemeth, whithersoever the streams come, doth live: and there hath been great abundance of fish, for these waters have come thither, and they are healed; and every thing whither the stream cometh hath lived.
 
-<sup>10</sup> And it hath come to pass, fishers do stand by it, from En-Gedi even unto En-Eglaim; a spreading place of nets they are; according to their own kind is their fish, as the fish of the great sea, very many.
+**¹⁰** And it hath come to pass, fishers do stand by it, from En-Gedi even unto En-Eglaim; a spreading place of nets they are; according to their own kind is their fish, as the fish of the great sea, very many.
 
-<sup>11</sup> Its miry and its marshy places — they are not healed; to salt they have been given up.
+**¹¹** Its miry and its marshy places — they are not healed; to salt they have been given up.
 
-<sup>12</sup> And by the stream there cometh up on its edge, on this side and on that side, every [kind of] fruit-tree whose leaf fadeth not, and not consumed is its fruit, according to its months it yieldeth first-fruits, because its waters from the sanctuary are coming forth; and its fruits hath been for food, and its leaf for medicine.
+**¹²** And by the stream there cometh up on its edge, on this side and on that side, every [kind of] fruit-tree whose leaf fadeth not, and not consumed is its fruit, according to its months it yieldeth first-fruits, because its waters from the sanctuary are coming forth; and its fruits hath been for food, and its leaf for medicine.
 
-<sup>13</sup> 'Thus said the Lord Jehovah: This [is] the border whereby ye inherit the land, according to the twelve tribes of Israel; Joseph [hath] portions.
+**¹³** 'Thus said the Lord Jehovah: This [is] the border whereby ye inherit the land, according to the twelve tribes of Israel; Joseph [hath] portions.
 
-<sup>14</sup> And ye have inherited it, one as well as another, in that I have lifted up My hand to give it to your fathers; and this land hath fallen to you in inheritance.
+**¹⁴** And ye have inherited it, one as well as another, in that I have lifted up My hand to give it to your fathers; and this land hath fallen to you in inheritance.
 
-<sup>15</sup> 'And this [is] the border of the land at the north quarter; from the great sea, the way of Hethlon, at the coming in to Zedad:
+**¹⁵** 'And this [is] the border of the land at the north quarter; from the great sea, the way of Hethlon, at the coming in to Zedad:
 
-<sup>16</sup> Hamath, Berothah, Sibraim, that [is] between the border of Damascus and the border of Hamath; Hazar-Hatticon, that [is] at the coast of Havran.
+**¹⁶** Hamath, Berothah, Sibraim, that [is] between the border of Damascus and the border of Hamath; Hazar-Hatticon, that [is] at the coast of Havran.
 
-<sup>17</sup> And the border from the sea hath been Hazar-Enan, the border of Damascus, and Zaphon at the north, and the border of Hamath: and [this is] the north quarter.
+**¹⁷** And the border from the sea hath been Hazar-Enan, the border of Damascus, and Zaphon at the north, and the border of Hamath: and [this is] the north quarter.
 
-<sup>18</sup> 'And the east quarter [is] from between Havran, and Damascus, and Gilead, and the land of Israel, [to] the Jordan; from the border over-against the eastern sea ye measure: and [this is] the east quarter.
+**¹⁸** 'And the east quarter [is] from between Havran, and Damascus, and Gilead, and the land of Israel, [to] the Jordan; from the border over-against the eastern sea ye measure: and [this is] the east quarter.
 
-<sup>19</sup> 'And the south quarter southward [is] from Tamar unto the waters of Meriboth-Kadesh, the stream unto the great sea: and [this is] the south quarter southward.
+**¹⁹** 'And the south quarter southward [is] from Tamar unto the waters of Meriboth-Kadesh, the stream unto the great sea: and [this is] the south quarter southward.
 
-<sup>20</sup> 'And the west quarter [is] the great sea, from the border till over-against the coming in to Hamath: this [is] the west quarter.
+**²⁰** 'And the west quarter [is] the great sea, from the border till over-against the coming in to Hamath: this [is] the west quarter.
 
-<sup>21</sup> 'And ye have divided this land to you, according to the tribes of Israel;
+**²¹** 'And ye have divided this land to you, according to the tribes of Israel;
 
-<sup>22</sup> and it hath come to pass, ye separate it for an inheritance to yourselves, and to the sojourners who are sojourning in your midst, who have begotten sons in your midst, and they have been to you as native, with the sons of Israel, with you they are separated for an inheritance in the midst of the tribes of Israel.
+**²²** and it hath come to pass, ye separate it for an inheritance to yourselves, and to the sojourners who are sojourning in your midst, who have begotten sons in your midst, and they have been to you as native, with the sons of Israel, with you they are separated for an inheritance in the midst of the tribes of Israel.
 
-<sup>23</sup> And it hath come to pass, in the tribe with which the sojourner sojourneth, there ye give his inheritance — an affirmation of the Lord Jehovah.
+**²³** And it hath come to pass, in the tribe with which the sojourner sojourneth, there ye give his inheritance — an affirmation of the Lord Jehovah.

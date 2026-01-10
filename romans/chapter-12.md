@@ -1,43 +1,43 @@
 # Chapter 12
 
-<sup>1</sup> I call upon you, therefore, brethren, through the compassions of God, to present your bodies a sacrifice — living, sanctified, acceptable to God — your intelligent service;
+**¹** I call upon you, therefore, brethren, through the compassions of God, to present your bodies a sacrifice — living, sanctified, acceptable to God — your intelligent service;
 
-<sup>2</sup> and be not conformed to this age, but be transformed by the renewing of your mind, for your proving what [is] the will of God — the good, and acceptable, and perfect.
+**²** and be not conformed to this age, but be transformed by the renewing of your mind, for your proving what [is] the will of God — the good, and acceptable, and perfect.
 
-<sup>3</sup> For I say, through the grace that was given to me, to every one who is among you, not to think above what it behoveth to think; but to think so as to think wisely, as to each God did deal a measure of faith,
+**³** For I say, through the grace that was given to me, to every one who is among you, not to think above what it behoveth to think; but to think so as to think wisely, as to each God did deal a measure of faith,
 
-<sup>4</sup> for as in one body we have many members, and all the members have not the same office,
+**⁴** for as in one body we have many members, and all the members have not the same office,
 
-<sup>5</sup> so we, the many, one body are in Christ, and members each one of one another.
+**⁵** so we, the many, one body are in Christ, and members each one of one another.
 
-<sup>6</sup> And having gifts, different according to the grace that was given to us; whether prophecy — 'According to the proportion of faith!'
+**⁶** And having gifts, different according to the grace that was given to us; whether prophecy — 'According to the proportion of faith!'
 
-<sup>7</sup> or ministration — 'In the ministration!' or he who is teaching — 'In the teaching!'
+**⁷** or ministration — 'In the ministration!' or he who is teaching — 'In the teaching!'
 
-<sup>8</sup> or he who is exhorting — 'In the exhortation!' he who is sharing — 'In simplicity!' he who is leading — 'In diligence?' he who is doing kindness — 'In cheerfulness.'
+**⁸** or he who is exhorting — 'In the exhortation!' he who is sharing — 'In simplicity!' he who is leading — 'In diligence?' he who is doing kindness — 'In cheerfulness.'
 
-<sup>9</sup> The love unfeigned: abhorring the evil; cleaving to the good;
+**⁹** The love unfeigned: abhorring the evil; cleaving to the good;
 
-<sup>10</sup> in the love of brethren, to one another kindly affectioned: in the honour going before one another;
+**¹⁰** in the love of brethren, to one another kindly affectioned: in the honour going before one another;
 
-<sup>11</sup> in the diligence not slothful; in the spirit fervent; the Lord serving;
+**¹¹** in the diligence not slothful; in the spirit fervent; the Lord serving;
 
-<sup>12</sup> in the hope rejoicing; in the tribulation enduring; in the prayer persevering;
+**¹²** in the hope rejoicing; in the tribulation enduring; in the prayer persevering;
 
-<sup>13</sup> to the necessities of the saints communicating; the hospitality pursuing.
+**¹³** to the necessities of the saints communicating; the hospitality pursuing.
 
-<sup>14</sup> Bless those persecuting you; bless, and curse not;
+**¹⁴** Bless those persecuting you; bless, and curse not;
 
-<sup>15</sup> to rejoice with the rejoicing, and to weep with the weeping,
+**¹⁵** to rejoice with the rejoicing, and to weep with the weeping,
 
-<sup>16</sup> of the same mind one toward another, not minding the high things, but with the lowly going along; become not wise in your own conceit;
+**¹⁶** of the same mind one toward another, not minding the high things, but with the lowly going along; become not wise in your own conceit;
 
-<sup>17</sup> giving back to no one evil for evil; providing right things before all men.
+**¹⁷** giving back to no one evil for evil; providing right things before all men.
 
-<sup>18</sup> If possible — so far as in you — with all men being in peace;
+**¹⁸** If possible — so far as in you — with all men being in peace;
 
-<sup>19</sup> not avenging yourselves, beloved, but give place to the wrath, for it hath been written, 'Vengeance [is] Mine,
+**¹⁹** not avenging yourselves, beloved, but give place to the wrath, for it hath been written, 'Vengeance [is] Mine,
 
-<sup>20</sup> I will recompense again, saith the Lord;' if, then, thine enemy doth hunger, feed him; if he doth thirst, give him drink; for this doing, coals of fire thou shalt heap upon his head;
+**²⁰** I will recompense again, saith the Lord;' if, then, thine enemy doth hunger, feed him; if he doth thirst, give him drink; for this doing, coals of fire thou shalt heap upon his head;
 
-<sup>21</sup> Be not overcome by the evil, but overcome, in the good, the evil.
+**²¹** Be not overcome by the evil, but overcome, in the good, the evil.

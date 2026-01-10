@@ -1,29 +1,29 @@
 # Chapter 21
 
-<sup>1</sup> The word that hath been unto Jeremiah from Jehovah, in the king Zedekiah's sending unto him Pashhur son of Malchiah, and Zephaniah son of Maaseiah the priest, saying,
+**¹** The word that hath been unto Jeremiah from Jehovah, in the king Zedekiah's sending unto him Pashhur son of Malchiah, and Zephaniah son of Maaseiah the priest, saying,
 
-<sup>2</sup> 'Inquire, we pray thee, for us at Jehovah, for Nebuchadrezzar king of Babylon hath fought against us; perhaps Jehovah doth deal with us according to all His wonders, and doth cause him to go up from off us.'
+**²** 'Inquire, we pray thee, for us at Jehovah, for Nebuchadrezzar king of Babylon hath fought against us; perhaps Jehovah doth deal with us according to all His wonders, and doth cause him to go up from off us.'
 
-<sup>3</sup> And Jeremiah saith unto them, 'Thus do ye say unto Zedekiah,
+**³** And Jeremiah saith unto them, 'Thus do ye say unto Zedekiah,
 
-<sup>4</sup> Thus said Jehovah, God of Israel: Lo, I am turning round the weapons of battle That [are] in your hand, With which ye do fight the king of Babylon, And the Chaldeans, who are laying siege against you, At the outside of the wall, And I have gathered them into the midst of this city,
+**⁴** Thus said Jehovah, God of Israel: Lo, I am turning round the weapons of battle That [are] in your hand, With which ye do fight the king of Babylon, And the Chaldeans, who are laying siege against you, At the outside of the wall, And I have gathered them into the midst of this city,
 
-<sup>5</sup> And I — I have fought against you, With a stretched-out hand, and with a strong arm, And in anger, and in fury, and in great wrath,
+**⁵** And I — I have fought against you, With a stretched-out hand, and with a strong arm, And in anger, and in fury, and in great wrath,
 
-<sup>6</sup> And I have smitten the inhabitants of this city, Both man and beast, By a great pestilence do they die.
+**⁶** And I have smitten the inhabitants of this city, Both man and beast, By a great pestilence do they die.
 
-<sup>7</sup> And after this — an affirmation of Jehovah, I give Zedekiah king of Judah, And his servants, and the people, And those left in this city, From the pestilence, from the sword, and from the famine, Into the hand of Nebuchadrezzar king of Babylon, And into the hand of their enemies, And into the hand of those seeking their life, And he hath smitten them by the mouth of the sword, He hath no pity on them, Nor doth he spare, nor hath he mercy.
+**⁷** And after this — an affirmation of Jehovah, I give Zedekiah king of Judah, And his servants, and the people, And those left in this city, From the pestilence, from the sword, and from the famine, Into the hand of Nebuchadrezzar king of Babylon, And into the hand of their enemies, And into the hand of those seeking their life, And he hath smitten them by the mouth of the sword, He hath no pity on them, Nor doth he spare, nor hath he mercy.
 
-<sup>8</sup> And unto this people thou dost say, Thus said Jehovah: Lo, I am setting before you the way of life, And the way of death!
+**⁸** And unto this people thou dost say, Thus said Jehovah: Lo, I am setting before you the way of life, And the way of death!
 
-<sup>9</sup> Whoso is abiding in this city — dieth, By sword, and by famine, and by pestilence, And whoso is going forth, And hath fallen unto the Chaldeans, Who are laying siege against you — liveth, And his life hath been to him for a spoil.
+**⁹** Whoso is abiding in this city — dieth, By sword, and by famine, and by pestilence, And whoso is going forth, And hath fallen unto the Chaldeans, Who are laying siege against you — liveth, And his life hath been to him for a spoil.
 
-<sup>10</sup> For I have set My face against this city for evil, And not for good — an affirmation of Jehovah. Into the hand of the king of Babylon it is given, And he hath burned it with fire.
+**¹⁰** For I have set My face against this city for evil, And not for good — an affirmation of Jehovah. Into the hand of the king of Babylon it is given, And he hath burned it with fire.
 
-<sup>11</sup> And as to the house of the king of Judah, Hear ye a word of Jehovah;
+**¹¹** And as to the house of the king of Judah, Hear ye a word of Jehovah;
 
-<sup>12</sup> O house of David, thus said Jehovah: Decide ye judgment at morning, And deliver the plundered from the hand of the oppressor, Lest My fury go forth as fire, And hath burned, and none is quenching, Because of the evil of your doings.
+**¹²** O house of David, thus said Jehovah: Decide ye judgment at morning, And deliver the plundered from the hand of the oppressor, Lest My fury go forth as fire, And hath burned, and none is quenching, Because of the evil of your doings.
 
-<sup>13</sup> Lo, I [am] against thee — an affirmation of Jehovah, O inhabitant of the valley, rock of the plain, Who are saying, Who cometh down against us? And who cometh into our habitations?
+**¹³** Lo, I [am] against thee — an affirmation of Jehovah, O inhabitant of the valley, rock of the plain, Who are saying, Who cometh down against us? And who cometh into our habitations?
 
-<sup>14</sup> And I have laid a charge against you, According to the fruit of your doings, An affirmation of Jehovah, And I have kindled a fire in its forest, And it hath consumed — all its suburbs!
+**¹⁴** And I have laid a charge against you, According to the fruit of your doings, An affirmation of Jehovah, And I have kindled a fire in its forest, And it hath consumed — all its suburbs!

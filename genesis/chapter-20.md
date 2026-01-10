@@ -1,37 +1,37 @@
 # Chapter 20
 
-<sup>1</sup> And Abraham journeyeth from thence toward the land of the south, and dwelleth between Kadesh and Shur, and sojourneth in Gerar;
+**¹** And Abraham journeyeth from thence toward the land of the south, and dwelleth between Kadesh and Shur, and sojourneth in Gerar;
 
-<sup>2</sup> and Abraham saith concerning Sarah his wife, 'She is my sister;' and Abimelech king of Gerar sendeth and taketh Sarah.
+**²** and Abraham saith concerning Sarah his wife, 'She is my sister;' and Abimelech king of Gerar sendeth and taketh Sarah.
 
-<sup>3</sup> And God cometh in unto Abimelech in a dream of the night, and saith to him, 'Lo, thou [art] a dead man, because of the woman whom thou hast taken — and she married to a husband.'
+**³** And God cometh in unto Abimelech in a dream of the night, and saith to him, 'Lo, thou [art] a dead man, because of the woman whom thou hast taken — and she married to a husband.'
 
-<sup>4</sup> And Abimelech hath not drawn near unto her, and he saith, 'Lord, also a righteous nation dost thou slay?
+**⁴** And Abimelech hath not drawn near unto her, and he saith, 'Lord, also a righteous nation dost thou slay?
 
-<sup>5</sup> hath not he himself said to me, She [is] my sister! and she, even she herself, said, He [is] my brother; in the integrity of my heart, and in the innocency of my hands, I have done this.'
+**⁵** hath not he himself said to me, She [is] my sister! and she, even she herself, said, He [is] my brother; in the integrity of my heart, and in the innocency of my hands, I have done this.'
 
-<sup>6</sup> And God saith unto him in the dream, 'Yea, I — I have known that in the integrity of thy heart thou hast done this, and I withhold thee, even I, from sinning against Me, therefore I have not suffered thee to come against her;
+**⁶** And God saith unto him in the dream, 'Yea, I — I have known that in the integrity of thy heart thou hast done this, and I withhold thee, even I, from sinning against Me, therefore I have not suffered thee to come against her;
 
-<sup>7</sup> and now send back the man's wife, for he [is] inspired, and he doth pray for thee, and live thou; and if thou do not send back, know that dying thou dost die, thou, and all that thou hast.'
+**⁷** and now send back the man's wife, for he [is] inspired, and he doth pray for thee, and live thou; and if thou do not send back, know that dying thou dost die, thou, and all that thou hast.'
 
-<sup>8</sup> And Abimelech riseth early in the morning, and calleth for all his servants, and speaketh all these words in their ears; and the men fear exceedingly;
+**⁸** And Abimelech riseth early in the morning, and calleth for all his servants, and speaketh all these words in their ears; and the men fear exceedingly;
 
-<sup>9</sup> and Abimelech calleth for Abraham, and saith to him, 'What hast thou done to us? and what have I sinned against thee, that thou hast brought upon me, and upon my kingdom, a great sin? works which are not done thou hast done with me.'
+**⁹** and Abimelech calleth for Abraham, and saith to him, 'What hast thou done to us? and what have I sinned against thee, that thou hast brought upon me, and upon my kingdom, a great sin? works which are not done thou hast done with me.'
 
-<sup>10</sup> Abimelech also saith unto Abraham, 'What hast thou seen that thou hast done this thing?'
+**¹⁰** Abimelech also saith unto Abraham, 'What hast thou seen that thou hast done this thing?'
 
-<sup>11</sup> And Abraham saith, 'Because I said, 'Surely the fear of God is not in this place, and they have slain me for the sake of my wife;
+**¹¹** And Abraham saith, 'Because I said, 'Surely the fear of God is not in this place, and they have slain me for the sake of my wife;
 
-<sup>12</sup> and also, truly she is my sister, daughter of my father, only not daughter of my mother, and she becometh my wife;
+**¹²** and also, truly she is my sister, daughter of my father, only not daughter of my mother, and she becometh my wife;
 
-<sup>13</sup> and it cometh to pass, when God hath caused me to wander from my father's house, that I say to her, This [is] thy kindness which thou dost with me: at every place whither we come, say of me, He [is] my brother.'
+**¹³** and it cometh to pass, when God hath caused me to wander from my father's house, that I say to her, This [is] thy kindness which thou dost with me: at every place whither we come, say of me, He [is] my brother.'
 
-<sup>14</sup> And Abimelech taketh sheep and oxen, and servants and handmaids, and giveth to Abraham, and sendeth back to him Sarah his wife;
+**¹⁴** And Abimelech taketh sheep and oxen, and servants and handmaids, and giveth to Abraham, and sendeth back to him Sarah his wife;
 
-<sup>15</sup> and Abimelech saith, 'Lo, my land [is] before thee, where it is good in thine eyes, dwell;'
+**¹⁵** and Abimelech saith, 'Lo, my land [is] before thee, where it is good in thine eyes, dwell;'
 
-<sup>16</sup> and to Sarah he hath said, 'Lo, I have given a thousand silverlings to thy brother; lo, it is to thee a covering of eyes, to all who are with thee;' and by all this she is reasoned with.
+**¹⁶** and to Sarah he hath said, 'Lo, I have given a thousand silverlings to thy brother; lo, it is to thee a covering of eyes, to all who are with thee;' and by all this she is reasoned with.
 
-<sup>17</sup> And Abraham prayeth unto God, and God healeth Abimelech and his wife, and his handmaids, and they bear:
+**¹⁷** And Abraham prayeth unto God, and God healeth Abimelech and his wife, and his handmaids, and they bear:
 
-<sup>18</sup> for Jehovah restraining had restrained every womb of the house of Abimelech, because of Sarah, Abraham's wife.
+**¹⁸** for Jehovah restraining had restrained every womb of the house of Abimelech, because of Sarah, Abraham's wife.

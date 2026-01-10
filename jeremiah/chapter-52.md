@@ -1,69 +1,69 @@
 # Chapter 52
 
-<sup>1</sup> A son of twenty and one years [is] Zedekiah in his reigning, and eleven years he hath reigned in Jerusalem, and the name of his mother [is] Hamutal daughter of Jeremiah of Libnah.
+**¹** A son of twenty and one years [is] Zedekiah in his reigning, and eleven years he hath reigned in Jerusalem, and the name of his mother [is] Hamutal daughter of Jeremiah of Libnah.
 
-<sup>2</sup> and he doth the evil thing in the eyes of Jehovah, according to all that Jehoiakim hath done,
+**²** and he doth the evil thing in the eyes of Jehovah, according to all that Jehoiakim hath done,
 
-<sup>3</sup> for, because of the anger of Jehovah, it hath been in Jerusalem and Judah till He hath cast them from before His face, and Zedekiah doth rebel against the king of Babylon.
+**³** for, because of the anger of Jehovah, it hath been in Jerusalem and Judah till He hath cast them from before His face, and Zedekiah doth rebel against the king of Babylon.
 
-<sup>4</sup> And it cometh to pass, in the ninth year of his reign, in the tenth month, in the tenth of the month, come hath Nebuchadrezzar king of Babylon — he and all his force — against Jerusalem, and they encamp against it, and build against it a fortification round about;
+**⁴** And it cometh to pass, in the ninth year of his reign, in the tenth month, in the tenth of the month, come hath Nebuchadrezzar king of Babylon — he and all his force — against Jerusalem, and they encamp against it, and build against it a fortification round about;
 
-<sup>5</sup> and the city cometh into siege till the eleventh year of king Zedekiah.
+**⁵** and the city cometh into siege till the eleventh year of king Zedekiah.
 
-<sup>6</sup> In the fourth month, in the ninth of the month, when the famine is severe in the city, and there hath been no bread for the people of the land,
+**⁶** In the fourth month, in the ninth of the month, when the famine is severe in the city, and there hath been no bread for the people of the land,
 
-<sup>7</sup> then is the city broken up, and all the men of war flee, and go forth from the city by night, the way of the gate between the two walls, that [is] by the king's garden — and the Chaldeans [are] by the city round about — and they go the way of the plain.
+**⁷** then is the city broken up, and all the men of war flee, and go forth from the city by night, the way of the gate between the two walls, that [is] by the king's garden — and the Chaldeans [are] by the city round about — and they go the way of the plain.
 
-<sup>8</sup> And the forces of the Chaldeans pursue after the king, and overtake Zedekiah in the plains of Jericho, and all his forces have been scattered from him,
+**⁸** And the forces of the Chaldeans pursue after the king, and overtake Zedekiah in the plains of Jericho, and all his forces have been scattered from him,
 
-<sup>9</sup> and they capture the king, and bring him up unto the king of Babylon to Riblah, in the land of Hamath, and he speaketh with him — judgments.
+**⁹** and they capture the king, and bring him up unto the king of Babylon to Riblah, in the land of Hamath, and he speaketh with him — judgments.
 
-<sup>10</sup> And the king of Babylon slaughtereth the sons of Zedekiah before his eyes, and also all the princes of Judah hath he slaughtered in Riblah;
+**¹⁰** And the king of Babylon slaughtereth the sons of Zedekiah before his eyes, and also all the princes of Judah hath he slaughtered in Riblah;
 
-<sup>11</sup> and the eyes of Zedekiah he hath blinded, and he bindeth him in brazen fetters, and the king of Babylon bringeth him to Babylon, and putteth him in the house of inspection unto the day of his death.
+**¹¹** and the eyes of Zedekiah he hath blinded, and he bindeth him in brazen fetters, and the king of Babylon bringeth him to Babylon, and putteth him in the house of inspection unto the day of his death.
 
-<sup>12</sup> And in the fifth month, in the tenth of the month — it [is] the nineteenth year of king Nebuchadrezzar king of Babylon — come hath Nebuzar-Adan, chief of the executioners; he hath stood before the king of Babylon in Jerusalem,
+**¹²** And in the fifth month, in the tenth of the month — it [is] the nineteenth year of king Nebuchadrezzar king of Babylon — come hath Nebuzar-Adan, chief of the executioners; he hath stood before the king of Babylon in Jerusalem,
 
-<sup>13</sup> and he burneth the house of Jehovah, and the house of the king, and all the houses of Jerusalem, even every great house he hath burned with fire,
+**¹³** and he burneth the house of Jehovah, and the house of the king, and all the houses of Jerusalem, even every great house he hath burned with fire,
 
-<sup>14</sup> and all the walls of Jerusalem round about broken down have all the forces of the Chaldeans that [are] with the chief of the executioners.
+**¹⁴** and all the walls of Jerusalem round about broken down have all the forces of the Chaldeans that [are] with the chief of the executioners.
 
-<sup>15</sup> And of the poor of the people, and the remnant of the people who are left in the city, and those who are falling away, who have fallen unto the king of Babylon, and the remnant of the multitude, hath Nebuzar-Adan chief of the executioners, removed;
+**¹⁵** And of the poor of the people, and the remnant of the people who are left in the city, and those who are falling away, who have fallen unto the king of Babylon, and the remnant of the multitude, hath Nebuzar-Adan chief of the executioners, removed;
 
-<sup>16</sup> and of the poor of the land hath Nebuzar-Adan, chief of the executioners, left for vine-dressers and for husbandmen.
+**¹⁶** and of the poor of the land hath Nebuzar-Adan, chief of the executioners, left for vine-dressers and for husbandmen.
 
-<sup>17</sup> And the pillars of brass that [are] to the house of Jehovah, and the bases, and the brasen sea that [is] in the house of Jehovah, have the Chaldeans broken, and they bear away all the brass of them to Babylon;
+**¹⁷** And the pillars of brass that [are] to the house of Jehovah, and the bases, and the brasen sea that [is] in the house of Jehovah, have the Chaldeans broken, and they bear away all the brass of them to Babylon;
 
-<sup>18</sup> and the pots, and the shovels, and the snuffers, and the bowls, and the spoons, and all the vessels of brass with which they minister, they have taken away;
+**¹⁸** and the pots, and the shovels, and the snuffers, and the bowls, and the spoons, and all the vessels of brass with which they minister, they have taken away;
 
-<sup>19</sup> and the basins, and the fire-pans, and the bowls, and the pots, and the candlesticks, and the spoons, and the cups, the gold of that which [is] gold, and the silver of that which [is] silver, hath the chief of the executioners taken.
+**¹⁹** and the basins, and the fire-pans, and the bowls, and the pots, and the candlesticks, and the spoons, and the cups, the gold of that which [is] gold, and the silver of that which [is] silver, hath the chief of the executioners taken.
 
-<sup>20</sup> The two pillars, the one sea, and the twelve brazen oxen that [are] beneath the bases, that king Solomon made for the house of Jehovah, there was no weighing of the brass of all these vessels.
+**²⁰** The two pillars, the one sea, and the twelve brazen oxen that [are] beneath the bases, that king Solomon made for the house of Jehovah, there was no weighing of the brass of all these vessels.
 
-<sup>21</sup> As to the pillars, eighteen cubits [is] the height of the one pillar, and a cord of twelve cubits doth compass it, and its thickness [is] four fingers hollow.
+**²¹** As to the pillars, eighteen cubits [is] the height of the one pillar, and a cord of twelve cubits doth compass it, and its thickness [is] four fingers hollow.
 
-<sup>22</sup> And the chapiter upon it [is] of brass, and the height of the one chapiter [is] five cubits, and net-work and pomegranates [are] on the chapiter round about, the whole [is] of brass; and like these have the second pillar, and pomegranates.
+**²²** And the chapiter upon it [is] of brass, and the height of the one chapiter [is] five cubits, and net-work and pomegranates [are] on the chapiter round about, the whole [is] of brass; and like these have the second pillar, and pomegranates.
 
-<sup>23</sup> And the pomegranates are ninety and six on a side, all the pomegranates [are] a hundred on the net-work round about.
+**²³** And the pomegranates are ninety and six on a side, all the pomegranates [are] a hundred on the net-work round about.
 
-<sup>24</sup> And the chief of the executioners taketh Seraiah the head priest, and Zephaniah the second priest, and the three keepers of the threshold,
+**²⁴** And the chief of the executioners taketh Seraiah the head priest, and Zephaniah the second priest, and the three keepers of the threshold,
 
-<sup>25</sup> and out of the city he hath taken a certain eunuch, who hath been inspector over the men of war, and seven men of those seeing the king's face, who have been found in the city, and the head scribe of the host, who mustereth the people of the land, and sixty men of the people of the land, who are found in the midst of the city;
+**²⁵** and out of the city he hath taken a certain eunuch, who hath been inspector over the men of war, and seven men of those seeing the king's face, who have been found in the city, and the head scribe of the host, who mustereth the people of the land, and sixty men of the people of the land, who are found in the midst of the city;
 
-<sup>26</sup> and Nebuzar-Adan, chief of the executioners, taketh them, and bringeth them unto the king of Babylon to Riblah,
+**²⁶** and Nebuzar-Adan, chief of the executioners, taketh them, and bringeth them unto the king of Babylon to Riblah,
 
-<sup>27</sup> and the king of Babylon smiteth them, and putteth them to death in Riblah, in the land of Hamath, and he removeth Judah from off its own ground.
+**²⁷** and the king of Babylon smiteth them, and putteth them to death in Riblah, in the land of Hamath, and he removeth Judah from off its own ground.
 
-<sup>28</sup> This [is] the people whom Nebuchadrezzar hath removed: in the seventh year, of Jews, three thousand and twenty and three;
+**²⁸** This [is] the people whom Nebuchadrezzar hath removed: in the seventh year, of Jews, three thousand and twenty and three;
 
-<sup>29</sup> in the eighteenth year of Nebuchadrezzar — from Jerusalem, souls, eight hundred thirty and two;
+**²⁹** in the eighteenth year of Nebuchadrezzar — from Jerusalem, souls, eight hundred thirty and two;
 
-<sup>30</sup> in the three and twentieth year of Nebuchadrezzar, hath Nebuzar-Adan chief of the guard removed of Jewish souls, seven hundred forty and five; all the souls [are] four thousand and six hundred.
+**³⁰** in the three and twentieth year of Nebuchadrezzar, hath Nebuzar-Adan chief of the guard removed of Jewish souls, seven hundred forty and five; all the souls [are] four thousand and six hundred.
 
-<sup>31</sup> And it cometh to pass, in the thirty and seventh year of the removal of Jehoiachin king of Judah, in the twelfth month, in the twenty and fifth of the month, hath Evil-Merodach king of Babylon lifted up, in the year of his reign, the head of Jehoiachin king of Judah, and bringeth him out from the house of restraint,
+**³¹** And it cometh to pass, in the thirty and seventh year of the removal of Jehoiachin king of Judah, in the twelfth month, in the twenty and fifth of the month, hath Evil-Merodach king of Babylon lifted up, in the year of his reign, the head of Jehoiachin king of Judah, and bringeth him out from the house of restraint,
 
-<sup>32</sup> and speaketh with him good things, and setteth his throne above the throne of the kings who [are] with him in Babylon,
+**³²** and speaketh with him good things, and setteth his throne above the throne of the kings who [are] with him in Babylon,
 
-<sup>33</sup> and he hath changed his prison garments, and he hath eaten bread before him continually, all the days of his life.
+**³³** and he hath changed his prison garments, and he hath eaten bread before him continually, all the days of his life.
 
-<sup>34</sup> And his allowance — a continual allowance — hath been given to him by the king of Babylon, the matter of a day in its day, till the day of his death — all days of his life.
+**³⁴** And his allowance — a continual allowance — hath been given to him by the king of Babylon, the matter of a day in its day, till the day of his death — all days of his life.

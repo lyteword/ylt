@@ -1,25 +1,25 @@
 # Psalm 62
 
-<sup>1</sup> To the Overseer, for Jeduthun. — A Psalm of David. Only — toward God [is] my soul silent, From Him [is] my salvation.
+**¹** To the Overseer, for Jeduthun. — A Psalm of David. Only — toward God [is] my soul silent, From Him [is] my salvation.
 
-<sup>2</sup> Only — He [is] my rock, and my salvation, My tower, I am not much moved.
+**²** Only — He [is] my rock, and my salvation, My tower, I am not much moved.
 
-<sup>3</sup> Till when do ye devise mischief against a man? Ye are destroyed all of you, As a wall inclined, a hedge that is cast down.
+**³** Till when do ye devise mischief against a man? Ye are destroyed all of you, As a wall inclined, a hedge that is cast down.
 
-<sup>4</sup> Only — from his excellency They have consulted to drive away, They enjoy a lie, with their mouth they bless, And with their heart revile. Selah.
+**⁴** Only — from his excellency They have consulted to drive away, They enjoy a lie, with their mouth they bless, And with their heart revile. Selah.
 
-<sup>5</sup> Only — for God, be silent, O my soul, For from Him [is] my hope.
+**⁵** Only — for God, be silent, O my soul, For from Him [is] my hope.
 
-<sup>6</sup> Only — He [is] my rock and my salvation, My tower, I am not moved.
+**⁶** Only — He [is] my rock and my salvation, My tower, I am not moved.
 
-<sup>7</sup> On God [is] my salvation, and my honour, The rock of my strength, my refuge [is] in God.
+**⁷** On God [is] my salvation, and my honour, The rock of my strength, my refuge [is] in God.
 
-<sup>8</sup> Trust in Him at all times, O people, Pour forth before Him your heart, God [is] a refuge for us. Selah.
+**⁸** Trust in Him at all times, O people, Pour forth before Him your heart, God [is] a refuge for us. Selah.
 
-<sup>9</sup> Only — vanity [are] the low, a lie the high. In balances to go up they than vanity [are] lighter.
+**⁹** Only — vanity [are] the low, a lie the high. In balances to go up they than vanity [are] lighter.
 
-<sup>10</sup> Trust not in oppression, And in robbery become not vain, Wealth — when it increaseth — set not the heart.
+**¹⁰** Trust not in oppression, And in robbery become not vain, Wealth — when it increaseth — set not the heart.
 
-<sup>11</sup> Once hath God spoken, twice I heard this, That 'strength [is] with God.'
+**¹¹** Once hath God spoken, twice I heard this, That 'strength [is] with God.'
 
-<sup>12</sup> And with Thee, O Lord, [is] kindness, For Thou dost recompense to each, According to his work!
+**¹²** And with Thee, O Lord, [is] kindness, For Thou dost recompense to each, According to his work!

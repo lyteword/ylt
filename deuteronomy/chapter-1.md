@@ -1,93 +1,93 @@
 # Chapter 1
 
-<sup>1</sup> These [are] the words which Moses hath spoken unto all Israel, beyond the Jordan, in the wilderness, in the plain over-against Suph, between Paran and Tophel, and Laban, and Hazeroth, and Di-Zahab;
+**¹** These [are] the words which Moses hath spoken unto all Israel, beyond the Jordan, in the wilderness, in the plain over-against Suph, between Paran and Tophel, and Laban, and Hazeroth, and Di-Zahab;
 
-<sup>2</sup> eleven days' from Horeb, the way of mount Seir, unto Kadesh-Barnea.
+**²** eleven days' from Horeb, the way of mount Seir, unto Kadesh-Barnea.
 
-<sup>3</sup> And it cometh to pass in the fortieth year, in the eleventh month, on the first of the month hath Moses spoken unto the sons of Israel according to all that Jehovah hath commanded him concerning them;
+**³** And it cometh to pass in the fortieth year, in the eleventh month, on the first of the month hath Moses spoken unto the sons of Israel according to all that Jehovah hath commanded him concerning them;
 
-<sup>4</sup> after his smiting Sihon king of the Amorite who is dwelling in Heshbon, and Og king of Bashan who is dwelling in Ashtaroth in Edrei,
+**⁴** after his smiting Sihon king of the Amorite who is dwelling in Heshbon, and Og king of Bashan who is dwelling in Ashtaroth in Edrei,
 
-<sup>5</sup> beyond the Jordan, in the land of Moab, hath Moses begun to explain this law, saying:
+**⁵** beyond the Jordan, in the land of Moab, hath Moses begun to explain this law, saying:
 
-<sup>6</sup> 'Jehovah our God hath spoken unto us in Horeb, saying, Enough to you — of dwelling in this mount;
+**⁶** 'Jehovah our God hath spoken unto us in Horeb, saying, Enough to you — of dwelling in this mount;
 
-<sup>7</sup> turn ye and journey for you, and enter the mount of the Amorite, and unto all its neighbouring places, in the plain, in the hill-country, and in the low country, and in the south, and in the haven of the sea, the land of the Canaanite, and of Lebanon, unto the great river, the river Phrat;
+**⁷** turn ye and journey for you, and enter the mount of the Amorite, and unto all its neighbouring places, in the plain, in the hill-country, and in the low country, and in the south, and in the haven of the sea, the land of the Canaanite, and of Lebanon, unto the great river, the river Phrat;
 
-<sup>8</sup> see, I have set before you the land; go in and possess the land which Jehovah hath sworn to your fathers, to Abraham, to Isaac, and to Jacob, to give to them, and to their seed after them.
+**⁸** see, I have set before you the land; go in and possess the land which Jehovah hath sworn to your fathers, to Abraham, to Isaac, and to Jacob, to give to them, and to their seed after them.
 
-<sup>9</sup> 'And I speak unto you at that time, saying, I am not able by myself to bear you;
+**⁹** 'And I speak unto you at that time, saying, I am not able by myself to bear you;
 
-<sup>10</sup> Jehovah your God hath multiplied you, and lo, ye [are] to-day as the stars of the heavens for multitude;
+**¹⁰** Jehovah your God hath multiplied you, and lo, ye [are] to-day as the stars of the heavens for multitude;
 
-<sup>11</sup> Jehovah, God of your fathers, is adding to you, as ye [are], a thousand times, and doth bless you as He hath spoken to you.
+**¹¹** Jehovah, God of your fathers, is adding to you, as ye [are], a thousand times, and doth bless you as He hath spoken to you.
 
-<sup>12</sup> 'How do I bear by myself your pressure, and your burden, and your strife?
+**¹²** 'How do I bear by myself your pressure, and your burden, and your strife?
 
-<sup>13</sup> Give for yourselves men, wise and intelligent, and known to your tribes, and I set them for your heads;
+**¹³** Give for yourselves men, wise and intelligent, and known to your tribes, and I set them for your heads;
 
-<sup>14</sup> and ye answer me and say, Good [is] the thing which thou hast spoken — to do.
+**¹⁴** and ye answer me and say, Good [is] the thing which thou hast spoken — to do.
 
-<sup>15</sup> 'And I take the heads of your tribes, men, wise and known, and I appoint them heads over you, princes of thousands, and princes of hundreds, and princes of fifties, and princes of tens, and authorities, for your tribes.
+**¹⁵** 'And I take the heads of your tribes, men, wise and known, and I appoint them heads over you, princes of thousands, and princes of hundreds, and princes of fifties, and princes of tens, and authorities, for your tribes.
 
-<sup>16</sup> And I command your judges at that time, saying, Hearkening between your brethren — then ye have judged righteousness between a man, and his brother, and his sojourner;
+**¹⁶** And I command your judges at that time, saying, Hearkening between your brethren — then ye have judged righteousness between a man, and his brother, and his sojourner;
 
-<sup>17</sup> ye do not discern faces in judgment; as the little so the great ye do hear; ye are not afraid of the face of any, for the judgment is God's, and the thing which is too hard for you, ye bring near unto me, and I have heard it;
+**¹⁷** ye do not discern faces in judgment; as the little so the great ye do hear; ye are not afraid of the face of any, for the judgment is God's, and the thing which is too hard for you, ye bring near unto me, and I have heard it;
 
-<sup>18</sup> and I command you, at that time, all the things which ye do.
+**¹⁸** and I command you, at that time, all the things which ye do.
 
-<sup>19</sup> 'And we journey from Horeb, and go [through] all that great and fearful wilderness which ye have seen — the way of the hill-country of the Amorite, as Jehovah our God hath commanded us, and we come in unto Kadesh-Barnea.
+**¹⁹** 'And we journey from Horeb, and go [through] all that great and fearful wilderness which ye have seen — the way of the hill-country of the Amorite, as Jehovah our God hath commanded us, and we come in unto Kadesh-Barnea.
 
-<sup>20</sup> 'And I say unto you, Ye have come in unto the hill-country of the Amorite, which Jehovah our God is giving to us;
+**²⁰** 'And I say unto you, Ye have come in unto the hill-country of the Amorite, which Jehovah our God is giving to us;
 
-<sup>21</sup> see, Jehovah thy God hath set before thee the land; go up, possess, as Jehovah, God of thy fathers, hath spoken to thee; fear not, nor be affrighted.
+**²¹** see, Jehovah thy God hath set before thee the land; go up, possess, as Jehovah, God of thy fathers, hath spoken to thee; fear not, nor be affrighted.
 
-<sup>22</sup> 'And ye come near unto me, all of you, and say, Let us send men before us, and they search for us the land, and they bring us back word [concerning] the way in which we go up into it, and the cities unto which we come in;
+**²²** 'And ye come near unto me, all of you, and say, Let us send men before us, and they search for us the land, and they bring us back word [concerning] the way in which we go up into it, and the cities unto which we come in;
 
-<sup>23</sup> and the thing is good in mine eyes, and I take of you twelve men, one man for a tribe.
+**²³** and the thing is good in mine eyes, and I take of you twelve men, one man for a tribe.
 
-<sup>24</sup> 'And they turn and go up to the hill-country, and come in unto the valley of Eshcol, and spy it,
+**²⁴** 'And they turn and go up to the hill-country, and come in unto the valley of Eshcol, and spy it,
 
-<sup>25</sup> and they take with their hand of the fruit of the land, and bring down unto us, and bring us back word, and say, Good is the land which Jehovah our God is giving to us.
+**²⁵** and they take with their hand of the fruit of the land, and bring down unto us, and bring us back word, and say, Good is the land which Jehovah our God is giving to us.
 
-<sup>26</sup> 'And ye have not been willing to go up, and ye provoke the mouth of Jehovah your God,
+**²⁶** 'And ye have not been willing to go up, and ye provoke the mouth of Jehovah your God,
 
-<sup>27</sup> and murmur in your tents, and say, In Jehovah's hating us He hath brought us out of the land of Egypt, to give us into the hand of the Amorite — to destroy us;
+**²⁷** and murmur in your tents, and say, In Jehovah's hating us He hath brought us out of the land of Egypt, to give us into the hand of the Amorite — to destroy us;
 
-<sup>28</sup> whither are we going up? our brethren have melted our heart, saying, A people greater and taller than we, cities great and fenced to heaven, and also sons of Anakim — we have seen there.
+**²⁸** whither are we going up? our brethren have melted our heart, saying, A people greater and taller than we, cities great and fenced to heaven, and also sons of Anakim — we have seen there.
 
-<sup>29</sup> 'And I say unto you, Be not terrified, nor be afraid of them;
+**²⁹** 'And I say unto you, Be not terrified, nor be afraid of them;
 
-<sup>30</sup> Jehovah your God, who is going before you — He doth fight for you, according to all that He hath done with you in Egypt before your eyes,
+**³⁰** Jehovah your God, who is going before you — He doth fight for you, according to all that He hath done with you in Egypt before your eyes,
 
-<sup>31</sup> and in the wilderness, where thou hast seen that Jehovah thy God hath borne thee as a man beareth his son, in all the way which ye have gone, till your coming in unto this place.
+**³¹** and in the wilderness, where thou hast seen that Jehovah thy God hath borne thee as a man beareth his son, in all the way which ye have gone, till your coming in unto this place.
 
-<sup>32</sup> 'And in this thing ye are not stedfast in Jehovah your God,
+**³²** 'And in this thing ye are not stedfast in Jehovah your God,
 
-<sup>33</sup> who is going before you in the way to search out to you a place for your encamping, in fire by night, to shew you in the way in which ye go, and in a cloud by day.
+**³³** who is going before you in the way to search out to you a place for your encamping, in fire by night, to shew you in the way in which ye go, and in a cloud by day.
 
-<sup>34</sup> 'And Jehovah heareth the voice of your words, and is wroth, and sweareth, saying,
+**³⁴** 'And Jehovah heareth the voice of your words, and is wroth, and sweareth, saying,
 
-<sup>35</sup> Not one of these men of this evil generation doth see the good land which I have sworn to give to your fathers,
+**³⁵** Not one of these men of this evil generation doth see the good land which I have sworn to give to your fathers,
 
-<sup>36</sup> save Caleb son of Jephunneh — he doth see it, and to him I give the land on which he hath trodden, and to his sons, because that he hath been fully after Jehovah.
+**³⁶** save Caleb son of Jephunneh — he doth see it, and to him I give the land on which he hath trodden, and to his sons, because that he hath been fully after Jehovah.
 
-<sup>37</sup> 'Also with me hath Jehovah been angry for your sake, saying, Also, thou dost not go in thither;
+**³⁷** 'Also with me hath Jehovah been angry for your sake, saying, Also, thou dost not go in thither;
 
-<sup>38</sup> Joshua son of Nun, who is standing before thee, he goeth in thither; him strengthen thou; for he doth cause Israel to inherit.
+**³⁸** Joshua son of Nun, who is standing before thee, he goeth in thither; him strengthen thou; for he doth cause Israel to inherit.
 
-<sup>39</sup> 'And your infants, of whom ye have said, For a prey they are, and your sons who have not known to-day good and evil, they go in thither, and to them I give it, and they possess it;
+**³⁹** 'And your infants, of whom ye have said, For a prey they are, and your sons who have not known to-day good and evil, they go in thither, and to them I give it, and they possess it;
 
-<sup>40</sup> and ye, turn for yourselves, and journey toward the wilderness, the way of the Red Sea.
+**⁴⁰** and ye, turn for yourselves, and journey toward the wilderness, the way of the Red Sea.
 
-<sup>41</sup> 'And ye answer and say unto me, We have sinned against Jehovah; we — we go up, and we have fought, according to all that which Jehovah our God hath commanded us; and ye gird on each his weapons of war, and ye are ready to go up into the hill-country;
+**⁴¹** 'And ye answer and say unto me, We have sinned against Jehovah; we — we go up, and we have fought, according to all that which Jehovah our God hath commanded us; and ye gird on each his weapons of war, and ye are ready to go up into the hill-country;
 
-<sup>42</sup> and Jehovah saith unto me, Say to them, Ye do not go up, nor fight, for I am not in your midst, and ye are not smitten before your enemies.
+**⁴²** and Jehovah saith unto me, Say to them, Ye do not go up, nor fight, for I am not in your midst, and ye are not smitten before your enemies.
 
-<sup>43</sup> 'And I speak unto you, and ye have not hearkened, and provoke the mouth of Jehovah, and act proudly, and go up into the hill-country;
+**⁴³** 'And I speak unto you, and ye have not hearkened, and provoke the mouth of Jehovah, and act proudly, and go up into the hill-country;
 
-<sup>44</sup> and the Amorite who is dwelling in that hill-country cometh out to meet you, and they pursue you as the bees do, and smite you in Seir — unto Hormah.
+**⁴⁴** and the Amorite who is dwelling in that hill-country cometh out to meet you, and they pursue you as the bees do, and smite you in Seir — unto Hormah.
 
-<sup>45</sup> 'And ye turn back and weep before Jehovah, and Jehovah hath not hearkened to your voice, nor hath he given ear unto you;
+**⁴⁵** 'And ye turn back and weep before Jehovah, and Jehovah hath not hearkened to your voice, nor hath he given ear unto you;
 
-<sup>46</sup> and ye dwell in Kadesh many days, according to the days which ye had dwelt.
+**⁴⁶** and ye dwell in Kadesh many days, according to the days which ye had dwelt.

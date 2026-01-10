@@ -1,45 +1,45 @@
 # Chapter 3
 
-<sup>1</sup> And Moses hath been feeding the flock of Jethro his father-in-law, priest of Midian, and he leadeth the flock behind the wilderness, and cometh in unto the mount of God, to Horeb;
+**¹** And Moses hath been feeding the flock of Jethro his father-in-law, priest of Midian, and he leadeth the flock behind the wilderness, and cometh in unto the mount of God, to Horeb;
 
-<sup>2</sup> and there appeareth unto him a messenger of Jehovah in a flame of fire, out of the midst of the bush, and he seeth, and lo, the bush is burning with fire, and the bush is not consumed.
+**²** and there appeareth unto him a messenger of Jehovah in a flame of fire, out of the midst of the bush, and he seeth, and lo, the bush is burning with fire, and the bush is not consumed.
 
-<sup>3</sup> And Moses saith, 'Let me turn aside, I pray thee, and I see this great appearance; wherefore is the bush not burned?'
+**³** And Moses saith, 'Let me turn aside, I pray thee, and I see this great appearance; wherefore is the bush not burned?'
 
-<sup>4</sup> and Jehovah seeth that he hath turned aside to see, and God calleth unto him out of the midst of the bush, and saith, 'Moses, Moses;' and he saith, 'Here [am] I.'
+**⁴** and Jehovah seeth that he hath turned aside to see, and God calleth unto him out of the midst of the bush, and saith, 'Moses, Moses;' and he saith, 'Here [am] I.'
 
-<sup>5</sup> And He saith, 'Come not near hither: cast thy shoes from off thy feet, for the place on which thou art standing is holy ground.'
+**⁵** And He saith, 'Come not near hither: cast thy shoes from off thy feet, for the place on which thou art standing is holy ground.'
 
-<sup>6</sup> He saith also, 'I [am] the God of thy father, God of Abraham, God of Isaac, and God of Jacob;' and Moses hideth his face, for he is afraid to look towards God.
+**⁶** He saith also, 'I [am] the God of thy father, God of Abraham, God of Isaac, and God of Jacob;' and Moses hideth his face, for he is afraid to look towards God.
 
-<sup>7</sup> And Jehovah saith, 'I have certainly seen the affliction of My people who [are] in Egypt, and their cry I have heard, because of its exactors, for I have known its pains;
+**⁷** And Jehovah saith, 'I have certainly seen the affliction of My people who [are] in Egypt, and their cry I have heard, because of its exactors, for I have known its pains;
 
-<sup>8</sup> and I go down to deliver it out of the hand of the Egyptians, and to cause it to go up out of the land, unto a land good and broad, unto a land flowing with milk and honey — unto the place of the Canaanite, and the Hittite, and the Amorite, and the Perizzite, and the Hivite, and the Jebusite.
+**⁸** and I go down to deliver it out of the hand of the Egyptians, and to cause it to go up out of the land, unto a land good and broad, unto a land flowing with milk and honey — unto the place of the Canaanite, and the Hittite, and the Amorite, and the Perizzite, and the Hivite, and the Jebusite.
 
-<sup>9</sup> 'And now, lo, the cry of the sons of Israel hath come in unto Me, and I have also seen the oppression with which the Egyptians are oppressing them,
+**⁹** 'And now, lo, the cry of the sons of Israel hath come in unto Me, and I have also seen the oppression with which the Egyptians are oppressing them,
 
-<sup>10</sup> and now, come, and I send thee unto Pharaoh, and bring thou out My people, the sons of Israel, out of Egypt.'
+**¹⁰** and now, come, and I send thee unto Pharaoh, and bring thou out My people, the sons of Israel, out of Egypt.'
 
-<sup>11</sup> And Moses saith unto God, 'Who [am] I, that I go unto Pharaoh, and that I bring out the sons of Israel from Egypt?'
+**¹¹** And Moses saith unto God, 'Who [am] I, that I go unto Pharaoh, and that I bring out the sons of Israel from Egypt?'
 
-<sup>12</sup> and He saith, 'Because I am with thee, and this [is] to thee the sign that I have sent thee: in thy bringing out the people from Egypt — ye do serve God on this mount.'
+**¹²** and He saith, 'Because I am with thee, and this [is] to thee the sign that I have sent thee: in thy bringing out the people from Egypt — ye do serve God on this mount.'
 
-<sup>13</sup> And Moses saith unto God, 'Lo, I am coming unto the sons of Israel, and have said to them, The God of your fathers hath sent me unto you, and they have said to me, What [is] His name? what do I say unto them?'
+**¹³** And Moses saith unto God, 'Lo, I am coming unto the sons of Israel, and have said to them, The God of your fathers hath sent me unto you, and they have said to me, What [is] His name? what do I say unto them?'
 
-<sup>14</sup> And God saith unto Moses, 'I AM THAT WHICH I AM;' He saith also, 'Thus dost thou say to the sons of Israel, I AM hath sent me unto you.'
+**¹⁴** And God saith unto Moses, 'I AM THAT WHICH I AM;' He saith also, 'Thus dost thou say to the sons of Israel, I AM hath sent me unto you.'
 
-<sup>15</sup> And God saith again unto Moses, 'Thus dost thou say unto the sons of Israel, Jehovah, God of your fathers, God of Abraham, God of Isaac, and God of Jacob, hath sent me unto you; this [is] My name — to the age, and this My memorial, to generation — generation.
+**¹⁵** And God saith again unto Moses, 'Thus dost thou say unto the sons of Israel, Jehovah, God of your fathers, God of Abraham, God of Isaac, and God of Jacob, hath sent me unto you; this [is] My name — to the age, and this My memorial, to generation — generation.
 
-<sup>16</sup> 'Go, and thou hast gathered the elders of Israel, and hast said unto them: Jehovah, God of your fathers, hath appeareth unto me, God of Abraham, Isaac, and Jacob, saying, I have certainly inspected you, and that which is done to you in Egypt;
+**¹⁶** 'Go, and thou hast gathered the elders of Israel, and hast said unto them: Jehovah, God of your fathers, hath appeareth unto me, God of Abraham, Isaac, and Jacob, saying, I have certainly inspected you, and that which is done to you in Egypt;
 
-<sup>17</sup> and I say, I bring you up out of the affliction of Egypt, unto the land of the Canaanite, and the Hittite, and the Amorite, and the Perizzite, and the Hivite, and the Jebusite, unto a land flowing [with] milk and honey.
+**¹⁷** and I say, I bring you up out of the affliction of Egypt, unto the land of the Canaanite, and the Hittite, and the Amorite, and the Perizzite, and the Hivite, and the Jebusite, unto a land flowing [with] milk and honey.
 
-<sup>18</sup> 'And they have hearkened to thy voice, and thou hast entered, thou and the elders of Israel, unto the king of Egypt, and ye have said unto him, Jehovah, God of the Hebrews, hath met with us; and now, let us go, we pray thee, a journey of three days into the wilderness, and we sacrifice to Jehovah our God.
+**¹⁸** 'And they have hearkened to thy voice, and thou hast entered, thou and the elders of Israel, unto the king of Egypt, and ye have said unto him, Jehovah, God of the Hebrews, hath met with us; and now, let us go, we pray thee, a journey of three days into the wilderness, and we sacrifice to Jehovah our God.
 
-<sup>19</sup> 'And I — I have known that the king of Egypt doth not permit you to go, unless by a strong hand,
+**¹⁹** 'And I — I have known that the king of Egypt doth not permit you to go, unless by a strong hand,
 
-<sup>20</sup> and I have put forth My hand, and have smitten Egypt with all My wonders, which I do in its midst — and afterwards he doth send you away.
+**²⁰** and I have put forth My hand, and have smitten Egypt with all My wonders, which I do in its midst — and afterwards he doth send you away.
 
-<sup>21</sup> 'And I have given the grace of this people in the eyes of the Egyptians, and it hath come to pass, when ye go, ye go not empty;
+**²¹** 'And I have given the grace of this people in the eyes of the Egyptians, and it hath come to pass, when ye go, ye go not empty;
 
-<sup>22</sup> and [every] woman hath asked from her neighbour, and from her who is sojourning in her house, vessels of silver, and vessels of gold, and garments, and ye have put [them] on your sons and on your daughters, and have spoiled the Egyptians.'
+**²²** and [every] woman hath asked from her neighbour, and from her who is sojourning in her house, vessels of silver, and vessels of gold, and garments, and ye have put [them] on your sons and on your daughters, and have spoiled the Egyptians.'

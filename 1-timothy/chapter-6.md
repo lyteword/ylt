@@ -1,43 +1,43 @@
 # Chapter 6
 
-<sup>1</sup> As many as are servants under a yoke, their own masters worthy of all honour let them reckon, that the name of God and the teaching may not be evil spoken of;
+**¹** As many as are servants under a yoke, their own masters worthy of all honour let them reckon, that the name of God and the teaching may not be evil spoken of;
 
-<sup>2</sup> and those having believing masters, let them not slight [them], because they are brethren, but rather let them serve, because they are stedfast and beloved, who of the benefit are partaking. These things be teaching and exhorting;
+**²** and those having believing masters, let them not slight [them], because they are brethren, but rather let them serve, because they are stedfast and beloved, who of the benefit are partaking. These things be teaching and exhorting;
 
-<sup>3</sup> if any one be teaching otherwise, and do not consent to sound words — those of our Lord Jesus Christ — and to the teaching according to piety,
+**³** if any one be teaching otherwise, and do not consent to sound words — those of our Lord Jesus Christ — and to the teaching according to piety,
 
-<sup>4</sup> he is proud, knowing nothing, but doting about questions and word-striving, out of which doth come envy, strife, evil-speakings, evil-surmisings,
+**⁴** he is proud, knowing nothing, but doting about questions and word-striving, out of which doth come envy, strife, evil-speakings, evil-surmisings,
 
-<sup>5</sup> wranglings of men wholly corrupted in mind, and destitute of the truth, supposing the piety to be gain; depart from such;
+**⁵** wranglings of men wholly corrupted in mind, and destitute of the truth, supposing the piety to be gain; depart from such;
 
-<sup>6</sup> but it is great gain — the piety with contentment;
+**⁶** but it is great gain — the piety with contentment;
 
-<sup>7</sup> for nothing did we bring into the world — [it is] manifest that we are able to carry nothing out;
+**⁷** for nothing did we bring into the world — [it is] manifest that we are able to carry nothing out;
 
-<sup>8</sup> but having food and raiment — with these we shall suffice ourselves;
+**⁸** but having food and raiment — with these we shall suffice ourselves;
 
-<sup>9</sup> and those wishing to be rich, do fall into temptation and a snare, and many desires, foolish and hurtful, that sink men into ruin and destruction,
+**⁹** and those wishing to be rich, do fall into temptation and a snare, and many desires, foolish and hurtful, that sink men into ruin and destruction,
 
-<sup>10</sup> for a root of all the evils is the love of money, which certain longing for did go astray from the faith, and themselves did pierce through with many sorrows;
+**¹⁰** for a root of all the evils is the love of money, which certain longing for did go astray from the faith, and themselves did pierce through with many sorrows;
 
-<sup>11</sup> and thou, O man of God, these things flee, and pursue righteousness, piety, faith, love, endurance, meekness;
+**¹¹** and thou, O man of God, these things flee, and pursue righteousness, piety, faith, love, endurance, meekness;
 
-<sup>12</sup> be striving the good strife of the faith, be laying hold on the life age-during, to which also thou wast called, and didst profess the right profession before many witnesses.
+**¹²** be striving the good strife of the faith, be laying hold on the life age-during, to which also thou wast called, and didst profess the right profession before many witnesses.
 
-<sup>13</sup> I charge thee, before God, who is making all things alive, and of Christ Jesus, who did testify before Pontius Pilate the right profession,
+**¹³** I charge thee, before God, who is making all things alive, and of Christ Jesus, who did testify before Pontius Pilate the right profession,
 
-<sup>14</sup> that thou keep the command unspotted, unblameable, till the manifestation of our Lord Jesus Christ,
+**¹⁴** that thou keep the command unspotted, unblameable, till the manifestation of our Lord Jesus Christ,
 
-<sup>15</sup> which in His own times He shall shew — the blessed and only potentate, the King of the kings and Lord of the lords,
+**¹⁵** which in His own times He shall shew — the blessed and only potentate, the King of the kings and Lord of the lords,
 
-<sup>16</sup> who only is having immortality, dwelling in light unapproachable, whom no one of men did see, nor is able to see, to whom [is] honour and might age-during! Amen.
+**¹⁶** who only is having immortality, dwelling in light unapproachable, whom no one of men did see, nor is able to see, to whom [is] honour and might age-during! Amen.
 
-<sup>17</sup> Those rich in the present age charge thou not to be high-minded, nor to hope in the uncertainty of riches, but in the living God, who is giving to us all things richly for enjoyment; —
+**¹⁷** Those rich in the present age charge thou not to be high-minded, nor to hope in the uncertainty of riches, but in the living God, who is giving to us all things richly for enjoyment; —
 
-<sup>18</sup> to do good, to be rich in good works, to be ready to impart, willing to communicate,
+**¹⁸** to do good, to be rich in good works, to be ready to impart, willing to communicate,
 
-<sup>19</sup> treasuring up to themselves a right foundation for the time to come, that they may lay hold on the life age-during.
+**¹⁹** treasuring up to themselves a right foundation for the time to come, that they may lay hold on the life age-during.
 
-<sup>20</sup> O Timotheus, the thing entrusted guard thou, avoiding the profane vain-words and opposition of the falsely-named knowledge,
+**²⁰** O Timotheus, the thing entrusted guard thou, avoiding the profane vain-words and opposition of the falsely-named knowledge,
 
-<sup>21</sup> which certain professing — concerning the faith did swerve; the grace [is] with you. Amen.
+**²¹** which certain professing — concerning the faith did swerve; the grace [is] with you. Amen.

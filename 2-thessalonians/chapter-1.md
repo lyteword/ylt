@@ -1,25 +1,25 @@
 # Chapter 1
 
-<sup>1</sup> Paul, and Silvanus, and Timotheus, to the assembly of Thessalonians in God our Father, and the Lord Jesus Christ:
+**¹** Paul, and Silvanus, and Timotheus, to the assembly of Thessalonians in God our Father, and the Lord Jesus Christ:
 
-<sup>2</sup> Grace to you, and peace, from God our Father, and the Lord Jesus Christ!
+**²** Grace to you, and peace, from God our Father, and the Lord Jesus Christ!
 
-<sup>3</sup> We ought to give thanks to God always for you, brethren, as it is meet, because increase greatly doth your faith, and abound doth the love of each one of you all, to one another;
+**³** We ought to give thanks to God always for you, brethren, as it is meet, because increase greatly doth your faith, and abound doth the love of each one of you all, to one another;
 
-<sup>4</sup> so that we ourselves do glory in you in the assemblies of God, for your endurance and faith in all your persecutions and tribulations that ye bear;
+**⁴** so that we ourselves do glory in you in the assemblies of God, for your endurance and faith in all your persecutions and tribulations that ye bear;
 
-<sup>5</sup> a token of the righteous judgment of God, for your being counted worthy of the reign of God, for which also ye suffer,
+**⁵** a token of the righteous judgment of God, for your being counted worthy of the reign of God, for which also ye suffer,
 
-<sup>6</sup> since [it is] a righteous thing with God to give back to those troubling you — trouble,
+**⁶** since [it is] a righteous thing with God to give back to those troubling you — trouble,
 
-<sup>7</sup> and to you who are troubled — rest with us in the revelation of the Lord Jesus from heaven, with messengers of his power,
+**⁷** and to you who are troubled — rest with us in the revelation of the Lord Jesus from heaven, with messengers of his power,
 
-<sup>8</sup> in flaming fire, giving vengeance to those not knowing God, and to those not obeying the good news of our Lord Jesus Christ;
+**⁸** in flaming fire, giving vengeance to those not knowing God, and to those not obeying the good news of our Lord Jesus Christ;
 
-<sup>9</sup> who shall suffer justice — destruction age-during — from the face of the Lord, and from the glory of his strength,
+**⁹** who shall suffer justice — destruction age-during — from the face of the Lord, and from the glory of his strength,
 
-<sup>10</sup> when He may come to be glorified in his saints, and to be wondered at in all those believing — because our testimony was believed among you — in that day;
+**¹⁰** when He may come to be glorified in his saints, and to be wondered at in all those believing — because our testimony was believed among you — in that day;
 
-<sup>11</sup> for which also we do pray always for you, that our God may count you worthy of the calling, and may fulfil all the good pleasure of goodness, and the work of the faith in power,
+**¹¹** for which also we do pray always for you, that our God may count you worthy of the calling, and may fulfil all the good pleasure of goodness, and the work of the faith in power,
 
-<sup>12</sup> that the name of our Lord Jesus Christ may be glorified in you, and ye in him, according to the grace of our God and Lord Jesus Christ.
+**¹²** that the name of our Lord Jesus Christ may be glorified in you, and ye in him, according to the grace of our God and Lord Jesus Christ.

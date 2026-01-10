@@ -1,49 +1,49 @@
 # Chapter 8
 
-<sup>1</sup> And we make known to you, brethren, the grace of God, that hath been given in the assemblies of Macedonia,
+**¹** And we make known to you, brethren, the grace of God, that hath been given in the assemblies of Macedonia,
 
-<sup>2</sup> because in much trial of tribulation the abundance of their joy, and their deep poverty, did abound to the riches of their liberality;
+**²** because in much trial of tribulation the abundance of their joy, and their deep poverty, did abound to the riches of their liberality;
 
-<sup>3</sup> because, according to [their] power, I testify, and above [their] power, they were willing of themselves,
+**³** because, according to [their] power, I testify, and above [their] power, they were willing of themselves,
 
-<sup>4</sup> with much entreaty calling on us to receive the favour and the fellowship of the ministration to the saints,
+**⁴** with much entreaty calling on us to receive the favour and the fellowship of the ministration to the saints,
 
-<sup>5</sup> and not according as we expected, but themselves they did give first to the Lord, and to us, through the will of God,
+**⁵** and not according as we expected, but themselves they did give first to the Lord, and to us, through the will of God,
 
-<sup>6</sup> so that we exhorted Titus, that, according as he did begin before, so also he may finish to you also this favour,
+**⁶** so that we exhorted Titus, that, according as he did begin before, so also he may finish to you also this favour,
 
-<sup>7</sup> but even as in every thing ye do abound, in faith, and word, and knowledge, and all diligence, and in your love to us, that also in this grace ye may abound;
+**⁷** but even as in every thing ye do abound, in faith, and word, and knowledge, and all diligence, and in your love to us, that also in this grace ye may abound;
 
-<sup>8</sup> not according to command do I speak, but because of the diligence of others, and of your love proving the genuineness,
+**⁸** not according to command do I speak, but because of the diligence of others, and of your love proving the genuineness,
 
-<sup>9</sup> for ye know the grace of our Lord Jesus Christ, that because of you he became poor — being rich, that ye by that poverty may become rich.
+**⁹** for ye know the grace of our Lord Jesus Christ, that because of you he became poor — being rich, that ye by that poverty may become rich.
 
-<sup>10</sup> and an opinion in this do I give: for this to you [is] expedient, who not only to do, but also to will, did begin before — a year ago,
+**¹⁰** and an opinion in this do I give: for this to you [is] expedient, who not only to do, but also to will, did begin before — a year ago,
 
-<sup>11</sup> and now also finish doing [it], that even as [there is] the readiness of the will, so also the finishing, out of that which ye have,
+**¹¹** and now also finish doing [it], that even as [there is] the readiness of the will, so also the finishing, out of that which ye have,
 
-<sup>12</sup> for if the willing mind is present, according to that which any one may have it is well-accepted, not according to that which he hath not;
+**¹²** for if the willing mind is present, according to that which any one may have it is well-accepted, not according to that which he hath not;
 
-<sup>13</sup> for not that for others release, and ye pressured, [do I speak,]
+**¹³** for not that for others release, and ye pressured, [do I speak,]
 
-<sup>14</sup> but by equality, at the present time your abundance — for their want, that also their abundance may be for your want, that there may be equality,
+**¹⁴** but by equality, at the present time your abundance — for their want, that also their abundance may be for your want, that there may be equality,
 
-<sup>15</sup> according as it hath been written, 'He who [did gather] much, had nothing over; and he who [did gather] little, had no lack.'
+**¹⁵** according as it hath been written, 'He who [did gather] much, had nothing over; and he who [did gather] little, had no lack.'
 
-<sup>16</sup> And thanks to God, who is putting the same diligence for you in the heart of Titus,
+**¹⁶** And thanks to God, who is putting the same diligence for you in the heart of Titus,
 
-<sup>17</sup> because indeed the exhortation he accepted, and being more diligent, of his own accord he went forth unto you,
+**¹⁷** because indeed the exhortation he accepted, and being more diligent, of his own accord he went forth unto you,
 
-<sup>18</sup> and we sent with him the brother, whose praise in the good news [is] through all the assemblies,
+**¹⁸** and we sent with him the brother, whose praise in the good news [is] through all the assemblies,
 
-<sup>19</sup> and not only so, but who was also appointed by vote by the assemblies, our fellow-traveller, with this favour that is ministered by us, unto the glory of the same Lord, and your willing mind;
+**¹⁹** and not only so, but who was also appointed by vote by the assemblies, our fellow-traveller, with this favour that is ministered by us, unto the glory of the same Lord, and your willing mind;
 
-<sup>20</sup> avoiding this, lest any one may blame us in this abundance that is ministered by us,
+**²⁰** avoiding this, lest any one may blame us in this abundance that is ministered by us,
 
-<sup>21</sup> providing right things, not only before the Lord, but also before men;
+**²¹** providing right things, not only before the Lord, but also before men;
 
-<sup>22</sup> and we sent with them our brother, whom we proved in many things many times being diligent, and now much more diligent, by the great confidence that is toward you,
+**²²** and we sent with them our brother, whom we proved in many things many times being diligent, and now much more diligent, by the great confidence that is toward you,
 
-<sup>23</sup> whether — about Titus — my partner and towards you fellow-worker, whether — our brethren, apostles of assemblies — glory of Christ;
+**²³** whether — about Titus — my partner and towards you fellow-worker, whether — our brethren, apostles of assemblies — glory of Christ;
 
-<sup>24</sup> the shewing therefore of your love, and of our boasting on your behalf, to them shew ye, even in the face of the assemblies.
+**²⁴** the shewing therefore of your love, and of our boasting on your behalf, to them shew ye, even in the face of the assemblies.

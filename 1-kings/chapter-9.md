@@ -1,57 +1,57 @@
 # Chapter 9
 
-<sup>1</sup> And it cometh to pass, at Solomon's finishing to build the house of Jehovah, and the house of the king, and all the desire of Solomon that he delighted to do,
+**¹** And it cometh to pass, at Solomon's finishing to build the house of Jehovah, and the house of the king, and all the desire of Solomon that he delighted to do,
 
-<sup>2</sup> that Jehovah appeareth unto Solomon a second time, as He appeared unto him in Gibeon,
+**²** that Jehovah appeareth unto Solomon a second time, as He appeared unto him in Gibeon,
 
-<sup>3</sup> and Jehovah saith unto him, 'I have heard thy prayer and thy supplication with which thou hast made supplication before Me; I have hallowed this house that thou hast built to put My name there — unto the age, and Mine eyes and My heart have been there all the days.
+**³** and Jehovah saith unto him, 'I have heard thy prayer and thy supplication with which thou hast made supplication before Me; I have hallowed this house that thou hast built to put My name there — unto the age, and Mine eyes and My heart have been there all the days.
 
-<sup>4</sup> 'And thou — if thou dost walk before Me as David thy father walked, in simplicity of heart, and in uprightness, to do according to all that I have commanded thee — My statutes and My judgments thou dost keep —
+**⁴** 'And thou — if thou dost walk before Me as David thy father walked, in simplicity of heart, and in uprightness, to do according to all that I have commanded thee — My statutes and My judgments thou dost keep —
 
-<sup>5</sup> then I have established the throne of thy kingdom over Israel — to the age, as I spake unto David thy father, saying, There is not cut off to thee a man from [being] on the throne of Israel.
+**⁵** then I have established the throne of thy kingdom over Israel — to the age, as I spake unto David thy father, saying, There is not cut off to thee a man from [being] on the throne of Israel.
 
-<sup>6</sup> 'If ye at all turn back — you and your sons — from after Me, and keep not My commands — My statutes, that I have set before you, and ye have gone and served other gods, and bowed yourselves to them,
+**⁶** 'If ye at all turn back — you and your sons — from after Me, and keep not My commands — My statutes, that I have set before you, and ye have gone and served other gods, and bowed yourselves to them,
 
-<sup>7</sup> then I have cut off Israel from the face of the ground that I have given to them, and the house that I have hallowed for My name I send away from My presence, and Israel hath been for a simile and for a byword among all the peoples;
+**⁷** then I have cut off Israel from the face of the ground that I have given to them, and the house that I have hallowed for My name I send away from My presence, and Israel hath been for a simile and for a byword among all the peoples;
 
-<sup>8</sup> as to this house, [that] is high, every one passing by it is astonished, and hath hissed, and they have said, Wherefore hath Jehovah done thus to this land and to this house?
+**⁸** as to this house, [that] is high, every one passing by it is astonished, and hath hissed, and they have said, Wherefore hath Jehovah done thus to this land and to this house?
 
-<sup>9</sup> and they have said, Because that they have forsaken Jehovah their God, who brought out their fathers from the land of Egypt, and they lay hold on other gods, and bow themselves to them, and serve them; therefore hath Jehovah brought in upon them all this evil.'
+**⁹** and they have said, Because that they have forsaken Jehovah their God, who brought out their fathers from the land of Egypt, and they lay hold on other gods, and bow themselves to them, and serve them; therefore hath Jehovah brought in upon them all this evil.'
 
-<sup>10</sup> And it cometh to pass, at the end of twenty years, that Solomon hath built the two houses, the house of Jehovah, and the house of the king.
+**¹⁰** And it cometh to pass, at the end of twenty years, that Solomon hath built the two houses, the house of Jehovah, and the house of the king.
 
-<sup>11</sup> Hiram king of Tyre hath assisted Solomon with cedar-trees, and with fir-trees, and with gold, according to all his desire; then doth king Solomon give to Hiram twenty cities in the land of Galilee.
+**¹¹** Hiram king of Tyre hath assisted Solomon with cedar-trees, and with fir-trees, and with gold, according to all his desire; then doth king Solomon give to Hiram twenty cities in the land of Galilee.
 
-<sup>12</sup> And Hiram cometh out from Tyre to see the cities that Solomon hath given to him, and they have not been right in his eyes,
+**¹²** And Hiram cometh out from Tyre to see the cities that Solomon hath given to him, and they have not been right in his eyes,
 
-<sup>13</sup> and he saith, 'What [are] these cities that thou hast given to me, my brother?' and one calleth them the land of Cabul unto this day.
+**¹³** and he saith, 'What [are] these cities that thou hast given to me, my brother?' and one calleth them the land of Cabul unto this day.
 
-<sup>14</sup> And Hiram sendeth to the king a hundred and twenty talents of gold.
+**¹⁴** And Hiram sendeth to the king a hundred and twenty talents of gold.
 
-<sup>15</sup> And this [is] the matter of the tribute that king Solomon hath lifted up, to build the house of Jehovah, and his own house, and Millo, and the wall of Jerusalem, and Hazor, and Megiddo, and Gezer,
+**¹⁵** And this [is] the matter of the tribute that king Solomon hath lifted up, to build the house of Jehovah, and his own house, and Millo, and the wall of Jerusalem, and Hazor, and Megiddo, and Gezer,
 
-<sup>16</sup> (Pharaoh king of Egypt hath gone up and doth capture Gezer, and doth burn it with fire, and the Canaanite who is dwelling in the city he hath slain, and giveth it [with] presents to his daughter, wife of Solomon.)
+**¹⁶** (Pharaoh king of Egypt hath gone up and doth capture Gezer, and doth burn it with fire, and the Canaanite who is dwelling in the city he hath slain, and giveth it [with] presents to his daughter, wife of Solomon.)
 
-<sup>17</sup> And Solomon buildeth Gezer, and Beth-Horon the lower,
+**¹⁷** And Solomon buildeth Gezer, and Beth-Horon the lower,
 
-<sup>18</sup> and Baalath, and Tadmor in the wilderness, in the land;
+**¹⁸** and Baalath, and Tadmor in the wilderness, in the land;
 
-<sup>19</sup> and all the cities of stores that king Solomon hath, and the cities of the chariots, and the cities of the horsemen, and the desire of Solomon that he desired to build in Jerusalem, and in Lebanon, and in all the land of his dominion.
+**¹⁹** and all the cities of stores that king Solomon hath, and the cities of the chariots, and the cities of the horsemen, and the desire of Solomon that he desired to build in Jerusalem, and in Lebanon, and in all the land of his dominion.
 
-<sup>20</sup> The whole of the people that is left of the Amorite, the Hittite, the Perizzite, the Hivite, and the Jebusite, who [are] not of the sons of Israel —
+**²⁰** The whole of the people that is left of the Amorite, the Hittite, the Perizzite, the Hivite, and the Jebusite, who [are] not of the sons of Israel —
 
-<sup>21</sup> their sons who are left behind them in the land, whom the sons of Israel have not been able to devote — he hath even lifted up [on] them a tribute of service unto this day.
+**²¹** their sons who are left behind them in the land, whom the sons of Israel have not been able to devote — he hath even lifted up [on] them a tribute of service unto this day.
 
-<sup>22</sup> And out of the sons of Israel Solomon hath not appointed a servant, for they [are] the men of war, and his servants, and his heads, and his captains, and the heads of his chariots, and his horsemen.
+**²²** And out of the sons of Israel Solomon hath not appointed a servant, for they [are] the men of war, and his servants, and his heads, and his captains, and the heads of his chariots, and his horsemen.
 
-<sup>23</sup> These [are] the heads of the officers who [are] over the work of Solomon, fifty and five hundred, those ruling among the people who are labouring in the work.
+**²³** These [are] the heads of the officers who [are] over the work of Solomon, fifty and five hundred, those ruling among the people who are labouring in the work.
 
-<sup>24</sup> Only, the daughter of Pharaoh went up out of the city of David unto her house that [Solomon] built for her; then he built Millo.
+**²⁴** Only, the daughter of Pharaoh went up out of the city of David unto her house that [Solomon] built for her; then he built Millo.
 
-<sup>25</sup> And Solomon caused to ascend, three times in a year, burnt-offerings and peace-offerings on the altar that he built to Jehovah, and he perfumed it with that which [is] before Jehovah, and finished the house.
+**²⁵** And Solomon caused to ascend, three times in a year, burnt-offerings and peace-offerings on the altar that he built to Jehovah, and he perfumed it with that which [is] before Jehovah, and finished the house.
 
-<sup>26</sup> And a navy hath king Solomon made in Ezion-Geber, that is beside Eloth, on the edge of the Sea of Suph, in the land of Edom.
+**²⁶** And a navy hath king Solomon made in Ezion-Geber, that is beside Eloth, on the edge of the Sea of Suph, in the land of Edom.
 
-<sup>27</sup> And Hiram sendeth in the navy his servants, shipmen knowing the sea, with servants of Solomon,
+**²⁷** And Hiram sendeth in the navy his servants, shipmen knowing the sea, with servants of Solomon,
 
-<sup>28</sup> and they come in to Ophir and take thence gold, four hundred and twenty talents, and bring [it] in unto king Solomon.
+**²⁸** and they come in to Ophir and take thence gold, four hundred and twenty talents, and bring [it] in unto king Solomon.

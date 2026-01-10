@@ -1,47 +1,47 @@
 # Chapter 21
 
-<sup>1</sup> 'When one is found slain on the ground which Jehovah thy God is giving to thee to possess it — fallen in a field — it is not known who hath smitten him,
+**¹** 'When one is found slain on the ground which Jehovah thy God is giving to thee to possess it — fallen in a field — it is not known who hath smitten him,
 
-<sup>2</sup> then have thine elders and thy judges gone out and measured unto the cities which [are] round about the slain one,
+**²** then have thine elders and thy judges gone out and measured unto the cities which [are] round about the slain one,
 
-<sup>3</sup> and it hath been, the city which [is] near unto the slain one, even the elders of that city have taken a heifer of the herd, which hath not been wrought with, which hath not drawn in the yoke,
+**³** and it hath been, the city which [is] near unto the slain one, even the elders of that city have taken a heifer of the herd, which hath not been wrought with, which hath not drawn in the yoke,
 
-<sup>4</sup> and the elders of that city have brought down the heifer unto a hard valley, which is not tilled nor sown, and have beheaded there the heifer in the valley.
+**⁴** and the elders of that city have brought down the heifer unto a hard valley, which is not tilled nor sown, and have beheaded there the heifer in the valley.
 
-<sup>5</sup> 'And the priests, sons of Levi, have come nigh — for on them hath Jehovah thy God fixed to serve Him, and to bless in the name of Jehovah, and by their mouth is every strife, and every stroke —
+**⁵** 'And the priests, sons of Levi, have come nigh — for on them hath Jehovah thy God fixed to serve Him, and to bless in the name of Jehovah, and by their mouth is every strife, and every stroke —
 
-<sup>6</sup> and all the elders of that city, who are near unto the slain one, do wash their hands over the heifer which is beheaded in the valley,
+**⁶** and all the elders of that city, who are near unto the slain one, do wash their hands over the heifer which is beheaded in the valley,
 
-<sup>7</sup> and they have answered and said, Our hands have not shed this blood, and our eyes have not seen —
+**⁷** and they have answered and said, Our hands have not shed this blood, and our eyes have not seen —
 
-<sup>8</sup> receive atonement for Thy people Israel, whom Thou hast ransomed, O Jehovah, and suffer not innocent blood in the midst of Thy people Israel; and the blood hath been pardoned to them,
+**⁸** receive atonement for Thy people Israel, whom Thou hast ransomed, O Jehovah, and suffer not innocent blood in the midst of Thy people Israel; and the blood hath been pardoned to them,
 
-<sup>9</sup> and thou dost put away the innocent blood out of thy midst, for thou dost that which [is] right in the eyes of Jehovah.
+**⁹** and thou dost put away the innocent blood out of thy midst, for thou dost that which [is] right in the eyes of Jehovah.
 
-<sup>10</sup> 'When thou goest out to battle against thine enemies, and Jehovah thy God hath given them into thy hand, and thou hast taken captive its captivity,
+**¹⁰** 'When thou goest out to battle against thine enemies, and Jehovah thy God hath given them into thy hand, and thou hast taken captive its captivity,
 
-<sup>11</sup> and hast seen in the captivity a woman of fair form, and hast delighted in her, and hast taken to thee for a wife,
+**¹¹** and hast seen in the captivity a woman of fair form, and hast delighted in her, and hast taken to thee for a wife,
 
-<sup>12</sup> then thou hast brought her in unto the midst of thy household, and she hath shaved her head, and prepared her nails,
+**¹²** then thou hast brought her in unto the midst of thy household, and she hath shaved her head, and prepared her nails,
 
-<sup>13</sup> and turned aside the raiment of her captivity from off her, and hath dwelt in thy house, and bewailed her father and her mother a month of days, and afterwards thou dost go in unto her and hast married her, and she hath been to thee for a wife:
+**¹³** and turned aside the raiment of her captivity from off her, and hath dwelt in thy house, and bewailed her father and her mother a month of days, and afterwards thou dost go in unto her and hast married her, and she hath been to thee for a wife:
 
-<sup>14</sup> 'And it hath been — if thou hast not delighted in her, that thou hast sent her away at her desire, and thou dost not at all sell her for money; thou dost not tyrannize over her, because that thou hast humbled her.
+**¹⁴** 'And it hath been — if thou hast not delighted in her, that thou hast sent her away at her desire, and thou dost not at all sell her for money; thou dost not tyrannize over her, because that thou hast humbled her.
 
-<sup>15</sup> 'When a man hath two wives, the one loved and the other hated, and they have borne to him sons (the loved one and the hated one), and the first-born son hath been to the hated one;
+**¹⁵** 'When a man hath two wives, the one loved and the other hated, and they have borne to him sons (the loved one and the hated one), and the first-born son hath been to the hated one;
 
-<sup>16</sup> then it hath been, in the day of his causing his sons to inherit that which he hath, he is not able to declare first-born the son of the loved one, in the face of the son of the hated one — the first-born.
+**¹⁶** then it hath been, in the day of his causing his sons to inherit that which he hath, he is not able to declare first-born the son of the loved one, in the face of the son of the hated one — the first-born.
 
-<sup>17</sup> But the first-born, son of the hated one, he doth acknowledge, to give to him a double portion of all that is found with him, for he [is] the beginning of his strength; to him [is] the right of the first-born.
+**¹⁷** But the first-born, son of the hated one, he doth acknowledge, to give to him a double portion of all that is found with him, for he [is] the beginning of his strength; to him [is] the right of the first-born.
 
-<sup>18</sup> 'When a man hath a son apostatizing and rebellious — he is not hearkening to the voice of his father, and to the voice of his mother, and they have chastised him, and he doth not hearken unto them —
+**¹⁸** 'When a man hath a son apostatizing and rebellious — he is not hearkening to the voice of his father, and to the voice of his mother, and they have chastised him, and he doth not hearken unto them —
 
-<sup>19</sup> then laid hold on him have his father and his mother, and they have brought him out unto the elders of his city, and unto the gate of his place,
+**¹⁹** then laid hold on him have his father and his mother, and they have brought him out unto the elders of his city, and unto the gate of his place,
 
-<sup>20</sup> and have said unto the elders of his city, Our son — this one — is apostatizing and rebellious; he is not hearkening to our voice — a glutton and drunkard;
+**²⁰** and have said unto the elders of his city, Our son — this one — is apostatizing and rebellious; he is not hearkening to our voice — a glutton and drunkard;
 
-<sup>21</sup> and all the men of his city have stoned him with stones, and he hath died, and thou hast put away the evil out of thy midst, and all Israel do hear and fear.
+**²¹** and all the men of his city have stoned him with stones, and he hath died, and thou hast put away the evil out of thy midst, and all Israel do hear and fear.
 
-<sup>22</sup> 'And when there is in a man a sin — a cause of death, and he hath been put to death, and thou hast hanged him on a tree,
+**²²** 'And when there is in a man a sin — a cause of death, and he hath been put to death, and thou hast hanged him on a tree,
 
-<sup>23</sup> his corpse doth not remain on the tree, for thou dost certainly bury him in that day — for a thing lightly esteemed of God [is] the hanged one — and thou dost not defile thy ground which Jehovah thy God is giving to thee — an inheritance.
+**²³** his corpse doth not remain on the tree, for thou dost certainly bury him in that day — for a thing lightly esteemed of God [is] the hanged one — and thou dost not defile thy ground which Jehovah thy God is giving to thee — an inheritance.

@@ -1,77 +1,77 @@
 # Chapter 3
 
-<sup>1</sup> And in the fifteenth year of the government of Tiberius Caesar — Pontius Pilate being governor of Judea, and Herod tetrarch of Galilee, and Philip his brother, tetrarch of Ituraea and of the region of Trachonitis, and Lysanias tetrarch of Abilene —
+**¹** And in the fifteenth year of the government of Tiberius Caesar — Pontius Pilate being governor of Judea, and Herod tetrarch of Galilee, and Philip his brother, tetrarch of Ituraea and of the region of Trachonitis, and Lysanias tetrarch of Abilene —
 
-<sup>2</sup> Annas and Caiaphas being chief priests — there came a word of God unto John the son of Zacharias, in the wilderness,
+**²** Annas and Caiaphas being chief priests — there came a word of God unto John the son of Zacharias, in the wilderness,
 
-<sup>3</sup> and he came to all the region round the Jordan, proclaiming a baptism of reformation — to remission of sins,
+**³** and he came to all the region round the Jordan, proclaiming a baptism of reformation — to remission of sins,
 
-<sup>4</sup> as it hath been written in the scroll of the words of Isaiah the prophet, saying, 'A voice of one crying in the wilderness, Prepare ye the way of the Lord, straight make ye His paths;
+**⁴** as it hath been written in the scroll of the words of Isaiah the prophet, saying, 'A voice of one crying in the wilderness, Prepare ye the way of the Lord, straight make ye His paths;
 
-<sup>5</sup> every valley shall be filled, and every mountain and hill shall be made low, and the crooked shall become straightness, and the rough become smooth ways;
+**⁵** every valley shall be filled, and every mountain and hill shall be made low, and the crooked shall become straightness, and the rough become smooth ways;
 
-<sup>6</sup> and all flesh shall see the salvation of God.'
+**⁶** and all flesh shall see the salvation of God.'
 
-<sup>7</sup> Then said he to the multitudes coming forth to be baptised by him, 'Brood of vipers! who did prompt you to flee from the coming wrath?
+**⁷** Then said he to the multitudes coming forth to be baptised by him, 'Brood of vipers! who did prompt you to flee from the coming wrath?
 
-<sup>8</sup> make, therefore, fruits worthy of the reformation, and begin not to say within yourselves, We have a father — Abraham; for I say to you, that God is able out of these stones to raise children to Abraham;
+**⁸** make, therefore, fruits worthy of the reformation, and begin not to say within yourselves, We have a father — Abraham; for I say to you, that God is able out of these stones to raise children to Abraham;
 
-<sup>9</sup> and already also the axe unto the root of the trees is laid, every tree, therefore, not making good fruit is cut down, and to fire it is cast.'
+**⁹** and already also the axe unto the root of the trees is laid, every tree, therefore, not making good fruit is cut down, and to fire it is cast.'
 
-<sup>10</sup> And the multitudes were questioning him, saying, 'What, then, shall we do?'
+**¹⁰** And the multitudes were questioning him, saying, 'What, then, shall we do?'
 
-<sup>11</sup> and he answering saith to them, 'He having two coats — let him impart to him having none, and he having victuals — in like manner let him do.'
+**¹¹** and he answering saith to them, 'He having two coats — let him impart to him having none, and he having victuals — in like manner let him do.'
 
-<sup>12</sup> And there came also tax-gatherers to be baptised, and they said unto him, 'Teacher, what shall we do?'
+**¹²** And there came also tax-gatherers to be baptised, and they said unto him, 'Teacher, what shall we do?'
 
-<sup>13</sup> and he said unto them, 'Exact no more than that directed you.'
+**¹³** and he said unto them, 'Exact no more than that directed you.'
 
-<sup>14</sup> And questioning him also were those warring, saying, 'And we, what shall we do?' and he said unto them, 'Do violence to no one, nor accuse falsely, and be content with your wages.'
+**¹⁴** And questioning him also were those warring, saying, 'And we, what shall we do?' and he said unto them, 'Do violence to no one, nor accuse falsely, and be content with your wages.'
 
-<sup>15</sup> And the people are looking forward, and all are reasoning in their hearts concerning John, whether or not he may be the Christ;
+**¹⁵** And the people are looking forward, and all are reasoning in their hearts concerning John, whether or not he may be the Christ;
 
-<sup>16</sup> John answered, saying to all, 'I indeed with water do baptise you, but he cometh who is mightier than I, of whom I am not worthy to loose the latchet of his sandals — he shall baptise you with the Holy Spirit and with fire;
+**¹⁶** John answered, saying to all, 'I indeed with water do baptise you, but he cometh who is mightier than I, of whom I am not worthy to loose the latchet of his sandals — he shall baptise you with the Holy Spirit and with fire;
 
-<sup>17</sup> whose winnowing shovel [is] in his hand, and he will thoroughly cleanse his floor, and will gather the wheat to his storehouse, and the chaff he will burn with fire unquenchable.'
+**¹⁷** whose winnowing shovel [is] in his hand, and he will thoroughly cleanse his floor, and will gather the wheat to his storehouse, and the chaff he will burn with fire unquenchable.'
 
-<sup>18</sup> And, therefore, indeed with many other things, exhorting, he was proclaiming good news to the people,
+**¹⁸** And, therefore, indeed with many other things, exhorting, he was proclaiming good news to the people,
 
-<sup>19</sup> and Herod the tetrarch, being reproved by him concerning Herodias the wife of Philip his brother, and concerning all the evils that Herod did,
+**¹⁹** and Herod the tetrarch, being reproved by him concerning Herodias the wife of Philip his brother, and concerning all the evils that Herod did,
 
-<sup>20</sup> added also this to all, that he shut up John in the prison.
+**²⁰** added also this to all, that he shut up John in the prison.
 
-<sup>21</sup> And it came to pass, in all the people being baptised, Jesus also being baptised, and praying, the heaven was opened,
+**²¹** And it came to pass, in all the people being baptised, Jesus also being baptised, and praying, the heaven was opened,
 
-<sup>22</sup> and the Holy Spirit came down in a bodily appearance, as if a dove, upon him, and a voice came out of heaven, saying, 'Thou art My Son — the Beloved, in thee I did delight.'
+**²²** and the Holy Spirit came down in a bodily appearance, as if a dove, upon him, and a voice came out of heaven, saying, 'Thou art My Son — the Beloved, in thee I did delight.'
 
-<sup>23</sup> And Jesus himself was beginning to be about thirty years of age, being, as was supposed, son of Joseph,
+**²³** And Jesus himself was beginning to be about thirty years of age, being, as was supposed, son of Joseph,
 
-<sup>24</sup> the [son] of Eli, the [son] of Matthat, the [son] of Levi, the [son] of Melchi, the [son] of Janna, the [son] of Joseph,
+**²⁴** the [son] of Eli, the [son] of Matthat, the [son] of Levi, the [son] of Melchi, the [son] of Janna, the [son] of Joseph,
 
-<sup>25</sup> the [son] of Mattathias, the [son] of Amos, the [son] of Naum, the [son] of Esli,
+**²⁵** the [son] of Mattathias, the [son] of Amos, the [son] of Naum, the [son] of Esli,
 
-<sup>26</sup> the [son] of Naggai, the [son] of Maath, the [son] of Mattathias, the [son] of Semei, the [son] of Joseph, the [son] of Juda,
+**²⁶** the [son] of Naggai, the [son] of Maath, the [son] of Mattathias, the [son] of Semei, the [son] of Joseph, the [son] of Juda,
 
-<sup>27</sup> the [son] of Joanna, the [son] of Rhesa, the [son] of Zerubbabel, the [son] of Shealtiel,
+**²⁷** the [son] of Joanna, the [son] of Rhesa, the [son] of Zerubbabel, the [son] of Shealtiel,
 
-<sup>28</sup> the [son] of Neri, the [son] of Melchi, the [son] of Addi, the [son] of Cosam, the [son] of Elmodam, the [son] of Er,
+**²⁸** the [son] of Neri, the [son] of Melchi, the [son] of Addi, the [son] of Cosam, the [son] of Elmodam, the [son] of Er,
 
-<sup>29</sup> the [son] of Jose, the [son] of Eliezer, the [son] of Jorim, the [son] of Matthat,
+**²⁹** the [son] of Jose, the [son] of Eliezer, the [son] of Jorim, the [son] of Matthat,
 
-<sup>30</sup> the [son] of Levi, the [son] of Simeon, the [son] of Juda, the [son] of Joseph, the [son] of Jonan, the [son] of Eliakim,
+**³⁰** the [son] of Levi, the [son] of Simeon, the [son] of Juda, the [son] of Joseph, the [son] of Jonan, the [son] of Eliakim,
 
-<sup>31</sup> the [son] of Melea, the [son] of Mainan, the [son] of Mattatha, the [son] of Nathan,
+**³¹** the [son] of Melea, the [son] of Mainan, the [son] of Mattatha, the [son] of Nathan,
 
-<sup>32</sup> the [son] of David, the [son] of Jesse, the [son] of Obed, the [son] of Booz, the [son] of Salmon, the [son] of Nahshon,
+**³²** the [son] of David, the [son] of Jesse, the [son] of Obed, the [son] of Booz, the [son] of Salmon, the [son] of Nahshon,
 
-<sup>33</sup> the [son] of Amminadab, the [son] of Aram, the [son] of Esrom, the [son] of Pharez,
+**³³** the [son] of Amminadab, the [son] of Aram, the [son] of Esrom, the [son] of Pharez,
 
-<sup>34</sup> the [son] of Judah, the [son] of Jacob, the [son] of Isaac, the [son] of Abraham, the [son] of Terah, the [son] of Nahor,
+**³⁴** the [son] of Judah, the [son] of Jacob, the [son] of Isaac, the [son] of Abraham, the [son] of Terah, the [son] of Nahor,
 
-<sup>35</sup> the [son] of Serug, the [son] of Reu, the [son] of Peleg, the [son] of Eber,
+**³⁵** the [son] of Serug, the [son] of Reu, the [son] of Peleg, the [son] of Eber,
 
-<sup>36</sup> the [son] of Salah, the [son] of Cainan, the [son] of Arphaxad, the [son] of Shem, the [son] of Noah, the [son] of Lamech,
+**³⁶** the [son] of Salah, the [son] of Cainan, the [son] of Arphaxad, the [son] of Shem, the [son] of Noah, the [son] of Lamech,
 
-<sup>37</sup> the [son] of Methuselah, the [son] of Enoch, the [son] of Jared, the [son] of Mahalaleel,
+**³⁷** the [son] of Methuselah, the [son] of Enoch, the [son] of Jared, the [son] of Mahalaleel,
 
-<sup>38</sup> the [son] of Cainan, the [son] of Enos, the [son] of Seth, the [son] of Adam, the [son] of God.
+**³⁸** the [son] of Cainan, the [son] of Enos, the [son] of Seth, the [son] of Adam, the [son] of God.

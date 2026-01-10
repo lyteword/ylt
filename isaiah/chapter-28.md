@@ -1,59 +1,59 @@
 # Chapter 28
 
-<sup>1</sup> Woe [to] the proud crown of the drunkards of Ephraim. And the fading flower of the beauty of his glory, That [is] on the head of the fat valley of the broken down of wine.
+**¹** Woe [to] the proud crown of the drunkards of Ephraim. And the fading flower of the beauty of his glory, That [is] on the head of the fat valley of the broken down of wine.
 
-<sup>2</sup> Lo, a mighty and strong one [is] to the Lord, As a storm of hail — a destructive shower, As an inundation of mighty waters overflowing, He cast down to the earth with the hand.
+**²** Lo, a mighty and strong one [is] to the Lord, As a storm of hail — a destructive shower, As an inundation of mighty waters overflowing, He cast down to the earth with the hand.
 
-<sup>3</sup> By feet trodden down is the proud crown of the drunkards of Ephraim,
+**³** By feet trodden down is the proud crown of the drunkards of Ephraim,
 
-<sup>4</sup> And the fading flower of the beauty of his glory That [is] on the head of the fat valley, Hath been as its first-fruit before summer, That its beholder seeth, While it [is] yet in his hand he swalloweth it.
+**⁴** And the fading flower of the beauty of his glory That [is] on the head of the fat valley, Hath been as its first-fruit before summer, That its beholder seeth, While it [is] yet in his hand he swalloweth it.
 
-<sup>5</sup> In that day is Jehovah of Hosts For a crown of beauty, and for a diadem of glory, To the remnant of His people.
+**⁵** In that day is Jehovah of Hosts For a crown of beauty, and for a diadem of glory, To the remnant of His people.
 
-<sup>6</sup> And for a spirit of judgment To him who is sitting in the judgment, And for might [to] those turning back the battle to the gate.
+**⁶** And for a spirit of judgment To him who is sitting in the judgment, And for might [to] those turning back the battle to the gate.
 
-<sup>7</sup> And even these through wine have erred, And through strong drink have wandered, Priest and prophet erred through strong drink, They have been swallowed up of the wine, They wandered because of the strong drink, They have erred in seeing, They have stumbled judicially.
+**⁷** And even these through wine have erred, And through strong drink have wandered, Priest and prophet erred through strong drink, They have been swallowed up of the wine, They wandered because of the strong drink, They have erred in seeing, They have stumbled judicially.
 
-<sup>8</sup> For all tables have been full of vomit, Filth — without place!
+**⁸** For all tables have been full of vomit, Filth — without place!
 
-<sup>9</sup> By whom doth He teach knowledge? And by whom doth He cause to understand the report? The weaned from milk, the removed from breasts,
+**⁹** By whom doth He teach knowledge? And by whom doth He cause to understand the report? The weaned from milk, the removed from breasts,
 
-<sup>10</sup> For rule [is] on rule, rule on rule, line on line, line on line, A little here, a little there,
+**¹⁰** For rule [is] on rule, rule on rule, line on line, line on line, A little here, a little there,
 
-<sup>11</sup> For by scorned lip, and by another tongue, Doth He speak unto this people.
+**¹¹** For by scorned lip, and by another tongue, Doth He speak unto this people.
 
-<sup>12</sup> Unto whom He hath said, 'This [is] the rest, give ye rest to the weary, And this — the refreshing:' And they have not been willing to hear,
+**¹²** Unto whom He hath said, 'This [is] the rest, give ye rest to the weary, And this — the refreshing:' And they have not been willing to hear,
 
-<sup>13</sup> And to whom a word of Jehovah hath been, Rule on rule, rule on rule, line on line, line on line, A little here, a little there, So that they go and have stumbled backward, And been broken, and snared, and captured.
+**¹³** And to whom a word of Jehovah hath been, Rule on rule, rule on rule, line on line, line on line, A little here, a little there, So that they go and have stumbled backward, And been broken, and snared, and captured.
 
-<sup>14</sup> Therefore, hear a word of Jehovah, ye men of scorning, Ruling this people that [is] in Jerusalem.
+**¹⁴** Therefore, hear a word of Jehovah, ye men of scorning, Ruling this people that [is] in Jerusalem.
 
-<sup>15</sup> Because ye have said: 'We have made a covenant with death, And with Sheol we have made a provision, An overflowing scourge, when it passeth over, Doth not meet us, Though we have made a lie our refuge, And in falsehood have been hidden.'
+**¹⁵** Because ye have said: 'We have made a covenant with death, And with Sheol we have made a provision, An overflowing scourge, when it passeth over, Doth not meet us, Though we have made a lie our refuge, And in falsehood have been hidden.'
 
-<sup>16</sup> Therefore, thus said the Lord Jehovah: 'Lo, I am laying a foundation in Zion, A stone — a tried stone, a corner stone precious, a settled foundation, He who is believing doth not make haste.
+**¹⁶** Therefore, thus said the Lord Jehovah: 'Lo, I am laying a foundation in Zion, A stone — a tried stone, a corner stone precious, a settled foundation, He who is believing doth not make haste.
 
-<sup>17</sup> And I have put judgment for a line, And righteousness for a plummet, And sweep away doth hail the refuge of lies, And the secret hiding-place do waters overflow.
+**¹⁷** And I have put judgment for a line, And righteousness for a plummet, And sweep away doth hail the refuge of lies, And the secret hiding-place do waters overflow.
 
-<sup>18</sup> And disannulled hath been your covenant with death, And your provision with Sheol doth not stand, An overflowing scourge, when it passeth over, Then ye have been to it for a treading-place.
+**¹⁸** And disannulled hath been your covenant with death, And your provision with Sheol doth not stand, An overflowing scourge, when it passeth over, Then ye have been to it for a treading-place.
 
-<sup>19</sup> From the fulness of its passing over it taketh you, For morning by morning it passeth over, By day and by night, And it hath been only a trembling to consider the report.
+**¹⁹** From the fulness of its passing over it taketh you, For morning by morning it passeth over, By day and by night, And it hath been only a trembling to consider the report.
 
-<sup>20</sup> For shorter hath been the bed Than to stretch one's self out in, And the covering hath been narrower Than to wrap one's self up in.
+**²⁰** For shorter hath been the bed Than to stretch one's self out in, And the covering hath been narrower Than to wrap one's self up in.
 
-<sup>21</sup> For as [at] mount Perazim rise doth Jehovah, As [at] the valley in Gibeon He is troubled, To do His work — strange [is] His work, And to do His deed — strange [is] His deed.'
+**²¹** For as [at] mount Perazim rise doth Jehovah, As [at] the valley in Gibeon He is troubled, To do His work — strange [is] His work, And to do His deed — strange [is] His deed.'
 
-<sup>22</sup> And now, show not yourselves scorners, Lest strong be your bands, For a consumption, that is determined, I have heard, by the Lord, Jehovah of Hosts, [Is] for all the land.
+**²²** And now, show not yourselves scorners, Lest strong be your bands, For a consumption, that is determined, I have heard, by the Lord, Jehovah of Hosts, [Is] for all the land.
 
-<sup>23</sup> Give ear, and hear my voice, Attend, and hear my saying:
+**²³** Give ear, and hear my voice, Attend, and hear my saying:
 
-<sup>24</sup> The whole day plougheth the ploughman to sow? He openeth and harroweth his ground!
+**²⁴** The whole day plougheth the ploughman to sow? He openeth and harroweth his ground!
 
-<sup>25</sup> Hath he not, if he have made level its face, Then scattered fitches, and cummin sprinkle, And hath placed the principal wheat, And the appointed barley, And the rie [in] its own border?
+**²⁵** Hath he not, if he have made level its face, Then scattered fitches, and cummin sprinkle, And hath placed the principal wheat, And the appointed barley, And the rie [in] its own border?
 
-<sup>26</sup> And instruct him for judgment doth his God, He doth direct him.
+**²⁶** And instruct him for judgment doth his God, He doth direct him.
 
-<sup>27</sup> For not with a sharp-pointed thing threshed are fitches, And the wheel of a cart on cummin turned round, For with a staff beaten out are fitches, And cummin with a rod.
+**²⁷** For not with a sharp-pointed thing threshed are fitches, And the wheel of a cart on cummin turned round, For with a staff beaten out are fitches, And cummin with a rod.
 
-<sup>28</sup> Bread -[corn] is beaten small, For not for ever doth he sorely thresh it, Nor crushed [it] hath a wheel of his cart, Nor do his hoofs beat it small.
+**²⁸** Bread -[corn] is beaten small, For not for ever doth he sorely thresh it, Nor crushed [it] hath a wheel of his cart, Nor do his hoofs beat it small.
 
-<sup>29</sup> Even this from Jehovah of Hosts hath gone out, He hath made counsel wonderful, He hath made wisdom great!
+**²⁹** Even this from Jehovah of Hosts hath gone out, He hath made counsel wonderful, He hath made wisdom great!

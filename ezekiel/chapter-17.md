@@ -1,49 +1,49 @@
 # Chapter 17
 
-<sup>1</sup> And there is a word of Jehovah unto me, saying,
+**¹** And there is a word of Jehovah unto me, saying,
 
-<sup>2</sup> 'Son of man, put forth a riddle, and use a simile unto the house of Israel,
+**²** 'Son of man, put forth a riddle, and use a simile unto the house of Israel,
 
-<sup>3</sup> and thou hast said: Thus said the Lord Jehovah: The great eagle, great-winged, long-pinioned, Full of feathers, that hath diverse colours, Hath come in unto Lebanon, And it taketh the foliage of the cedar,
+**³** and thou hast said: Thus said the Lord Jehovah: The great eagle, great-winged, long-pinioned, Full of feathers, that hath diverse colours, Hath come in unto Lebanon, And it taketh the foliage of the cedar,
 
-<sup>4</sup> The top of its tender twigs it hath cropped, And it bringeth it in to the land of Canaan. In a city of merchants it hath placed it.
+**⁴** The top of its tender twigs it hath cropped, And it bringeth it in to the land of Canaan. In a city of merchants it hath placed it.
 
-<sup>5</sup> And it taketh of the seed of the land, And doth put it in a field of seed, To take by many waters, In a conspicuous place it hath set it.
+**⁵** And it taketh of the seed of the land, And doth put it in a field of seed, To take by many waters, In a conspicuous place it hath set it.
 
-<sup>6</sup> And it springeth up, and becometh a spreading vine, humble of stature, To turn its thin shoots toward itself, And its roots are under it, And it becometh a vine, and maketh boughs, And sendeth forth beauteous branches.
+**⁶** And it springeth up, and becometh a spreading vine, humble of stature, To turn its thin shoots toward itself, And its roots are under it, And it becometh a vine, and maketh boughs, And sendeth forth beauteous branches.
 
-<sup>7</sup> And there is another great eagle, Great-winged, and abounding with feathers, And lo, this vine hath bent its roots toward him, And its thin shoots it hath sent out toward him, To water it from the furrows of its planting,
+**⁷** And there is another great eagle, Great-winged, and abounding with feathers, And lo, this vine hath bent its roots toward him, And its thin shoots it hath sent out toward him, To water it from the furrows of its planting,
 
-<sup>8</sup> On a good field, by many waters, it is planted, To make branches, and to bear fruit, To be for an goodly vine.
+**⁸** On a good field, by many waters, it is planted, To make branches, and to bear fruit, To be for an goodly vine.
 
-<sup>9</sup> Say: Thus said the Lord Jehovah: It prospereth — its roots doth he not draw out, And its fruit cut off, and it is withered? [In] all the leaves of its springing it withereth, And not by great strength, and by a numerous people, To lift it up by its roots.
+**⁹** Say: Thus said the Lord Jehovah: It prospereth — its roots doth he not draw out, And its fruit cut off, and it is withered? [In] all the leaves of its springing it withereth, And not by great strength, and by a numerous people, To lift it up by its roots.
 
-<sup>10</sup> And lo, the planted thing — doth it prosper? When come against it doth the east wind, Doth it not utterly wither? On the furrows of its springing it withereth.'
+**¹⁰** And lo, the planted thing — doth it prosper? When come against it doth the east wind, Doth it not utterly wither? On the furrows of its springing it withereth.'
 
-<sup>11</sup> And there is a word of Jehovah unto me, saying:
+**¹¹** And there is a word of Jehovah unto me, saying:
 
-<sup>12</sup> 'Say, I pray thee, to the rebellious house, Have ye not known what these [are]? Say, Lo, come hath the king of Babylon to Jerusalem, And he taketh its king, and its princes, And bringeth them to himself to Babylon.
+**¹²** 'Say, I pray thee, to the rebellious house, Have ye not known what these [are]? Say, Lo, come hath the king of Babylon to Jerusalem, And he taketh its king, and its princes, And bringeth them to himself to Babylon.
 
-<sup>13</sup> And he taketh of the seed of the kingdom, And maketh with him a covenant, And bringeth him in to an oath, And the mighty of the land he hath taken,
+**¹³** And he taketh of the seed of the kingdom, And maketh with him a covenant, And bringeth him in to an oath, And the mighty of the land he hath taken,
 
-<sup>14</sup> That the kingdom may be humble, That it may not lift itself up, To keep his covenant — that it may stand.
+**¹⁴** That the kingdom may be humble, That it may not lift itself up, To keep his covenant — that it may stand.
 
-<sup>15</sup> And he rebelleth against him, To send his messengers to Egypt, To give to him horses, and much people, Doth he prosper? doth he escape who is doing these things? And hath he broken covenant and escaped?
+**¹⁵** And he rebelleth against him, To send his messengers to Egypt, To give to him horses, and much people, Doth he prosper? doth he escape who is doing these things? And hath he broken covenant and escaped?
 
-<sup>16</sup> I live — an affirmation of the Lord Jehovah, Doth he not — in the place of the king who is causing him to reign, Whose oath he hath despised, And whose covenant he hath broken, With him — in the midst of Babylon — die?
+**¹⁶** I live — an affirmation of the Lord Jehovah, Doth he not — in the place of the king who is causing him to reign, Whose oath he hath despised, And whose covenant he hath broken, With him — in the midst of Babylon — die?
 
-<sup>17</sup> And not with a great force, and with a numerous assembly, Doth Pharaoh maintain him in battle, By pouring out a mount, and in building a fortification, To cut off many souls.
+**¹⁷** And not with a great force, and with a numerous assembly, Doth Pharaoh maintain him in battle, By pouring out a mount, and in building a fortification, To cut off many souls.
 
-<sup>18</sup> And he despised the oath — to break covenant, And lo, he hath given his hand, And all these he hath done, he escapeth not.
+**¹⁸** And he despised the oath — to break covenant, And lo, he hath given his hand, And all these he hath done, he escapeth not.
 
-<sup>19</sup> Therefore, thus said the Lord Jehovah: I live — Mine oath that he hath despised, And My covenant that he hath broken, Have I not put it on his head?
+**¹⁹** Therefore, thus said the Lord Jehovah: I live — Mine oath that he hath despised, And My covenant that he hath broken, Have I not put it on his head?
 
-<sup>20</sup> And I have spread out for him My snare, And he hath been caught in My net, And I have brought him in to Babylon, And pleaded with him there his trespass, That he hath trespassed against Me.
+**²⁰** And I have spread out for him My snare, And he hath been caught in My net, And I have brought him in to Babylon, And pleaded with him there his trespass, That he hath trespassed against Me.
 
-<sup>21</sup> And all his fugitives, with all his bands, By sword do fall, and those remaining, To every wind they are spread out, And ye have known that I, Jehovah, have spoken.
+**²¹** And all his fugitives, with all his bands, By sword do fall, and those remaining, To every wind they are spread out, And ye have known that I, Jehovah, have spoken.
 
-<sup>22</sup> Thus said the Lord Jehovah: I have taken of the foliage of the high cedar, And I have set [it], From the top of its tender shoots a tender one I crop, And I — I have planted [it] on a mountain high and lofty.
+**²²** Thus said the Lord Jehovah: I have taken of the foliage of the high cedar, And I have set [it], From the top of its tender shoots a tender one I crop, And I — I have planted [it] on a mountain high and lofty.
 
-<sup>23</sup> In a mountain — the high place of Israel, I plant it, And it hath borne boughs, and yielded fruit, And become a goodly cedar, And dwelt under it have all birds of every wing, In the shade of its thin shoots they dwell.
+**²³** In a mountain — the high place of Israel, I plant it, And it hath borne boughs, and yielded fruit, And become a goodly cedar, And dwelt under it have all birds of every wing, In the shade of its thin shoots they dwell.
 
-<sup>24</sup> And known have all trees of the field That I, Jehovah, have made low the high tree, I have set on high the low tree, I have dried up the moist tree, And I have caused the dry tree to flourish, I, Jehovah, have spoken, and have done [it]!'
+**²⁴** And known have all trees of the field That I, Jehovah, have made low the high tree, I have set on high the low tree, I have dried up the moist tree, And I have caused the dry tree to flourish, I, Jehovah, have spoken, and have done [it]!'

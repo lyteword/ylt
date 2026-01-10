@@ -1,27 +1,27 @@
 # Chapter 17
 
-<sup>1</sup> And there is a man of the hill-country of Ephraim, and his name [is] Micah,
+**¹** And there is a man of the hill-country of Ephraim, and his name [is] Micah,
 
-<sup>2</sup> and he saith to his mother, 'The eleven hundred silverlings which have been taken of thine, and [of which] thou hast sworn, and also spoken in mine ears; lo, the silver [is] with me, I have taken it;' and his mother saith, 'Blessed [is] my son of Jehovah.'
+**²** and he saith to his mother, 'The eleven hundred silverlings which have been taken of thine, and [of which] thou hast sworn, and also spoken in mine ears; lo, the silver [is] with me, I have taken it;' and his mother saith, 'Blessed [is] my son of Jehovah.'
 
-<sup>3</sup> And he giveth back the eleven hundred silverlings to his mother, and his mother saith, 'I had certainly sanctified the silver to Jehovah, from my hand, for my son, to make a graven image, and a molten image; and now, I give it back to thee.'
+**³** And he giveth back the eleven hundred silverlings to his mother, and his mother saith, 'I had certainly sanctified the silver to Jehovah, from my hand, for my son, to make a graven image, and a molten image; and now, I give it back to thee.'
 
-<sup>4</sup> And he giveth back the money to his mother, and his mother taketh two hundred silverlings, and giveth them to a refiner, and he maketh them a graven image, and a molten image, and it is in the house of Micah.
+**⁴** And he giveth back the money to his mother, and his mother taketh two hundred silverlings, and giveth them to a refiner, and he maketh them a graven image, and a molten image, and it is in the house of Micah.
 
-<sup>5</sup> As to the man Micah, he hath a house of gods, and he maketh an ephod, and teraphim, and consecrateth the hand of one of his sons, and he is to him for a priest;
+**⁵** As to the man Micah, he hath a house of gods, and he maketh an ephod, and teraphim, and consecrateth the hand of one of his sons, and he is to him for a priest;
 
-<sup>6</sup> in those days there is no king in Israel, each that which is right in his own eyes doth.
+**⁶** in those days there is no king in Israel, each that which is right in his own eyes doth.
 
-<sup>7</sup> And there is a young man of Beth-Lehem-Judah, of the family of Judah, and he [is] a Levite, and he [is] a sojourner there.
+**⁷** And there is a young man of Beth-Lehem-Judah, of the family of Judah, and he [is] a Levite, and he [is] a sojourner there.
 
-<sup>8</sup> And the man goeth out of the city, out of Beth-Lehem-Judah, to sojourn where he doth find, and cometh to the hill-country of Ephraim, unto the house of Micah, to work his way.
+**⁸** And the man goeth out of the city, out of Beth-Lehem-Judah, to sojourn where he doth find, and cometh to the hill-country of Ephraim, unto the house of Micah, to work his way.
 
-<sup>9</sup> And Micah saith to him, 'Whence comest thou?' and he saith unto him, 'A Levite [am] I, of Beth-Lehem-Judah, and I am going to sojourn where I do find.'
+**⁹** And Micah saith to him, 'Whence comest thou?' and he saith unto him, 'A Levite [am] I, of Beth-Lehem-Judah, and I am going to sojourn where I do find.'
 
-<sup>10</sup> And Micah saith to him, 'Dwell with me, and be to me for a father and for a priest, and I give to thee ten silverlings for the days, and a suit of garments, and thy sustenance;' and the Levite goeth [in].
+**¹⁰** And Micah saith to him, 'Dwell with me, and be to me for a father and for a priest, and I give to thee ten silverlings for the days, and a suit of garments, and thy sustenance;' and the Levite goeth [in].
 
-<sup>11</sup> And the Levite is willing to dwell with the man, and the young man is to him as one of his sons.
+**¹¹** And the Levite is willing to dwell with the man, and the young man is to him as one of his sons.
 
-<sup>12</sup> And Micah consecrateth the hand of the Levite, and the young man is to him for a priest, and he is in the house of Micah,
+**¹²** And Micah consecrateth the hand of the Levite, and the young man is to him for a priest, and he is in the house of Micah,
 
-<sup>13</sup> and Micah saith, 'Now I have known that Jehovah doth good to me, for the Levite hath been to me for a priest.'
+**¹³** and Micah saith, 'Now I have known that Jehovah doth good to me, for the Levite hath been to me for a priest.'

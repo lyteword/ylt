@@ -1,61 +1,61 @@
 # Chapter 3
 
-<sup>1</sup> Nebuchadnezzar the king hath made an image of gold, its height sixty cubits, its breadth six cubits; he hath raised it up in the valley of Dura, in the province of Babylon;
+**¹** Nebuchadnezzar the king hath made an image of gold, its height sixty cubits, its breadth six cubits; he hath raised it up in the valley of Dura, in the province of Babylon;
 
-<sup>2</sup> and Nebuchadnezzar the king hath sent to gather the satraps, the prefects, and the governors, the honourable judges, the treasurers, the counsellors, the sheriffs, and all the rulers of the province, to come to the dedication of the image that Nebuchadnezzar the king hath raised up.
+**²** and Nebuchadnezzar the king hath sent to gather the satraps, the prefects, and the governors, the honourable judges, the treasurers, the counsellors, the sheriffs, and all the rulers of the province, to come to the dedication of the image that Nebuchadnezzar the king hath raised up.
 
-<sup>3</sup> Then are gathered the satraps, the prefects, and the governors, the honourable judges, the treasurers, the counsellors, the sheriffs, and all the rulers of the province, to the dedication of the image that Nebuchadnezzar the king hath raised up: and they are standing before the image that Nebuchadnezzar hath raised up.
+**³** Then are gathered the satraps, the prefects, and the governors, the honourable judges, the treasurers, the counsellors, the sheriffs, and all the rulers of the province, to the dedication of the image that Nebuchadnezzar the king hath raised up: and they are standing before the image that Nebuchadnezzar hath raised up.
 
-<sup>4</sup> And a crier is calling mightily: 'To you they are saying: O peoples, nations, and languages!
+**⁴** And a crier is calling mightily: 'To you they are saying: O peoples, nations, and languages!
 
-<sup>5</sup> at the time that ye hear the voice of the cornet, the flute, the harp, the sackbut, the psaltery, the symphony, and all kinds of music, ye fall down and do obeisance to the golden image that Nebuchadnezzar the king hath raised up:
+**⁵** at the time that ye hear the voice of the cornet, the flute, the harp, the sackbut, the psaltery, the symphony, and all kinds of music, ye fall down and do obeisance to the golden image that Nebuchadnezzar the king hath raised up:
 
-<sup>6</sup> and whoso doth not fall down and do obeisance, in that hour he is cast into the midst of a burning fiery furnace.'
+**⁶** and whoso doth not fall down and do obeisance, in that hour he is cast into the midst of a burning fiery furnace.'
 
-<sup>7</sup> Therefore at that time, when all the peoples are hearing the voice of the cornet, the flute, the harp, the sackbut, the psaltery, and all kinds of music, falling down are all the peoples, nations and languages, doing obeisance to the golden image that Nebuchadnezzar the king hath raised up.
+**⁷** Therefore at that time, when all the peoples are hearing the voice of the cornet, the flute, the harp, the sackbut, the psaltery, and all kinds of music, falling down are all the peoples, nations and languages, doing obeisance to the golden image that Nebuchadnezzar the king hath raised up.
 
-<sup>8</sup> Therefore at that time drawn near have certain Chaldeans, and accused the Jews;
+**⁸** Therefore at that time drawn near have certain Chaldeans, and accused the Jews;
 
-<sup>9</sup> they have answered, yea, they are saying to Nebuchadnezzar the king, 'O king, to the ages live!
+**⁹** they have answered, yea, they are saying to Nebuchadnezzar the king, 'O king, to the ages live!
 
-<sup>10</sup> Thou, O king, hast made a decree that every man who doth hear the voice of the cornet, the flute, the harp, the sackbut, the psaltery, and the symphony, and all kinds of music, doth fall down and do obeisance to the golden image;
+**¹⁰** Thou, O king, hast made a decree that every man who doth hear the voice of the cornet, the flute, the harp, the sackbut, the psaltery, and the symphony, and all kinds of music, doth fall down and do obeisance to the golden image;
 
-<sup>11</sup> and whoso doth not fall down and do obeisance, is cast into the midst of a burning fiery furnace.
+**¹¹** and whoso doth not fall down and do obeisance, is cast into the midst of a burning fiery furnace.
 
-<sup>12</sup> There are certain Jews whom thou hast appointed over the work of the province of Babylon — Shadrach, Meshach, and Abed-Nego, these men have not made of thee, O king, [any] regard; thy gods they are not serving, and to the golden image thou hast raised up — are not making obeisance.'
+**¹²** There are certain Jews whom thou hast appointed over the work of the province of Babylon — Shadrach, Meshach, and Abed-Nego, these men have not made of thee, O king, [any] regard; thy gods they are not serving, and to the golden image thou hast raised up — are not making obeisance.'
 
-<sup>13</sup> Then Nebuchadnezzar, in anger and fury, hath said to bring in Shadrach, Meshach, and Abed-Nego. Then these men have been brought in before the king.
+**¹³** Then Nebuchadnezzar, in anger and fury, hath said to bring in Shadrach, Meshach, and Abed-Nego. Then these men have been brought in before the king.
 
-<sup>14</sup> Nebuchadnezzar hath answered and said to them, 'Is [it] a laid plan, O Shadrach, Meshach, and Abed-Nego — my gods ye are not serving, and to the golden image that I have raised up ye are not doing obeisance?
+**¹⁴** Nebuchadnezzar hath answered and said to them, 'Is [it] a laid plan, O Shadrach, Meshach, and Abed-Nego — my gods ye are not serving, and to the golden image that I have raised up ye are not doing obeisance?
 
-<sup>15</sup> Now, lo, ye are ready, so that at the time that ye hear the voice of the cornet, the flute, the harp, the sackbut, the psaltery, and the symphony, and all kinds of music, ye fall down and do obeisance to the image that I have made! — and lo, ye do no obeisance — in that hour ye are cast into the midst of a burning fiery furnace; who is that God who doth deliver you out of my hands?'
+**¹⁵** Now, lo, ye are ready, so that at the time that ye hear the voice of the cornet, the flute, the harp, the sackbut, the psaltery, and the symphony, and all kinds of music, ye fall down and do obeisance to the image that I have made! — and lo, ye do no obeisance — in that hour ye are cast into the midst of a burning fiery furnace; who is that God who doth deliver you out of my hands?'
 
-<sup>16</sup> Shadrach, Meshach, and Abed-Nego have answered, yea, they are saying to the king Nebuchadnezzar, 'We have no need concerning this matter to answer thee.
+**¹⁶** Shadrach, Meshach, and Abed-Nego have answered, yea, they are saying to the king Nebuchadnezzar, 'We have no need concerning this matter to answer thee.
 
-<sup>17</sup> Lo, it is; our God whom we are serving, is able to deliver us from a burning fiery furnace; and from thy hand, O king, He doth deliver.
+**¹⁷** Lo, it is; our God whom we are serving, is able to deliver us from a burning fiery furnace; and from thy hand, O king, He doth deliver.
 
-<sup>18</sup> And lo — not! be it known to thee, O king, that thy gods we are not serving, and to the golden image thou hast raised up we do no obeisance.'
+**¹⁸** And lo — not! be it known to thee, O king, that thy gods we are not serving, and to the golden image thou hast raised up we do no obeisance.'
 
-<sup>19</sup> Then Nebuchadnezzar hath been full of fury, and the expression of his face hath been changed concerning Shadrach, Meshach, and Abed-Nego; he answered and said to heat the furnace seven times above that which it is seen to be heated;
+**¹⁹** Then Nebuchadnezzar hath been full of fury, and the expression of his face hath been changed concerning Shadrach, Meshach, and Abed-Nego; he answered and said to heat the furnace seven times above that which it is seen to be heated;
 
-<sup>20</sup> and to certain mighty men who [are] in his force he hath said to bind Shadrach, Meshach, and Abed-Nego, to cast into the burning fiery furnace.
+**²⁰** and to certain mighty men who [are] in his force he hath said to bind Shadrach, Meshach, and Abed-Nego, to cast into the burning fiery furnace.
 
-<sup>21</sup> Then these men have been bound in their coats, their tunics, and their turbans, and their clothing, and have been cast into the midst of the burning fiery furnace.
+**²¹** Then these men have been bound in their coats, their tunics, and their turbans, and their clothing, and have been cast into the midst of the burning fiery furnace.
 
-<sup>22</sup> Therefore, because that the word of the king is urgent, and the furnace heated exceedingly, those men who have taken up Shadrach, Meshach, and Abed-Nego — killed them hath the spark of the fire.
+**²²** Therefore, because that the word of the king is urgent, and the furnace heated exceedingly, those men who have taken up Shadrach, Meshach, and Abed-Nego — killed them hath the spark of the fire.
 
-<sup>23</sup> And these three men, Shadrach, Meshach, and Abed-Nego, have fallen down in the midst of the burning fiery furnace — bound.
+**²³** And these three men, Shadrach, Meshach, and Abed-Nego, have fallen down in the midst of the burning fiery furnace — bound.
 
-<sup>24</sup> Then Nebuchadnezzar the king hath been astonished, and hath risen in haste; he hath answered and said to his counsellors, 'Have we not cast three men into the midst of the fire — bound?' They have answered and are saying to the king, 'Certainly, O king.'
+**²⁴** Then Nebuchadnezzar the king hath been astonished, and hath risen in haste; he hath answered and said to his counsellors, 'Have we not cast three men into the midst of the fire — bound?' They have answered and are saying to the king, 'Certainly, O king.'
 
-<sup>25</sup> He answered and hath said, 'Lo, I am seeing four men loose, walking in the midst of the fire, and they have no hurt; and the appearance of the fourth [is] like to a son of the gods.'
+**²⁵** He answered and hath said, 'Lo, I am seeing four men loose, walking in the midst of the fire, and they have no hurt; and the appearance of the fourth [is] like to a son of the gods.'
 
-<sup>26</sup> Then Nebuchadnezzar hath drawn near to the gate of the burning fiery furnace; he hath answered and said, 'Shadrach, Meshach, and Abed-Nego, servants of God Most High come forth, yea, come;' then come forth do Shadrach, Meshach, and Abed-Nego, from the midst of the fire;
+**²⁶** Then Nebuchadnezzar hath drawn near to the gate of the burning fiery furnace; he hath answered and said, 'Shadrach, Meshach, and Abed-Nego, servants of God Most High come forth, yea, come;' then come forth do Shadrach, Meshach, and Abed-Nego, from the midst of the fire;
 
-<sup>27</sup> and gathered together, the satraps, the prefects, and the governors, and the counsellors of the king, are seeing these men, that the fire hath no power over their bodies, and the hair of their head hath not been singed, and their coats have not changed, and the smell of fire hath not passed on them.
+**²⁷** and gathered together, the satraps, the prefects, and the governors, and the counsellors of the king, are seeing these men, that the fire hath no power over their bodies, and the hair of their head hath not been singed, and their coats have not changed, and the smell of fire hath not passed on them.
 
-<sup>28</sup> Nebuchadnezzar hath answered and hath said, 'Blessed [is] the God of Shadrach, Meshach, and Abed-Nego, who hath sent His messenger, and hath delivered His servants who trusted on Him, and the word of the king changed, and gave up their bodies that they might not serve nor do obeisance to any god except to their own God.
+**²⁸** Nebuchadnezzar hath answered and hath said, 'Blessed [is] the God of Shadrach, Meshach, and Abed-Nego, who hath sent His messenger, and hath delivered His servants who trusted on Him, and the word of the king changed, and gave up their bodies that they might not serve nor do obeisance to any god except to their own God.
 
-<sup>29</sup> And by me a decree is made, that any people, nation, and language, that doth speak erroneously concerning the God of Shadrach, Meshach, and Abed-Nego, pieces he is made, and its house is made a dunghill, because that there is no other god who is able thus to deliver.'
+**²⁹** And by me a decree is made, that any people, nation, and language, that doth speak erroneously concerning the God of Shadrach, Meshach, and Abed-Nego, pieces he is made, and its house is made a dunghill, because that there is no other god who is able thus to deliver.'
 
-<sup>30</sup> Then the king hath caused Shadrach, Meshach, and Abed-Nego, to prosper in the province of Babylon.
+**³⁰** Then the king hath caused Shadrach, Meshach, and Abed-Nego, to prosper in the province of Babylon.

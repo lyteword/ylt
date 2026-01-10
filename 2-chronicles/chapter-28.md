@@ -1,55 +1,55 @@
 # Chapter 28
 
-<sup>1</sup> A son of twenty years [is] Ahaz in his reigning, and sixteen years he hath reigned in Jerusalem, and he hath not done that which is right in the eyes of Jehovah, as David his father,
+**¹** A son of twenty years [is] Ahaz in his reigning, and sixteen years he hath reigned in Jerusalem, and he hath not done that which is right in the eyes of Jehovah, as David his father,
 
-<sup>2</sup> and walketh in the ways of the kings of Israel, and also, molten images hath made for Baalim,
+**²** and walketh in the ways of the kings of Israel, and also, molten images hath made for Baalim,
 
-<sup>3</sup> and himself hath made perfume in the valley of the son of Hinnom, and burneth his sons with fire according to the abominations of the nations that Jehovah dispossessed from the presence of the sons of Israel,
+**³** and himself hath made perfume in the valley of the son of Hinnom, and burneth his sons with fire according to the abominations of the nations that Jehovah dispossessed from the presence of the sons of Israel,
 
-<sup>4</sup> and sacrificeth and maketh perfume in high places, and on the heights, and under every green tree.
+**⁴** and sacrificeth and maketh perfume in high places, and on the heights, and under every green tree.
 
-<sup>5</sup> And Jehovah his God giveth him into the hand of the king of Aram, and they smite him, and take captive from him a great captivity, and bring [them] in to Damascus, and also into the hand of the king of Israel he hath been given, and he smiteth him — a great smiting.
+**⁵** And Jehovah his God giveth him into the hand of the king of Aram, and they smite him, and take captive from him a great captivity, and bring [them] in to Damascus, and also into the hand of the king of Israel he hath been given, and he smiteth him — a great smiting.
 
-<sup>6</sup> And Pekah son of Remaliah slayeth in Judah a hundred and twenty thousand in one day (the whole [are] sons of valour), because of their forsaking Jehovah, God of their fathers.
+**⁶** And Pekah son of Remaliah slayeth in Judah a hundred and twenty thousand in one day (the whole [are] sons of valour), because of their forsaking Jehovah, God of their fathers.
 
-<sup>7</sup> And Zichri, a mighty one of Ephraim, slayeth Maaseiah son of the king, and Azrikam leader of the house, and Elkanah second to the king.
+**⁷** And Zichri, a mighty one of Ephraim, slayeth Maaseiah son of the king, and Azrikam leader of the house, and Elkanah second to the king.
 
-<sup>8</sup> And the sons of Israel take captive of their brethren, two hundred thousand, wives, sons and daughters, and also much spoil they have seized from them, and they bring in the spoil to Samaria.
+**⁸** And the sons of Israel take captive of their brethren, two hundred thousand, wives, sons and daughters, and also much spoil they have seized from them, and they bring in the spoil to Samaria.
 
-<sup>9</sup> And there hath been there a prophet of Jehovah (Oded [is] his name), and he goeth out before the host that hath come in to Samaria, and saith to them, 'Lo, in the fury of Jehovah God of your fathers against Judah, He hath given them into your hand, and ye slay among them in rage — unto the heavens it hath come;
+**⁹** And there hath been there a prophet of Jehovah (Oded [is] his name), and he goeth out before the host that hath come in to Samaria, and saith to them, 'Lo, in the fury of Jehovah God of your fathers against Judah, He hath given them into your hand, and ye slay among them in rage — unto the heavens it hath come;
 
-<sup>10</sup> and now, sons of Judah and Jerusalem ye are saying to subdue for men-servants and for maid-servants to you; but are there not with you causes of guilt before Jehovah your God?
+**¹⁰** and now, sons of Judah and Jerusalem ye are saying to subdue for men-servants and for maid-servants to you; but are there not with you causes of guilt before Jehovah your God?
 
-<sup>11</sup> and now, hear me, and send back the captives whom ye have taken captive of your brethren, for the heat of the anger of Jehovah [is] upon you.'
+**¹¹** and now, hear me, and send back the captives whom ye have taken captive of your brethren, for the heat of the anger of Jehovah [is] upon you.'
 
-<sup>12</sup> And certain of the heads of the sons of Ephraim (Azariah son of Johanan, Berechiah son of Meshillemoth, and Jehizkiah son of Shallum, and Amasa son of Hadlai), rise up against those coming in from the host,
+**¹²** And certain of the heads of the sons of Ephraim (Azariah son of Johanan, Berechiah son of Meshillemoth, and Jehizkiah son of Shallum, and Amasa son of Hadlai), rise up against those coming in from the host,
 
-<sup>13</sup> and say to them, 'Ye do not bring in the captives hither, for, to guilt against Jehovah on us, ye are saying to add unto our sin and unto our guilt? for abundant [is] the guilt we have, and the fierceness of anger on Israel.'
+**¹³** and say to them, 'Ye do not bring in the captives hither, for, to guilt against Jehovah on us, ye are saying to add unto our sin and unto our guilt? for abundant [is] the guilt we have, and the fierceness of anger on Israel.'
 
-<sup>14</sup> And the armed men leave the captives and the prey before the heads and all the assembly;
+**¹⁴** And the armed men leave the captives and the prey before the heads and all the assembly;
 
-<sup>15</sup> and the men who have been expressed by name rise and take hold on the captives, and all their naked ones they have clothed from the spoil, yea, they clothe them, and shoe them, and cause them to eat and drink, and anoint them, and lead them on asses, even every feeble one, and bring them in to Jericho, the city of palms, near their brethren, and turn back to Samaria.
+**¹⁵** and the men who have been expressed by name rise and take hold on the captives, and all their naked ones they have clothed from the spoil, yea, they clothe them, and shoe them, and cause them to eat and drink, and anoint them, and lead them on asses, even every feeble one, and bring them in to Jericho, the city of palms, near their brethren, and turn back to Samaria.
 
-<sup>16</sup> At that time hath king Ahaz sent unto the king of Asshur to give help to him;
+**¹⁶** At that time hath king Ahaz sent unto the king of Asshur to give help to him;
 
-<sup>17</sup> and again the Edomites have come, and smite in Judah, and take captive a captivity.
+**¹⁷** and again the Edomites have come, and smite in Judah, and take captive a captivity.
 
-<sup>18</sup> And the Philistines have rushed against the cities of the low country, and of the south of Judah, and capture Beth-Shemesh, and Aijalon, and Gederoth, and Shocho and its villages, and Timnah and its villages, and Gimzo and its villages, and dwell there,
+**¹⁸** And the Philistines have rushed against the cities of the low country, and of the south of Judah, and capture Beth-Shemesh, and Aijalon, and Gederoth, and Shocho and its villages, and Timnah and its villages, and Gimzo and its villages, and dwell there,
 
-<sup>19</sup> for Jehovah hath humbled Judah because of Ahaz king of Israel, for he made free with Judah, even to commit a trespass against Jehovah.
+**¹⁹** for Jehovah hath humbled Judah because of Ahaz king of Israel, for he made free with Judah, even to commit a trespass against Jehovah.
 
-<sup>20</sup> And Tilgath-Pilneser king of Asshur cometh in unto him, and doth distress him, and hath not strengthened him,
+**²⁰** And Tilgath-Pilneser king of Asshur cometh in unto him, and doth distress him, and hath not strengthened him,
 
-<sup>21</sup> though Ahaz hath taken a portion [out] of the house of Jehovah, and [out] of the house of the king, and of the princes, and giveth to the king of Asshur, yet it is no help to him.
+**²¹** though Ahaz hath taken a portion [out] of the house of Jehovah, and [out] of the house of the king, and of the princes, and giveth to the king of Asshur, yet it is no help to him.
 
-<sup>22</sup> And in the time of his distress — he addeth to trespass against Jehovah, (this king Ahaz),
+**²²** And in the time of his distress — he addeth to trespass against Jehovah, (this king Ahaz),
 
-<sup>23</sup> and he sacrificeth to the gods of Damascus — those smiting him, and saith, 'Because the gods of the kings of Aram are helping them, to them I sacrifice, and they help me,' and they have been to him to cause him to stumble, and to all Israel.
+**²³** and he sacrificeth to the gods of Damascus — those smiting him, and saith, 'Because the gods of the kings of Aram are helping them, to them I sacrifice, and they help me,' and they have been to him to cause him to stumble, and to all Israel.
 
-<sup>24</sup> And Ahaz gathereth the vessels of the house of God, and cutteth in pieces the vessels of the house of God, and shutteth the doors of the house of Jehovah, and maketh to himself altars in every corner in Jerusalem.
+**²⁴** And Ahaz gathereth the vessels of the house of God, and cutteth in pieces the vessels of the house of God, and shutteth the doors of the house of Jehovah, and maketh to himself altars in every corner in Jerusalem.
 
-<sup>25</sup> And in every city and city of Judah he hath made high places to make perfume to other gods, and provoketh Jehovah, God of his fathers.
+**²⁵** And in every city and city of Judah he hath made high places to make perfume to other gods, and provoketh Jehovah, God of his fathers.
 
-<sup>26</sup> And the rest of his matters, and all his ways, the first and the last, lo, they are written on the book of the kings of Judah and Israel.
+**²⁶** And the rest of his matters, and all his ways, the first and the last, lo, they are written on the book of the kings of Judah and Israel.
 
-<sup>27</sup> And Ahaz lieth with his fathers, and they bury him in the city, in Jerusalem, but have not brought him in to the graves of the kings of Israel, and reign doth Hezekiah his son in his stead.
+**²⁷** And Ahaz lieth with his fathers, and they bury him in the city, in Jerusalem, but have not brought him in to the graves of the kings of Israel, and reign doth Hezekiah his son in his stead.

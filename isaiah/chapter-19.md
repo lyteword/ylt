@@ -1,51 +1,51 @@
 # Chapter 19
 
-<sup>1</sup> The burden of Egypt. Lo, Jehovah is riding on a swift thick cloud, And He hath entered Egypt, And moved have been the idols of Egypt at His presence, And the heart of Egypt melteth in its midst.
+**¹** The burden of Egypt. Lo, Jehovah is riding on a swift thick cloud, And He hath entered Egypt, And moved have been the idols of Egypt at His presence, And the heart of Egypt melteth in its midst.
 
-<sup>2</sup> And I armed Egyptians against Egyptians, And they fought, each against his brother, And each against his neighbour, City against city, kingdom against kingdom.
+**²** And I armed Egyptians against Egyptians, And they fought, each against his brother, And each against his neighbour, City against city, kingdom against kingdom.
 
-<sup>3</sup> And emptied out hath been in its midst the spirit of Egypt. And its counsel I swallow up, And they have sought unto the idols, And unto the charmers, And unto those having familiar spirits, And unto the wizards.
+**³** And emptied out hath been in its midst the spirit of Egypt. And its counsel I swallow up, And they have sought unto the idols, And unto the charmers, And unto those having familiar spirits, And unto the wizards.
 
-<sup>4</sup> And I have delivered the Egyptians Into the hand of a hard lord, And a strong king doth rule over them, An affirmation of the Lord, Jehovah of Hosts.
+**⁴** And I have delivered the Egyptians Into the hand of a hard lord, And a strong king doth rule over them, An affirmation of the Lord, Jehovah of Hosts.
 
-<sup>5</sup> And failed have waters from the sea, And a river is wasted and dried up.
+**⁵** And failed have waters from the sea, And a river is wasted and dried up.
 
-<sup>6</sup> And they have turned away the flowings, Weak and dried up have been brooks of the bulwark, Reed and flag have withered.
+**⁶** And they have turned away the flowings, Weak and dried up have been brooks of the bulwark, Reed and flag have withered.
 
-<sup>7</sup> Exposed things by the brook, by the edge of the brook, And every sown thing of the brook, hath withered, It hath been driven away, and is not.
+**⁷** Exposed things by the brook, by the edge of the brook, And every sown thing of the brook, hath withered, It hath been driven away, and is not.
 
-<sup>8</sup> And lamented have the fishers, And mourned have all casting angle into a brook, And those spreading nets on the face of the waters have languished.
+**⁸** And lamented have the fishers, And mourned have all casting angle into a brook, And those spreading nets on the face of the waters have languished.
 
-<sup>9</sup> And ashamed have been makers of fine flax, And weavers of net-works.
+**⁹** And ashamed have been makers of fine flax, And weavers of net-works.
 
-<sup>10</sup> And its foundations have been smitten, All making wages [are] afflicted in soul.
+**¹⁰** And its foundations have been smitten, All making wages [are] afflicted in soul.
 
-<sup>11</sup> Only, fools [are] the princes of Zoan, The counsel of the wise ones of the counsellors of Pharaoh hath become brutish. How say ye unto Pharaoh, 'A son of the wise am I, a son of kings of antiquity?'
+**¹¹** Only, fools [are] the princes of Zoan, The counsel of the wise ones of the counsellors of Pharaoh hath become brutish. How say ye unto Pharaoh, 'A son of the wise am I, a son of kings of antiquity?'
 
-<sup>12</sup> Where [are] they now, thy wise ones? Yea, let them tell to thee, I pray thee, And they know what Jehovah of Hosts hath counselled against Egypt!
+**¹²** Where [are] they now, thy wise ones? Yea, let them tell to thee, I pray thee, And they know what Jehovah of Hosts hath counselled against Egypt!
 
-<sup>13</sup> Foolish have been princes of Zoan, Lifted up have been princes of Noph, And they have caused Egypt to err, The chief of her tribes.
+**¹³** Foolish have been princes of Zoan, Lifted up have been princes of Noph, And they have caused Egypt to err, The chief of her tribes.
 
-<sup>14</sup> Jehovah hath mingled in her midst A spirit of perverseness, And they have caused Egypt to err in all its work, As a drunkard erreth in his vomit.
+**¹⁴** Jehovah hath mingled in her midst A spirit of perverseness, And they have caused Egypt to err in all its work, As a drunkard erreth in his vomit.
 
-<sup>15</sup> And there is no work to Egypt, That head or tail, branch or reed, may do.
+**¹⁵** And there is no work to Egypt, That head or tail, branch or reed, may do.
 
-<sup>16</sup> In that day is Egypt like women, And it hath mourned, and been afraid, Because of the waving of the hand of Jehovah of Hosts, That He is waving over it.
+**¹⁶** In that day is Egypt like women, And it hath mourned, and been afraid, Because of the waving of the hand of Jehovah of Hosts, That He is waving over it.
 
-<sup>17</sup> And the land of Judah hath been to Egypt for a cause of staggering, Every one who doth mention it, for himself feareth, Because of the counsel of Jehovah of Hosts, That He is counselling against it.
+**¹⁷** And the land of Judah hath been to Egypt for a cause of staggering, Every one who doth mention it, for himself feareth, Because of the counsel of Jehovah of Hosts, That He is counselling against it.
 
-<sup>18</sup> In that day there are five cities in the land of Egypt, Speaking the lip of Canaan, And swearing to Jehovah of Hosts, 'The city of destruction,' is said of one.
+**¹⁸** In that day there are five cities in the land of Egypt, Speaking the lip of Canaan, And swearing to Jehovah of Hosts, 'The city of destruction,' is said of one.
 
-<sup>19</sup> In that day there is an altar to Jehovah In the midst of the land of Egypt, And a standing pillar near its border to Jehovah,
+**¹⁹** In that day there is an altar to Jehovah In the midst of the land of Egypt, And a standing pillar near its border to Jehovah,
 
-<sup>20</sup> And it hath been for a sign and for a testimony, To Jehovah of Hosts in the land of Egypt, For they cry unto Jehovah from the face of oppressors, And He sendeth to them a saviour, Even a great one, and hath delivered them.
+**²⁰** And it hath been for a sign and for a testimony, To Jehovah of Hosts in the land of Egypt, For they cry unto Jehovah from the face of oppressors, And He sendeth to them a saviour, Even a great one, and hath delivered them.
 
-<sup>21</sup> And known hath been Jehovah to Egypt, And the Egyptians have known Jehovah in that day, And done sacrifice and present, And vowed a vow to Jehovah, and completed [it].
+**²¹** And known hath been Jehovah to Egypt, And the Egyptians have known Jehovah in that day, And done sacrifice and present, And vowed a vow to Jehovah, and completed [it].
 
-<sup>22</sup> And Jehovah hath smitten Egypt, smiting and healing, And they have turned back unto Jehovah, And He hath been entreated of them, And hath healed them.
+**²²** And Jehovah hath smitten Egypt, smiting and healing, And they have turned back unto Jehovah, And He hath been entreated of them, And hath healed them.
 
-<sup>23</sup> In that day is a highway out of Egypt to Asshur, And come in have the Assyrians to Egypt, And the Egyptians into Asshur, And the Egyptians have served with the Assyrians.
+**²³** In that day is a highway out of Egypt to Asshur, And come in have the Assyrians to Egypt, And the Egyptians into Asshur, And the Egyptians have served with the Assyrians.
 
-<sup>24</sup> In that day is Israel third, After Egypt, and after Asshur, A blessing in the heart of the earth.
+**²⁴** In that day is Israel third, After Egypt, and after Asshur, A blessing in the heart of the earth.
 
-<sup>25</sup> In that Jehovah of Hosts did bless it, saying, 'Blessed [is] My people — Egypt, And the work of My hands — Asshur, And Mine inheritance — Israel!'
+**²⁵** In that Jehovah of Hosts did bless it, saying, 'Blessed [is] My people — Egypt, And the work of My hands — Asshur, And Mine inheritance — Israel!'

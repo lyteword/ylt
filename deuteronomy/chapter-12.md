@@ -1,65 +1,65 @@
 # Chapter 12
 
-<sup>1</sup> 'These [are] the statutes and the judgments which ye observe to do in the land which Jehovah, God of thy fathers, hath given to thee to possess it, all the days that ye are living on the ground:
+**¹** 'These [are] the statutes and the judgments which ye observe to do in the land which Jehovah, God of thy fathers, hath given to thee to possess it, all the days that ye are living on the ground:
 
-<sup>2</sup> ye do utterly destroy all the places where the nations which ye are dispossessing served their gods, on the high mountains, and on the heights, and under every green tree;
+**²** ye do utterly destroy all the places where the nations which ye are dispossessing served their gods, on the high mountains, and on the heights, and under every green tree;
 
-<sup>3</sup> and ye have broken down their altars, and shivered their standing pillars, and their shrines ye burn with fire, and graven images of their gods ye cut down, and have destroyed their name out of that place.
+**³** and ye have broken down their altars, and shivered their standing pillars, and their shrines ye burn with fire, and graven images of their gods ye cut down, and have destroyed their name out of that place.
 
-<sup>4</sup> 'Ye do not do so to Jehovah your God;
+**⁴** 'Ye do not do so to Jehovah your God;
 
-<sup>5</sup> but unto the place which Jehovah your God doth choose out of all your tribes to put His name there, to His tabernacle ye seek, and thou hast entered thither,
+**⁵** but unto the place which Jehovah your God doth choose out of all your tribes to put His name there, to His tabernacle ye seek, and thou hast entered thither,
 
-<sup>6</sup> and hast brought in thither your burnt-offerings, and your sacrifices, and your tithes, and the heave-offering of your hand, and your vows, and your free-will offerings, and the firstlings of your herd and of your flock;
+**⁶** and hast brought in thither your burnt-offerings, and your sacrifices, and your tithes, and the heave-offering of your hand, and your vows, and your free-will offerings, and the firstlings of your herd and of your flock;
 
-<sup>7</sup> and ye have eaten there before Jehovah your God, and have rejoiced in every putting forth of your hand, ye and your households, with which Jehovah thy God hath blessed thee.
+**⁷** and ye have eaten there before Jehovah your God, and have rejoiced in every putting forth of your hand, ye and your households, with which Jehovah thy God hath blessed thee.
 
-<sup>8</sup> 'Ye do not do according to all that we are doing here to-day, each anything that is right in his own eyes,
+**⁸** 'Ye do not do according to all that we are doing here to-day, each anything that is right in his own eyes,
 
-<sup>9</sup> for ye have not come in hitherto unto the rest, and unto the inheritance, which Jehovah thy God is giving to thee;
+**⁹** for ye have not come in hitherto unto the rest, and unto the inheritance, which Jehovah thy God is giving to thee;
 
-<sup>10</sup> and ye have passed over the Jordan, and have dwelt in the land which Jehovah your God is causing you to inherit, and He hath given rest to you from all your enemies round about, and ye have dwelt confidently:
+**¹⁰** and ye have passed over the Jordan, and have dwelt in the land which Jehovah your God is causing you to inherit, and He hath given rest to you from all your enemies round about, and ye have dwelt confidently:
 
-<sup>11</sup> 'And it hath been, the place on which Jehovah your God doth fix to cause His name to tabernacle there, thither ye bring in all that which I am commanding you, your burnt-offerings, and your sacrifices, your tithes, and the heave-offering of your hand, and all the choice of your vows which ye vow to Jehovah;
+**¹¹** 'And it hath been, the place on which Jehovah your God doth fix to cause His name to tabernacle there, thither ye bring in all that which I am commanding you, your burnt-offerings, and your sacrifices, your tithes, and the heave-offering of your hand, and all the choice of your vows which ye vow to Jehovah;
 
-<sup>12</sup> and ye have rejoiced before Jehovah your God, ye, and your sons, and your daughters, and your men-servants, and your handmaids, and the Levite who [is] within your gates, for he hath no part and inheritance with you.
+**¹²** and ye have rejoiced before Jehovah your God, ye, and your sons, and your daughters, and your men-servants, and your handmaids, and the Levite who [is] within your gates, for he hath no part and inheritance with you.
 
-<sup>13</sup> 'Take heed to thee, lest thou cause thy burnt-offerings to ascend in any place which thou seest,
+**¹³** 'Take heed to thee, lest thou cause thy burnt-offerings to ascend in any place which thou seest,
 
-<sup>14</sup> except in the place which Jehovah doth choose in one of thy tribes, there thou dost cause thy burnt-offerings to ascend, and there thou dost do all that which I am commanding thee.
+**¹⁴** except in the place which Jehovah doth choose in one of thy tribes, there thou dost cause thy burnt-offerings to ascend, and there thou dost do all that which I am commanding thee.
 
-<sup>15</sup> 'Only, with all the desire of thy soul thou dost sacrifice, and hast eaten flesh according to the blessing of Jehovah thy God which He hath given to thee, in all thy gates; the unclean and the clean do eat it, as of the roe, and as of the hart.
+**¹⁵** 'Only, with all the desire of thy soul thou dost sacrifice, and hast eaten flesh according to the blessing of Jehovah thy God which He hath given to thee, in all thy gates; the unclean and the clean do eat it, as of the roe, and as of the hart.
 
-<sup>16</sup> 'Only, the blood ye do not eat — on the earth thou dost pour it as water;
+**¹⁶** 'Only, the blood ye do not eat — on the earth thou dost pour it as water;
 
-<sup>17</sup> thou art not able to eat within thy gates the tithe of thy corn, and of thy new wine, and thine oil, and the firstlings of thy herd and of thy flock, and any of thy vows which thou vowest, and thy free-will offerings, and heave-offering of thy hand;
+**¹⁷** thou art not able to eat within thy gates the tithe of thy corn, and of thy new wine, and thine oil, and the firstlings of thy herd and of thy flock, and any of thy vows which thou vowest, and thy free-will offerings, and heave-offering of thy hand;
 
-<sup>18</sup> but before Jehovah thy God thou dost eat it, in the place which Jehovah thy God doth fix on, thou, and thy son, and thy daughter, and thy man-servant, and thy handmaid, and the Levite who [is] within thy gates, and thou hast rejoiced before Jehovah thy God in every putting forth of thy hand;
+**¹⁸** but before Jehovah thy God thou dost eat it, in the place which Jehovah thy God doth fix on, thou, and thy son, and thy daughter, and thy man-servant, and thy handmaid, and the Levite who [is] within thy gates, and thou hast rejoiced before Jehovah thy God in every putting forth of thy hand;
 
-<sup>19</sup> take heed to thee lest thou forsake the Levite all thy days on thy ground.
+**¹⁹** take heed to thee lest thou forsake the Levite all thy days on thy ground.
 
-<sup>20</sup> 'When Jehovah thy God doth enlarge thy border, as He hath spoken to thee, and thou hast said, Let me eat flesh — for thy soul desireth to eat flesh — of all the desire of thy soul thou dost eat flesh.
+**²⁰** 'When Jehovah thy God doth enlarge thy border, as He hath spoken to thee, and thou hast said, Let me eat flesh — for thy soul desireth to eat flesh — of all the desire of thy soul thou dost eat flesh.
 
-<sup>21</sup> 'When the place is far from thee which Jehovah thy God doth choose to put His name there, then thou hast sacrificed of thy herd and of thy flock which Jehovah hath given to thee, as I have commanded thee, and hast eaten within thy gates, of all the desire of thy soul;
+**²¹** 'When the place is far from thee which Jehovah thy God doth choose to put His name there, then thou hast sacrificed of thy herd and of thy flock which Jehovah hath given to thee, as I have commanded thee, and hast eaten within thy gates, of all the desire of thy soul;
 
-<sup>22</sup> only, as the roe and the hart is eaten, so dost thou eat it; the unclean and the clean doth alike eat it.
+**²²** only, as the roe and the hart is eaten, so dost thou eat it; the unclean and the clean doth alike eat it.
 
-<sup>23</sup> 'Only, be sure not to eat the blood, for the blood [is] the life, and thou dost not eat the life with the flesh;
+**²³** 'Only, be sure not to eat the blood, for the blood [is] the life, and thou dost not eat the life with the flesh;
 
-<sup>24</sup> thou dost not eat it, on the earth thou dost pour it as water;
+**²⁴** thou dost not eat it, on the earth thou dost pour it as water;
 
-<sup>25</sup> thou dost not eat it, in order that it may be well with thee, and with thy sons after thee, when thou dost that which [is] right in the eyes of Jehovah.
+**²⁵** thou dost not eat it, in order that it may be well with thee, and with thy sons after thee, when thou dost that which [is] right in the eyes of Jehovah.
 
-<sup>26</sup> 'Only, thy holy things which thou hast, and thy vows, thou dost take up, and hast gone in unto the place which Jehovah doth choose,
+**²⁶** 'Only, thy holy things which thou hast, and thy vows, thou dost take up, and hast gone in unto the place which Jehovah doth choose,
 
-<sup>27</sup> and thou hast made thy burnt-offerings — the flesh and the blood — on the altar of Jehovah thy God; and the blood of thy sacrifices is poured out by the altar of Jehovah thy God, and the flesh thou dost eat.
+**²⁷** and thou hast made thy burnt-offerings — the flesh and the blood — on the altar of Jehovah thy God; and the blood of thy sacrifices is poured out by the altar of Jehovah thy God, and the flesh thou dost eat.
 
-<sup>28</sup> Observe, and thou hast obeyed all these words which I am commanding thee, in order that it may be well with thee and with thy sons after thee — to the age, when thou dost that which [is] good and right in the eyes of Jehovah thy God.
+**²⁸** Observe, and thou hast obeyed all these words which I am commanding thee, in order that it may be well with thee and with thy sons after thee — to the age, when thou dost that which [is] good and right in the eyes of Jehovah thy God.
 
-<sup>29</sup> 'When Jehovah thy God doth cut off the nations — whither thou art going in to possess them — from thy presence, and thou hast possessed them, and hast dwelt in their land —
+**²⁹** 'When Jehovah thy God doth cut off the nations — whither thou art going in to possess them — from thy presence, and thou hast possessed them, and hast dwelt in their land —
 
-<sup>30</sup> take heed to thee, lest thou be snared after them, after their being destroyed out of thy presence, and lest thou enquire about their gods, saying, How do these nations serve their gods, and I do so — even I?
+**³⁰** take heed to thee, lest thou be snared after them, after their being destroyed out of thy presence, and lest thou enquire about their gods, saying, How do these nations serve their gods, and I do so — even I?
 
-<sup>31</sup> 'Thou dost not do so to Jehovah thy God; for every abomination of Jehovah which He is hating they have done to their gods, for even their sons and their daughters they burn with fire to their gods.
+**³¹** 'Thou dost not do so to Jehovah thy God; for every abomination of Jehovah which He is hating they have done to their gods, for even their sons and their daughters they burn with fire to their gods.
 
-<sup>32</sup> The whole thing which I am commanding you — it ye observe to do; thou dost not add unto it, nor diminish from it.
+**³²** The whole thing which I am commanding you — it ye observe to do; thou dost not add unto it, nor diminish from it.

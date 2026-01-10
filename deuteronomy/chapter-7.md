@@ -1,53 +1,53 @@
 # Chapter 7
 
-<sup>1</sup> 'When Jehovah thy God doth bring thee in unto the land whither thou art going in to possess it, and He hath cast out many nations from thy presence, the Hittite, and the Girgashite, and the Amorite, and the Canaanite, and the Perizzite, and the Hivite, and the Jebusite, seven nations more numerous and mighty than thou,
+**¹** 'When Jehovah thy God doth bring thee in unto the land whither thou art going in to possess it, and He hath cast out many nations from thy presence, the Hittite, and the Girgashite, and the Amorite, and the Canaanite, and the Perizzite, and the Hivite, and the Jebusite, seven nations more numerous and mighty than thou,
 
-<sup>2</sup> and Jehovah thy God hath given them before thee, and thou hast smitten them — thou dost utterly devote them — thou dost not make with them a covenant, nor dost thou favour them.
+**²** and Jehovah thy God hath given them before thee, and thou hast smitten them — thou dost utterly devote them — thou dost not make with them a covenant, nor dost thou favour them.
 
-<sup>3</sup> 'And thou dost not join in marriage with them; thy daughter thou dost not give to his son, and his daughter thou dost not take to thy son,
+**³** 'And thou dost not join in marriage with them; thy daughter thou dost not give to his son, and his daughter thou dost not take to thy son,
 
-<sup>4</sup> for he doth turn aside thy son from after Me, and they have served other gods, and the anger of Jehovah hath burned against you, and hath destroyed thee hastily.
+**⁴** for he doth turn aside thy son from after Me, and they have served other gods, and the anger of Jehovah hath burned against you, and hath destroyed thee hastily.
 
-<sup>5</sup> 'But thus thou dost to them: their altars ye break down, and their standing pillars ye shiver, and their shrines ye cut down, and their graven images ye burn with fire;
+**⁵** 'But thus thou dost to them: their altars ye break down, and their standing pillars ye shiver, and their shrines ye cut down, and their graven images ye burn with fire;
 
-<sup>6</sup> for a holy people [art] thou to Jehovah thy God; on thee hath Jehovah thy God fixed, to be to Him for a peculiar people, out of all the peoples who [are] on the face of the ground.
+**⁶** for a holy people [art] thou to Jehovah thy God; on thee hath Jehovah thy God fixed, to be to Him for a peculiar people, out of all the peoples who [are] on the face of the ground.
 
-<sup>7</sup> 'Not because of your being more numerous than any of the peoples hath Jehovah delighted in you, and fixeth on you, for ye [are] the least of all the peoples,
+**⁷** 'Not because of your being more numerous than any of the peoples hath Jehovah delighted in you, and fixeth on you, for ye [are] the least of all the peoples,
 
-<sup>8</sup> but because of Jehovah's loving you, and because of His keeping the oath which He hath sworn to your fathers, hath Jehovah brought you out by a strong hand, and doth ransom you from a house of servants, from the hand of Pharaoh king of Egypt.
+**⁸** but because of Jehovah's loving you, and because of His keeping the oath which He hath sworn to your fathers, hath Jehovah brought you out by a strong hand, and doth ransom you from a house of servants, from the hand of Pharaoh king of Egypt.
 
-<sup>9</sup> 'And thou hast known that Jehovah thy God He [is] God, the faithful God, keeping the covenant, and the kindness, to those loving Him, and to those keeping His commands — to a thousand generations,
+**⁹** 'And thou hast known that Jehovah thy God He [is] God, the faithful God, keeping the covenant, and the kindness, to those loving Him, and to those keeping His commands — to a thousand generations,
 
-<sup>10</sup> and repaying to those hating Him, unto their face, to destroy them; He delayeth not to him who is hating Him — unto his face, He repayeth to him —
+**¹⁰** and repaying to those hating Him, unto their face, to destroy them; He delayeth not to him who is hating Him — unto his face, He repayeth to him —
 
-<sup>11</sup> and thou hast kept the command, and the statutes, and the judgments, which I am commanding thee to-day to do them.
+**¹¹** and thou hast kept the command, and the statutes, and the judgments, which I am commanding thee to-day to do them.
 
-<sup>12</sup> 'And it hath been, because ye hear these judgments, and have kept, and done them, that Jehovah thy God hath kept to thee the covenant and the kindness which He hath sworn to thy fathers,
+**¹²** 'And it hath been, because ye hear these judgments, and have kept, and done them, that Jehovah thy God hath kept to thee the covenant and the kindness which He hath sworn to thy fathers,
 
-<sup>13</sup> and hath loved thee, and blessed thee, and multiplied thee, and hath blessed the fruit of thy womb, and the fruit of thy ground, thy corn, and thy new wine, and thine oil, the increase of thine oxen, and the wealth of thy flock, on the ground which He hath sworn to thy fathers to give to thee.
+**¹³** and hath loved thee, and blessed thee, and multiplied thee, and hath blessed the fruit of thy womb, and the fruit of thy ground, thy corn, and thy new wine, and thine oil, the increase of thine oxen, and the wealth of thy flock, on the ground which He hath sworn to thy fathers to give to thee.
 
-<sup>14</sup> 'Blessed art thou above all the peoples, there is not in thee a barren man or a barren woman — nor among your cattle;
+**¹⁴** 'Blessed art thou above all the peoples, there is not in thee a barren man or a barren woman — nor among your cattle;
 
-<sup>15</sup> and Jehovah hath turned aside from thee every sickness, and none of the evil diseases of Egypt (which thou hast known) doth He put on thee, and He hath put them on all hating thee.
+**¹⁵** and Jehovah hath turned aside from thee every sickness, and none of the evil diseases of Egypt (which thou hast known) doth He put on thee, and He hath put them on all hating thee.
 
-<sup>16</sup> 'And thou hast consumed all the peoples whom Jehovah thy God is giving to thee; thine eye hath no pity on them, and thou dost not serve their gods, for a snare it [is] to thee.
+**¹⁶** 'And thou hast consumed all the peoples whom Jehovah thy God is giving to thee; thine eye hath no pity on them, and thou dost not serve their gods, for a snare it [is] to thee.
 
-<sup>17</sup> 'When thou sayest in thine heart, These nations [are] more numerous than I, how am I able to dispossess them? —
+**¹⁷** 'When thou sayest in thine heart, These nations [are] more numerous than I, how am I able to dispossess them? —
 
-<sup>18</sup> thou art not afraid of them; thou dost surely remember that which Jehovah thy God hath done to Pharaoh, and to all Egypt,
+**¹⁸** thou art not afraid of them; thou dost surely remember that which Jehovah thy God hath done to Pharaoh, and to all Egypt,
 
-<sup>19</sup> the great trials which thine eyes have seen, and the signs, and the wonders, and the strong hand, and the stretched-out arm, with which Jehovah thy God hath brought thee out; so doth Jehovah thy God to all the peoples of whose presence thou art afraid.
+**¹⁹** the great trials which thine eyes have seen, and the signs, and the wonders, and the strong hand, and the stretched-out arm, with which Jehovah thy God hath brought thee out; so doth Jehovah thy God to all the peoples of whose presence thou art afraid.
 
-<sup>20</sup> 'And also the locust doth Jehovah thy God send among them, till the destruction of those who are left, and of those who are hidden from thy presence;
+**²⁰** 'And also the locust doth Jehovah thy God send among them, till the destruction of those who are left, and of those who are hidden from thy presence;
 
-<sup>21</sup> thou art not terrified by their presence, for Jehovah thy God [is] in thy midst, a God great and fearful.
+**²¹** thou art not terrified by their presence, for Jehovah thy God [is] in thy midst, a God great and fearful.
 
-<sup>22</sup> 'And Jehovah thy God hath cast out these nations from thy presence little [by] little, (thou art not able to consume them hastily, lest the beast of the field multiply against thee),
+**²²** 'And Jehovah thy God hath cast out these nations from thy presence little [by] little, (thou art not able to consume them hastily, lest the beast of the field multiply against thee),
 
-<sup>23</sup> and Jehovah thy God hath given them before thee, and destroyed them — a great destruction — till their destruction;
+**²³** and Jehovah thy God hath given them before thee, and destroyed them — a great destruction — till their destruction;
 
-<sup>24</sup> and He hath given their kings into thy hand, and thou hast destroyed their name from under the heavens; no man doth station himself in thy presence till thou hast destroyed them.
+**²⁴** and He hath given their kings into thy hand, and thou hast destroyed their name from under the heavens; no man doth station himself in thy presence till thou hast destroyed them.
 
-<sup>25</sup> 'The graven images of their gods ye do burn with fire; thou dost not desire the silver and gold on them, nor hast thou taken [it] to thyself, lest thou be snared by it, for the abomination of Jehovah thy God it [is];
+**²⁵** 'The graven images of their gods ye do burn with fire; thou dost not desire the silver and gold on them, nor hast thou taken [it] to thyself, lest thou be snared by it, for the abomination of Jehovah thy God it [is];
 
-<sup>26</sup> and thou dost not bring in an abomination unto thy house — or thou hast been devoted like it; — thou dost utterly detest it, and thou dost utterly abominate it; for it [is] devoted.
+**²⁶** and thou dost not bring in an abomination unto thy house — or thou hast been devoted like it; — thou dost utterly detest it, and thou dost utterly abominate it; for it [is] devoted.

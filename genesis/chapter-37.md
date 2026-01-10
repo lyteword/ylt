@@ -1,73 +1,73 @@
 # Chapter 37
 
-<sup>1</sup> And Jacob dwelleth in the land of his father's sojournings — in the land of Canaan.
+**¹** And Jacob dwelleth in the land of his father's sojournings — in the land of Canaan.
 
-<sup>2</sup> These [are] births of Jacob: Joseph, a son of seventeen years, hath been enjoying himself with his brethren among the flock, (and he [is] a youth,) with the sons of Bilhah, and with the sons of Zilpah, his father's wives, and Joseph bringeth in an account of their evil unto their father.
+**²** These [are] births of Jacob: Joseph, a son of seventeen years, hath been enjoying himself with his brethren among the flock, (and he [is] a youth,) with the sons of Bilhah, and with the sons of Zilpah, his father's wives, and Joseph bringeth in an account of their evil unto their father.
 
-<sup>3</sup> And Israel hath loved Joseph more than any of his sons, for he [is] a son of his old age, and hath made for him a long coat;
+**³** And Israel hath loved Joseph more than any of his sons, for he [is] a son of his old age, and hath made for him a long coat;
 
-<sup>4</sup> and his brethren see that their father hath loved him more than any of his brethren, and they hate him, and have not been able to speak [to] him peaceably.
+**⁴** and his brethren see that their father hath loved him more than any of his brethren, and they hate him, and have not been able to speak [to] him peaceably.
 
-<sup>5</sup> And Joseph dreameth a dream, and declareth to his brethren, and they add still more to hate him.
+**⁵** And Joseph dreameth a dream, and declareth to his brethren, and they add still more to hate him.
 
-<sup>6</sup> And he saith unto them, 'Hear ye, I pray you, this dream which I have dreamed:
+**⁶** And he saith unto them, 'Hear ye, I pray you, this dream which I have dreamed:
 
-<sup>7</sup> that, lo, we are binding bundles in the midst of the field, and lo, my bundle hath arisen, and hath also stood up, and lo, your bundles are round about, and bow themselves to my bundle.'
+**⁷** that, lo, we are binding bundles in the midst of the field, and lo, my bundle hath arisen, and hath also stood up, and lo, your bundles are round about, and bow themselves to my bundle.'
 
-<sup>8</sup> And his brethren say to him, 'Dost thou certainly reign over us? dost thou certainly rule over us?' and they add still more to hate him, for his dreams, and for his words.
+**⁸** And his brethren say to him, 'Dost thou certainly reign over us? dost thou certainly rule over us?' and they add still more to hate him, for his dreams, and for his words.
 
-<sup>9</sup> And he dreameth yet another dream, and recounteth it to his brethren, and saith, 'Lo, I have dreamed a dream again, and lo, the sun and the moon, and eleven stars, are bowing themselves to me.'
+**⁹** And he dreameth yet another dream, and recounteth it to his brethren, and saith, 'Lo, I have dreamed a dream again, and lo, the sun and the moon, and eleven stars, are bowing themselves to me.'
 
-<sup>10</sup> And he recounteth unto his father, and unto his brethren; and his father pusheth against him, and saith to him, 'What [is] this dream which thou hast dreamt? do we certainly come — I, and thy mother, and thy brethren — to bow ourselves to thee, to the earth?'
+**¹⁰** And he recounteth unto his father, and unto his brethren; and his father pusheth against him, and saith to him, 'What [is] this dream which thou hast dreamt? do we certainly come — I, and thy mother, and thy brethren — to bow ourselves to thee, to the earth?'
 
-<sup>11</sup> and his brethren are zealous against him, and his father hath watched the matter.
+**¹¹** and his brethren are zealous against him, and his father hath watched the matter.
 
-<sup>12</sup> And his brethren go to feed the flock of their father in Shechem,
+**¹²** And his brethren go to feed the flock of their father in Shechem,
 
-<sup>13</sup> and Israel saith unto Joseph, 'Are not thy brethren feeding in Shechem? come, and I send thee unto them;' and he saith to him, 'Here [am] I;'
+**¹³** and Israel saith unto Joseph, 'Are not thy brethren feeding in Shechem? come, and I send thee unto them;' and he saith to him, 'Here [am] I;'
 
-<sup>14</sup> and he saith to him, 'Go, I pray thee, see the peace of thy brethren, and the peace of the flock, and bring me back word;' and he sendeth him from the valley of Hebron, and he cometh to Shechem.
+**¹⁴** and he saith to him, 'Go, I pray thee, see the peace of thy brethren, and the peace of the flock, and bring me back word;' and he sendeth him from the valley of Hebron, and he cometh to Shechem.
 
-<sup>15</sup> And a man findeth him, and lo, he is wandering in the field, and the man asketh him, saying, 'What seekest thou?'
+**¹⁵** And a man findeth him, and lo, he is wandering in the field, and the man asketh him, saying, 'What seekest thou?'
 
-<sup>16</sup> and he saith, 'My brethren I am seeking, declare to me, I pray thee, where they are feeding?'
+**¹⁶** and he saith, 'My brethren I am seeking, declare to me, I pray thee, where they are feeding?'
 
-<sup>17</sup> And the man saith, 'They have journeyed from this, for I have heard some saying, Let us go to Dothan,' and Joseph goeth after his brethren, and findeth them in Dothan.
+**¹⁷** And the man saith, 'They have journeyed from this, for I have heard some saying, Let us go to Dothan,' and Joseph goeth after his brethren, and findeth them in Dothan.
 
-<sup>18</sup> And they see him from afar, even before he draweth near unto them, and they conspire against him to put him to death.
+**¹⁸** And they see him from afar, even before he draweth near unto them, and they conspire against him to put him to death.
 
-<sup>19</sup> And they say one unto another, 'Lo, this man of the dreams cometh;
+**¹⁹** And they say one unto another, 'Lo, this man of the dreams cometh;
 
-<sup>20</sup> and now, come, and we slay him, and cast him into one of the pits, and have said, An evil beast hath devoured him; and we see what his dreams are.'
+**²⁰** and now, come, and we slay him, and cast him into one of the pits, and have said, An evil beast hath devoured him; and we see what his dreams are.'
 
-<sup>21</sup> And Reuben heareth, and delivereth him out of their hand, and saith, 'Let us not smite the life;'
+**²¹** And Reuben heareth, and delivereth him out of their hand, and saith, 'Let us not smite the life;'
 
-<sup>22</sup> and Reuben saith unto them, 'Shed no blood; cast him into this pit which [is] in the wilderness, and put not forth a hand upon him,' — in order to deliver him out of their hand, to bring him back unto his father.
+**²²** and Reuben saith unto them, 'Shed no blood; cast him into this pit which [is] in the wilderness, and put not forth a hand upon him,' — in order to deliver him out of their hand, to bring him back unto his father.
 
-<sup>23</sup> And it cometh to pass, when Joseph hath come unto his brethren, that they strip Joseph of his coat, the long coat which [is] upon him,
+**²³** And it cometh to pass, when Joseph hath come unto his brethren, that they strip Joseph of his coat, the long coat which [is] upon him,
 
-<sup>24</sup> and take him and cast him into the pit, and the pit [is] empty, there is no water in it.
+**²⁴** and take him and cast him into the pit, and the pit [is] empty, there is no water in it.
 
-<sup>25</sup> And they sit down to eat bread, and they lift up their eyes, and look, and lo, a company of Ishmaelites coming from Gilead, and their camels bearing spices, and balm, and myrrh, going to take [them] down to Egypt.
+**²⁵** And they sit down to eat bread, and they lift up their eyes, and look, and lo, a company of Ishmaelites coming from Gilead, and their camels bearing spices, and balm, and myrrh, going to take [them] down to Egypt.
 
-<sup>26</sup> And Judah saith unto his brethren, 'What gain when we slay our brother, and have concealed his blood?
+**²⁶** And Judah saith unto his brethren, 'What gain when we slay our brother, and have concealed his blood?
 
-<sup>27</sup> Come, and we sell him to the Ishmaelites, and our hands are not on him, for he [is] our brother — our flesh;' and his brethren hearken.
+**²⁷** Come, and we sell him to the Ishmaelites, and our hands are not on him, for he [is] our brother — our flesh;' and his brethren hearken.
 
-<sup>28</sup> And Midianite merchantmen pass by and they draw out and bring up Joseph out of the pit, and sell Joseph to the Ishmaelites for twenty silverlings, and they bring Joseph into Egypt.
+**²⁸** And Midianite merchantmen pass by and they draw out and bring up Joseph out of the pit, and sell Joseph to the Ishmaelites for twenty silverlings, and they bring Joseph into Egypt.
 
-<sup>29</sup> And Reuben returneth unto the pit, and lo, Joseph is not in the pit, and he rendeth his garments,
+**²⁹** And Reuben returneth unto the pit, and lo, Joseph is not in the pit, and he rendeth his garments,
 
-<sup>30</sup> and he returneth unto his brethren, and saith, 'The lad is not, and I — whither am I going?'
+**³⁰** and he returneth unto his brethren, and saith, 'The lad is not, and I — whither am I going?'
 
-<sup>31</sup> And they take the coat of Joseph, and slaughter a kid of the goats, and dip the coat in the blood,
+**³¹** And they take the coat of Joseph, and slaughter a kid of the goats, and dip the coat in the blood,
 
-<sup>32</sup> and send the long coat, and they bring [it] in unto their father, and say, 'This have we found; discern, we pray thee, whether it [is] thy son's coat or not?'
+**³²** and send the long coat, and they bring [it] in unto their father, and say, 'This have we found; discern, we pray thee, whether it [is] thy son's coat or not?'
 
-<sup>33</sup> And he discerneth it, and saith, 'My son's coat! an evil beast hath devoured him; torn — torn is Joseph!'
+**³³** And he discerneth it, and saith, 'My son's coat! an evil beast hath devoured him; torn — torn is Joseph!'
 
-<sup>34</sup> And Jacob rendeth his raiment, and putteth sackcloth on his loins, and becometh a mourner for his son many days,
+**³⁴** And Jacob rendeth his raiment, and putteth sackcloth on his loins, and becometh a mourner for his son many days,
 
-<sup>35</sup> and all his sons and all his daughters rise to comfort him, and he refuseth to comfort himself, and saith, 'For — I go down mourning unto my son, to Sheol,' and his father weepeth for him.
+**³⁵** and all his sons and all his daughters rise to comfort him, and he refuseth to comfort himself, and saith, 'For — I go down mourning unto my son, to Sheol,' and his father weepeth for him.
 
-<sup>36</sup> And the Medanites have sold him unto Egypt, to Potiphar, a eunuch of Pharaoh, head of the executioners.
+**³⁶** And the Medanites have sold him unto Egypt, to Potiphar, a eunuch of Pharaoh, head of the executioners.

@@ -1,87 +1,87 @@
 # Chapter 28
 
-<sup>1</sup> 'And thou, bring thou near unto thee Aaron thy brother, and his sons with him, from the midst of the sons of Israel, for his being priest to Me, [even] Aaron, Nadab, and Abihu, Eleazar and Ithamar, sons of Aaron;
+**¹** 'And thou, bring thou near unto thee Aaron thy brother, and his sons with him, from the midst of the sons of Israel, for his being priest to Me, [even] Aaron, Nadab, and Abihu, Eleazar and Ithamar, sons of Aaron;
 
-<sup>2</sup> and thou hast made holy garments for Aaron thy brother, for honour and for beauty;
+**²** and thou hast made holy garments for Aaron thy brother, for honour and for beauty;
 
-<sup>3</sup> and thou — thou dost speak unto all the wise of heart, whom I have filled [with] a spirit of wisdom, and they have made the garments of Aaron to sanctify him for his being priest to Me.
+**³** and thou — thou dost speak unto all the wise of heart, whom I have filled [with] a spirit of wisdom, and they have made the garments of Aaron to sanctify him for his being priest to Me.
 
-<sup>4</sup> 'And these [are] the garments which they make: a breastplate, and an ephod, and an upper robe, and an embroidered coat, a mitre, and a girdle; yea, they have made holy garments for Aaron thy brother, and for his sons, for his being priest to Me.
+**⁴** 'And these [are] the garments which they make: a breastplate, and an ephod, and an upper robe, and an embroidered coat, a mitre, and a girdle; yea, they have made holy garments for Aaron thy brother, and for his sons, for his being priest to Me.
 
-<sup>5</sup> 'And they take the gold, and the blue, and the purple, and the scarlet, and the linen,
+**⁵** 'And they take the gold, and the blue, and the purple, and the scarlet, and the linen,
 
-<sup>6</sup> and have made the ephod of gold, blue, and purple, and scarlet, and twined linen, work of a designer;
+**⁶** and have made the ephod of gold, blue, and purple, and scarlet, and twined linen, work of a designer;
 
-<sup>7</sup> it hath two shoulders joining at its two ends, and it is joined.
+**⁷** it hath two shoulders joining at its two ends, and it is joined.
 
-<sup>8</sup> 'And the girdle of his ephod which [is] on him, according to its work, is of the same, of gold, blue, and purple, and scarlet, and twined linen.
+**⁸** 'And the girdle of his ephod which [is] on him, according to its work, is of the same, of gold, blue, and purple, and scarlet, and twined linen.
 
-<sup>9</sup> 'And thou hast taken the two shoham stones, and hast opened on them the names of the sons of Israel;
+**⁹** 'And thou hast taken the two shoham stones, and hast opened on them the names of the sons of Israel;
 
-<sup>10</sup> six of their names on the one stone, and the names of the remaining six on the second stone, according to their births;
+**¹⁰** six of their names on the one stone, and the names of the remaining six on the second stone, according to their births;
 
-<sup>11</sup> the work of an engraver in stone, openings of a signet, thou dost open the two stones by the names of the sons of Israel; turned round, embroidered [with] gold, thou dost make them.
+**¹¹** the work of an engraver in stone, openings of a signet, thou dost open the two stones by the names of the sons of Israel; turned round, embroidered [with] gold, thou dost make them.
 
-<sup>12</sup> 'And thou hast set the two stones on the shoulders of the ephod — stones of memorial to the sons of Israel — and Aaron hath borne their names before Jehovah, on his two shoulders, for a memorial.
+**¹²** 'And thou hast set the two stones on the shoulders of the ephod — stones of memorial to the sons of Israel — and Aaron hath borne their names before Jehovah, on his two shoulders, for a memorial.
 
-<sup>13</sup> 'And thou hast made embroidered things of gold,
+**¹³** 'And thou hast made embroidered things of gold,
 
-<sup>14</sup> and two chains of pure gold, wreathed work thou dost make them, work of thick bands, and thou hast put the thick chains on the embroidered things.
+**¹⁴** and two chains of pure gold, wreathed work thou dost make them, work of thick bands, and thou hast put the thick chains on the embroidered things.
 
-<sup>15</sup> 'And thou hast made a breastplate of judgment, work of a designer; according to the work of the ephod thou dost make it; of gold, blue, and purple, and scarlet, and twined linen thou dost make it;
+**¹⁵** 'And thou hast made a breastplate of judgment, work of a designer; according to the work of the ephod thou dost make it; of gold, blue, and purple, and scarlet, and twined linen thou dost make it;
 
-<sup>16</sup> it is square, doubled, a span its length, and a span its breadth.
+**¹⁶** it is square, doubled, a span its length, and a span its breadth.
 
-<sup>17</sup> 'And thou hast set in it settings of stone, four rows of stone; a row of sardius, topaz, and carbuncle [is] the first row;
+**¹⁷** 'And thou hast set in it settings of stone, four rows of stone; a row of sardius, topaz, and carbuncle [is] the first row;
 
-<sup>18</sup> and the second row [is] emerald, sapphire, and diamond;
+**¹⁸** and the second row [is] emerald, sapphire, and diamond;
 
-<sup>19</sup> and the third row [is] opal, agate, and amethyst;
+**¹⁹** and the third row [is] opal, agate, and amethyst;
 
-<sup>20</sup> and the fourth row [is] beryl, and onyx, and jasper; embroidered with gold are they in their settings,
+**²⁰** and the fourth row [is] beryl, and onyx, and jasper; embroidered with gold are they in their settings,
 
-<sup>21</sup> and the stones are according to the names of the sons of Israel, twelve, according to their names, openings of a signet, each by his name are they for the twelve tribes.
+**²¹** and the stones are according to the names of the sons of Israel, twelve, according to their names, openings of a signet, each by his name are they for the twelve tribes.
 
-<sup>22</sup> 'And thou hast made on the breastplate wreathed chains, work of thick bands, of pure gold;
+**²²** 'And thou hast made on the breastplate wreathed chains, work of thick bands, of pure gold;
 
-<sup>23</sup> and thou hast made on the breastplate two rings of gold, and hast put the two rings on the two ends of the breastplate;
+**²³** and thou hast made on the breastplate two rings of gold, and hast put the two rings on the two ends of the breastplate;
 
-<sup>24</sup> and thou hast put the two thick bands of gold on the two rings at the ends of the breastplate;
+**²⁴** and thou hast put the two thick bands of gold on the two rings at the ends of the breastplate;
 
-<sup>25</sup> and the two ends of the two thick bands thou dost put on the two embroidered things, and thou hast put [them] on the shoulders of the ephod over-against its face.
+**²⁵** and the two ends of the two thick bands thou dost put on the two embroidered things, and thou hast put [them] on the shoulders of the ephod over-against its face.
 
-<sup>26</sup> 'And thou hast made two rings of gold, and hast set them on the two ends of the breastplate, on its border, which [is] over-against the ephod within;
+**²⁶** 'And thou hast made two rings of gold, and hast set them on the two ends of the breastplate, on its border, which [is] over-against the ephod within;
 
-<sup>27</sup> and thou hast made two rings of gold, and hast put them on the two shoulders of the ephod, beneath, over-against its front, over-against its joining, above the girdle of the ephod,
+**²⁷** and thou hast made two rings of gold, and hast put them on the two shoulders of the ephod, beneath, over-against its front, over-against its joining, above the girdle of the ephod,
 
-<sup>28</sup> and they bind the breastplate by its rings unto the rings of the ephod with a ribbon of blue, to be above the girdle of the ephod, and the breastplate is not loosed from the ephod.
+**²⁸** and they bind the breastplate by its rings unto the rings of the ephod with a ribbon of blue, to be above the girdle of the ephod, and the breastplate is not loosed from the ephod.
 
-<sup>29</sup> 'And Aaron hath borne the names of the sons of Israel in the breastplate of judgment, on his heart, in his going in unto the sanctuary, for a memorial before Jehovah continually.
+**²⁹** 'And Aaron hath borne the names of the sons of Israel in the breastplate of judgment, on his heart, in his going in unto the sanctuary, for a memorial before Jehovah continually.
 
-<sup>30</sup> 'And thou hast put unto the breastplate of judgment the Lights and the Perfections, and they have been on the heart of Aaron, in his going in before Jehovah, and Aaron hath borne the judgment of the sons of Israel on his heart before Jehovah continually.
+**³⁰** 'And thou hast put unto the breastplate of judgment the Lights and the Perfections, and they have been on the heart of Aaron, in his going in before Jehovah, and Aaron hath borne the judgment of the sons of Israel on his heart before Jehovah continually.
 
-<sup>31</sup> 'And thou hast made the upper robe of the ephod completely of blue,
+**³¹** 'And thou hast made the upper robe of the ephod completely of blue,
 
-<sup>32</sup> and the opening for its head hath been in its midst, a border is to its opening round about, work of a weaver, as the opening of a habergeon there is to it; it is not rent.
+**³²** and the opening for its head hath been in its midst, a border is to its opening round about, work of a weaver, as the opening of a habergeon there is to it; it is not rent.
 
-<sup>33</sup> 'And thou hast made on its hem pomegranates of blue, and purple, and scarlet, on its hem round about, and bells of gold in their midst round about;
+**³³** 'And thou hast made on its hem pomegranates of blue, and purple, and scarlet, on its hem round about, and bells of gold in their midst round about;
 
-<sup>34</sup> a bell of gold and a pomegranate, a bell of gold and a pomegranate [are] on the hems of the upper robe round about.
+**³⁴** a bell of gold and a pomegranate, a bell of gold and a pomegranate [are] on the hems of the upper robe round about.
 
-<sup>35</sup> 'And it hath been on Aaron to minister in, and its sound hath been heard in his coming in unto the sanctuary before Jehovah, and in his going out, and he doth not die.
+**³⁵** 'And it hath been on Aaron to minister in, and its sound hath been heard in his coming in unto the sanctuary before Jehovah, and in his going out, and he doth not die.
 
-<sup>36</sup> 'And thou hast made a flower of pure gold, and hast opened on it — openings of a signet — 'Holy to Jehovah;'
+**³⁶** 'And thou hast made a flower of pure gold, and hast opened on it — openings of a signet — 'Holy to Jehovah;'
 
-<sup>37</sup> and thou hast put it on a blue ribbon, and it hath been on the mitre — over-against the front of the mitre it is;
+**³⁷** and thou hast put it on a blue ribbon, and it hath been on the mitre — over-against the front of the mitre it is;
 
-<sup>38</sup> and it hath been on the forehead of Aaron, and Aaron hath borne the iniquity of the holy things which the sons of Israel do hallow, even all their holy gifts; and it hath been on his forehead continually for a pleasing thing for them before Jehovah.
+**³⁸** and it hath been on the forehead of Aaron, and Aaron hath borne the iniquity of the holy things which the sons of Israel do hallow, even all their holy gifts; and it hath been on his forehead continually for a pleasing thing for them before Jehovah.
 
-<sup>39</sup> 'And thou hast embroidered the coat of linen, and hast made a mitre of linen, and a girdle thou dost make — work of an embroiderer.
+**³⁹** 'And thou hast embroidered the coat of linen, and hast made a mitre of linen, and a girdle thou dost make — work of an embroiderer.
 
-<sup>40</sup> 'And for the sons of Aaron thou dost make coats, and thou hast made for them girdles, yea, bonnets thou dost make for them, for honour and for beauty;
+**⁴⁰** 'And for the sons of Aaron thou dost make coats, and thou hast made for them girdles, yea, bonnets thou dost make for them, for honour and for beauty;
 
-<sup>41</sup> and thou hast clothed Aaron thy brother with them, and his sons with him, and hast anointed them, and hast consecrated their hand, and hast sanctified them, and they have been priests to Me.
+**⁴¹** and thou hast clothed Aaron thy brother with them, and his sons with him, and hast anointed them, and hast consecrated their hand, and hast sanctified them, and they have been priests to Me.
 
-<sup>42</sup> 'And make thou for them linen trousers to cover the naked flesh: they are from the loins even unto the thighs;
+**⁴²** 'And make thou for them linen trousers to cover the naked flesh: they are from the loins even unto the thighs;
 
-<sup>43</sup> and they have been on Aaron and on his sons, in their going in unto the tent of meeting, or in their drawing nigh unto the altar to minister in the sanctuary, and they do not bear iniquity nor have they died; a statute age-during to him, and to his seed after him.
+**⁴³** and they have been on Aaron and on his sons, in their going in unto the tent of meeting, or in their drawing nigh unto the altar to minister in the sanctuary, and they do not bear iniquity nor have they died; a statute age-during to him, and to his seed after him.

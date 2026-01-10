@@ -1,41 +1,41 @@
 # Psalm 49
 
-<sup>1</sup> To the Overseer. — By sons of Korah. A Psalm. Hear this, all ye peoples, Give ear, all ye inhabitants of the world.
+**¹** To the Overseer. — By sons of Korah. A Psalm. Hear this, all ye peoples, Give ear, all ye inhabitants of the world.
 
-<sup>2</sup> Both low and high, together rich and needy.
+**²** Both low and high, together rich and needy.
 
-<sup>3</sup> My mouth speaketh wise things, And the meditations of my heart [are] things of understanding.
+**³** My mouth speaketh wise things, And the meditations of my heart [are] things of understanding.
 
-<sup>4</sup> I incline to a simile mine ear, I open with a harp my riddle:
+**⁴** I incline to a simile mine ear, I open with a harp my riddle:
 
-<sup>5</sup> Why do I fear in days of evil? The iniquity of my supplanters doth compass me.
+**⁵** Why do I fear in days of evil? The iniquity of my supplanters doth compass me.
 
-<sup>6</sup> Those trusting on their wealth, And in the multitude of their riches, Do shew themselves foolish.
+**⁶** Those trusting on their wealth, And in the multitude of their riches, Do shew themselves foolish.
 
-<sup>7</sup> A brother doth no one at all ransom, He doth not give to God his atonement.
+**⁷** A brother doth no one at all ransom, He doth not give to God his atonement.
 
-<sup>8</sup> And precious [is] the redemption of their soul, And it hath ceased — to the age.
+**⁸** And precious [is] the redemption of their soul, And it hath ceased — to the age.
 
-<sup>9</sup> And still he liveth for ever, He seeth not the pit.
+**⁹** And still he liveth for ever, He seeth not the pit.
 
-<sup>10</sup> For he seeth wise men die, Together the foolish and brutish perish, And have left to others their wealth.
+**¹⁰** For he seeth wise men die, Together the foolish and brutish perish, And have left to others their wealth.
 
-<sup>11</sup> Their heart [is]: Their houses [are] to the age, Their tabernacles to all generations. They proclaimed their names over the lands.
+**¹¹** Their heart [is]: Their houses [are] to the age, Their tabernacles to all generations. They proclaimed their names over the lands.
 
-<sup>12</sup> And man in honour doth not remain, He hath been like the beasts, they have been cut off.
+**¹²** And man in honour doth not remain, He hath been like the beasts, they have been cut off.
 
-<sup>13</sup> This their way [is] folly for them, And their posterity with their sayings are pleased. Selah.
+**¹³** This their way [is] folly for them, And their posterity with their sayings are pleased. Selah.
 
-<sup>14</sup> As sheep for Sheol they have set themselves, Death doth afflict them, And the upright rule over them in the morning, And their form [is] for consumption. Sheol [is] a dwelling for him.
+**¹⁴** As sheep for Sheol they have set themselves, Death doth afflict them, And the upright rule over them in the morning, And their form [is] for consumption. Sheol [is] a dwelling for him.
 
-<sup>15</sup> Only, God doth ransom my soul from the hand of Sheol, For He doth receive me. Selah.
+**¹⁵** Only, God doth ransom my soul from the hand of Sheol, For He doth receive me. Selah.
 
-<sup>16</sup> Fear not, when one maketh wealth, When the honour of his house is abundant,
+**¹⁶** Fear not, when one maketh wealth, When the honour of his house is abundant,
 
-<sup>17</sup> For at his death he receiveth nothing, His honour goeth not down after him.
+**¹⁷** For at his death he receiveth nothing, His honour goeth not down after him.
 
-<sup>18</sup> For his soul in his life he blesseth, (And they praise thee when thou dost well for thyself.)
+**¹⁸** For his soul in his life he blesseth, (And they praise thee when thou dost well for thyself.)
 
-<sup>19</sup> It cometh to the generation of his fathers, For ever they see not the light.
+**¹⁹** It cometh to the generation of his fathers, For ever they see not the light.
 
-<sup>20</sup> Man in honour, who understandest not, Hath been like the beasts, they have been cut off!
+**²⁰** Man in honour, who understandest not, Hath been like the beasts, they have been cut off!

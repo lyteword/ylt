@@ -1,17 +1,17 @@
 # Psalm 3
 
-<sup>1</sup> A Psalm of David, in his fleeing from the face of Absalom his son. Jehovah, how have my distresses multiplied! Many are rising up against me.
+**¹** A Psalm of David, in his fleeing from the face of Absalom his son. Jehovah, how have my distresses multiplied! Many are rising up against me.
 
-<sup>2</sup> Many are saying of my soul, 'There is no salvation for him in God.' Selah.
+**²** Many are saying of my soul, 'There is no salvation for him in God.' Selah.
 
-<sup>3</sup> And Thou, O Jehovah, [art] a shield for me, My honour, and lifter up of my head.
+**³** And Thou, O Jehovah, [art] a shield for me, My honour, and lifter up of my head.
 
-<sup>4</sup> My voice [is] unto Jehovah: I call: And He answereth me from his holy hill, Selah.
+**⁴** My voice [is] unto Jehovah: I call: And He answereth me from his holy hill, Selah.
 
-<sup>5</sup> I — I have lain down, and I sleep, I have waked, for Jehovah sustaineth me.
+**⁵** I — I have lain down, and I sleep, I have waked, for Jehovah sustaineth me.
 
-<sup>6</sup> I am not afraid of myriads of people, That round about they have set against me.
+**⁶** I am not afraid of myriads of people, That round about they have set against me.
 
-<sup>7</sup> Rise, O Jehovah! save me, my God. Because Thou hast smitten All mine enemies [on] the cheek. The teeth of the wicked Thou hast broken.
+**⁷** Rise, O Jehovah! save me, my God. Because Thou hast smitten All mine enemies [on] the cheek. The teeth of the wicked Thou hast broken.
 
-<sup>8</sup> Of Jehovah [is] this salvation; On Thy people [is] Thy blessing! Selah.
+**⁸** Of Jehovah [is] this salvation; On Thy people [is] Thy blessing! Selah.

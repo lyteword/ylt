@@ -1,93 +1,93 @@
 # Chapter 26
 
-<sup>1</sup> 'Ye do not make to yourselves idols; and graven image or standing image ye do not set up to yourselves; and a stone of imagery ye do not put in your land, to bow yourselves to it; for I [am] Jehovah your God.
+**¹** 'Ye do not make to yourselves idols; and graven image or standing image ye do not set up to yourselves; and a stone of imagery ye do not put in your land, to bow yourselves to it; for I [am] Jehovah your God.
 
-<sup>2</sup> 'My sabbaths ye do keep, and My sanctuary ye do reverence; I [am] Jehovah.
+**²** 'My sabbaths ye do keep, and My sanctuary ye do reverence; I [am] Jehovah.
 
-<sup>3</sup> 'If in My statutes ye walk, and My commands ye keep, and have done them,
+**³** 'If in My statutes ye walk, and My commands ye keep, and have done them,
 
-<sup>4</sup> then I have given your rains in their season, and the land hath given her produce, and the tree of the field doth give its fruit;
+**⁴** then I have given your rains in their season, and the land hath given her produce, and the tree of the field doth give its fruit;
 
-<sup>5</sup> and reached to you hath the threshing, the gathering, and the gathering doth reach the sowing -[time]; and ye have eaten your bread to satiety, and have dwelt confidently in your land.
+**⁵** and reached to you hath the threshing, the gathering, and the gathering doth reach the sowing -[time]; and ye have eaten your bread to satiety, and have dwelt confidently in your land.
 
-<sup>6</sup> 'And I have given peace in the land, and ye have lain down, and there is none causing trembling; and I have caused evil beasts to cease out of the land, and the sword doth not pass over into your land.
+**⁶** 'And I have given peace in the land, and ye have lain down, and there is none causing trembling; and I have caused evil beasts to cease out of the land, and the sword doth not pass over into your land.
 
-<sup>7</sup> 'And ye have pursued your enemies, and they have fallen before you by the sword;
+**⁷** 'And ye have pursued your enemies, and they have fallen before you by the sword;
 
-<sup>8</sup> and five of you have pursued a hundred, and a hundred of you do pursue a myriad; and your enemies have fallen before you by the sword.
+**⁸** and five of you have pursued a hundred, and a hundred of you do pursue a myriad; and your enemies have fallen before you by the sword.
 
-<sup>9</sup> 'And I have turned unto you, and have made you fruitful, and have multiplied you, and have established My covenant with you;
+**⁹** 'And I have turned unto you, and have made you fruitful, and have multiplied you, and have established My covenant with you;
 
-<sup>10</sup> and ye have eaten old [store], and the old because of the new ye bring out.
+**¹⁰** and ye have eaten old [store], and the old because of the new ye bring out.
 
-<sup>11</sup> 'And I have given My tabernacle in your midst, and My soul doth not loathe you;
+**¹¹** 'And I have given My tabernacle in your midst, and My soul doth not loathe you;
 
-<sup>12</sup> and I have walked habitually in your midst, and have become your God, and ye — ye are become My people;
+**¹²** and I have walked habitually in your midst, and have become your God, and ye — ye are become My people;
 
-<sup>13</sup> I [am] Jehovah your God, who have brought you out of the land of the Egyptians, from being their servants; and I break the bars of your yoke, and cause you to go erect.
+**¹³** I [am] Jehovah your God, who have brought you out of the land of the Egyptians, from being their servants; and I break the bars of your yoke, and cause you to go erect.
 
-<sup>14</sup> 'And if ye do not hearken to Me, and do not all these commands;
+**¹⁴** 'And if ye do not hearken to Me, and do not all these commands;
 
-<sup>15</sup> and if at My statutes ye kick, and if My judgments your soul loathe, so as not to do all My commands — to your breaking My covenant —
+**¹⁵** and if at My statutes ye kick, and if My judgments your soul loathe, so as not to do all My commands — to your breaking My covenant —
 
-<sup>16</sup> I also do this to you, and I have appointed over you trouble, the consumption, and the burning fever, consuming eyes, and causing pain of soul; and your seed in vain ye have sowed, and your enemies have eaten it;
+**¹⁶** I also do this to you, and I have appointed over you trouble, the consumption, and the burning fever, consuming eyes, and causing pain of soul; and your seed in vain ye have sowed, and your enemies have eaten it;
 
-<sup>17</sup> and I have set My face against you, and ye have been smitten before your enemies; and those hating you have ruled over you, and ye have fled, and there is none pursuing you.
+**¹⁷** and I have set My face against you, and ye have been smitten before your enemies; and those hating you have ruled over you, and ye have fled, and there is none pursuing you.
 
-<sup>18</sup> 'And if unto these ye hearken not to Me, — then I have added to chastise you seven times for your sins;
+**¹⁸** 'And if unto these ye hearken not to Me, — then I have added to chastise you seven times for your sins;
 
-<sup>19</sup> and I have broken the pride of your strength, and have made your heavens as iron, and your earth as brass;
+**¹⁹** and I have broken the pride of your strength, and have made your heavens as iron, and your earth as brass;
 
-<sup>20</sup> and consumed hath been your strength in vain, and your land doth not give her produce, and the tree of the land doth not give its fruit.
+**²⁰** and consumed hath been your strength in vain, and your land doth not give her produce, and the tree of the land doth not give its fruit.
 
-<sup>21</sup> 'And if ye walk with Me [in] opposition, and are not willing to hearken to Me, then I have added to you a plague seven times, according to your sins,
+**²¹** 'And if ye walk with Me [in] opposition, and are not willing to hearken to Me, then I have added to you a plague seven times, according to your sins,
 
-<sup>22</sup> and sent against you the beast of the field, and it hath bereaved you; and I have cut off your cattle, and have made you few, and your ways have been desolate.
+**²²** and sent against you the beast of the field, and it hath bereaved you; and I have cut off your cattle, and have made you few, and your ways have been desolate.
 
-<sup>23</sup> 'And if by these ye are not instructed by Me, and have walked with Me [in] opposition,
+**²³** 'And if by these ye are not instructed by Me, and have walked with Me [in] opposition,
 
-<sup>24</sup> then I have walked — I also — with you in opposition, and have smitten you, even I, seven times for your sins;
+**²⁴** then I have walked — I also — with you in opposition, and have smitten you, even I, seven times for your sins;
 
-<sup>25</sup> and I have brought in on you a sword, executing the vengeance of a covenant; and ye have been gathered unto your cities, and I have sent pestilence into your midst, and ye have been given into the hand of an enemy.
+**²⁵** and I have brought in on you a sword, executing the vengeance of a covenant; and ye have been gathered unto your cities, and I have sent pestilence into your midst, and ye have been given into the hand of an enemy.
 
-<sup>26</sup> 'In My breaking to you the staff of bread, then ten women have baked your bread in one oven, and have given back your bread by weight; and ye have eaten, and are not satisfied.
+**²⁶** 'In My breaking to you the staff of bread, then ten women have baked your bread in one oven, and have given back your bread by weight; and ye have eaten, and are not satisfied.
 
-<sup>27</sup> 'And if for this ye hearken not to Me, and have walked with Me in opposition,
+**²⁷** 'And if for this ye hearken not to Me, and have walked with Me in opposition,
 
-<sup>28</sup> then I have walked with you in the fury of opposition, and have chastised you, even I, seven times for your sins.
+**²⁸** then I have walked with you in the fury of opposition, and have chastised you, even I, seven times for your sins.
 
-<sup>29</sup> 'And ye have eaten the flesh of your sons; even flesh of your daughters ye do eat.
+**²⁹** 'And ye have eaten the flesh of your sons; even flesh of your daughters ye do eat.
 
-<sup>30</sup> And I have destroyed your high places, and cut down your images, and have put your carcases on the carcases of your idols, and My soul hath loathed you;
+**³⁰** And I have destroyed your high places, and cut down your images, and have put your carcases on the carcases of your idols, and My soul hath loathed you;
 
-<sup>31</sup> and I have made your cities a waste, and have made desolate your sanctuaries, and I smell not at your sweet fragrances;
+**³¹** and I have made your cities a waste, and have made desolate your sanctuaries, and I smell not at your sweet fragrances;
 
-<sup>32</sup> and I have made desolate the land, and your enemies, who are dwelling in it, have been astonished at it.
+**³²** and I have made desolate the land, and your enemies, who are dwelling in it, have been astonished at it.
 
-<sup>33</sup> And you I scatter among nations, and have drawn out after you a sword, and your land hath been a desolation, and your cities are a waste.
+**³³** And you I scatter among nations, and have drawn out after you a sword, and your land hath been a desolation, and your cities are a waste.
 
-<sup>34</sup> 'Then doth the land enjoy its sabbaths — all the days of the desolation, and ye in the land of your enemies — then doth the land rest, and hath enjoyed its sabbaths;
+**³⁴** 'Then doth the land enjoy its sabbaths — all the days of the desolation, and ye in the land of your enemies — then doth the land rest, and hath enjoyed its sabbaths;
 
-<sup>35</sup> all the days of the desolation it resteth that which it hath not rested in your sabbaths in your dwelling on it.
+**³⁵** all the days of the desolation it resteth that which it hath not rested in your sabbaths in your dwelling on it.
 
-<sup>36</sup> 'And those who are left of you — I have also brought a faintness into their heart in the lands of their enemies, and the sound of a leaf driven away hath pursued them, and they have fled — flight from a sword — and they have fallen, and there is none pursuing.
+**³⁶** 'And those who are left of you — I have also brought a faintness into their heart in the lands of their enemies, and the sound of a leaf driven away hath pursued them, and they have fled — flight from a sword — and they have fallen, and there is none pursuing.
 
-<sup>37</sup> And they have stumbled one on another, as from the face of a sword, and there is none pursuing, and ye have no standing before your enemies,
+**³⁷** And they have stumbled one on another, as from the face of a sword, and there is none pursuing, and ye have no standing before your enemies,
 
-<sup>38</sup> and ye have perished among the nations, and the land of your enemies hath consumed you.
+**³⁸** and ye have perished among the nations, and the land of your enemies hath consumed you.
 
-<sup>39</sup> 'And those who are left of you — they consume away in their iniquity, in the lands of your enemies; and also in the iniquities of their fathers, with them they consume away.
+**³⁹** 'And those who are left of you — they consume away in their iniquity, in the lands of your enemies; and also in the iniquities of their fathers, with them they consume away.
 
-<sup>40</sup> 'And — they have confessed their iniquity, and the iniquity of their fathers, in their trespass which they have trespassed against Me, and also, that they have walked with Me, in opposition,
+**⁴⁰** 'And — they have confessed their iniquity, and the iniquity of their fathers, in their trespass which they have trespassed against Me, and also, that they have walked with Me, in opposition,
 
-<sup>41</sup> also I walk to them in opposition, and have brought them into the land of their enemies — or then their uncircumcised heart is humbled, and then they accept the punishment of their iniquity, —
+**⁴¹** also I walk to them in opposition, and have brought them into the land of their enemies — or then their uncircumcised heart is humbled, and then they accept the punishment of their iniquity, —
 
-<sup>42</sup> then I have remembered My covenant [with] Jacob, and also My covenant [with] Isaac, and also My covenant [with] Abraham I remember, and the land I remember.
+**⁴²** then I have remembered My covenant [with] Jacob, and also My covenant [with] Isaac, and also My covenant [with] Abraham I remember, and the land I remember.
 
-<sup>43</sup> 'And — the land is left of them, and doth enjoy its sabbaths, in the desolation without them, and they accept the punishment of their iniquity, because, even because, against My judgments they have kicked, and My statutes hath their soul loathed,
+**⁴³** 'And — the land is left of them, and doth enjoy its sabbaths, in the desolation without them, and they accept the punishment of their iniquity, because, even because, against My judgments they have kicked, and My statutes hath their soul loathed,
 
-<sup>44</sup> and also even this, in their being in the land of their enemies, I have not rejected them, nor have I loathed them, to consume them, to break My covenant with them; for I [am] Jehovah their God; —
+**⁴⁴** and also even this, in their being in the land of their enemies, I have not rejected them, nor have I loathed them, to consume them, to break My covenant with them; for I [am] Jehovah their God; —
 
-<sup>45</sup> then I have remembered for them the covenant of the ancestors, whom I brought forth out of the land of Egypt before the eyes of the nations to become their God; I [am] Jehovah.'
+**⁴⁵** then I have remembered for them the covenant of the ancestors, whom I brought forth out of the land of Egypt before the eyes of the nations to become their God; I [am] Jehovah.'
 
-<sup>46</sup> These [are] the statutes, and the judgments, and the laws, which Jehovah hath given between Him and the sons of Israel, in mount Sinai, by the hand of Moses.
+**⁴⁶** These [are] the statutes, and the judgments, and the laws, which Jehovah hath given between Him and the sons of Israel, in mount Sinai, by the hand of Moses.

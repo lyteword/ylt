@@ -1,49 +1,49 @@
 # Chapter 2
 
-<sup>1</sup> And Joshua son of Nun sendeth from Shittim, two men, spies, silently, saying, 'Go, see the land — and Jericho;' and they go and come into the house of a woman, a harlot, and her name [is] Rahab, and they lie down there.
+**¹** And Joshua son of Nun sendeth from Shittim, two men, spies, silently, saying, 'Go, see the land — and Jericho;' and they go and come into the house of a woman, a harlot, and her name [is] Rahab, and they lie down there.
 
-<sup>2</sup> And it is told to the king of Jericho, saying, 'Lo, men have come in hither to-night, from the sons of Israel, to search the land.
+**²** And it is told to the king of Jericho, saying, 'Lo, men have come in hither to-night, from the sons of Israel, to search the land.
 
-<sup>3</sup> And the king of Jericho sendeth unto Rahab, saying, 'Bring out the men who are coming in unto thee, who have come into thy house, for to search the whole of the land they have come in.
+**³** And the king of Jericho sendeth unto Rahab, saying, 'Bring out the men who are coming in unto thee, who have come into thy house, for to search the whole of the land they have come in.
 
-<sup>4</sup> And the woman taketh the two men, and hideth them, and saith thus: 'The men came in unto me, and I have not known whence they [are];
+**⁴** And the woman taketh the two men, and hideth them, and saith thus: 'The men came in unto me, and I have not known whence they [are];
 
-<sup>5</sup> and it cometh to pass — the gate is to [be] shut — in the dark, and the men have gone out; I have not known whither the men have gone; pursue ye, hasten after them, for ye overtake them;'
+**⁵** and it cometh to pass — the gate is to [be] shut — in the dark, and the men have gone out; I have not known whither the men have gone; pursue ye, hasten after them, for ye overtake them;'
 
-<sup>6</sup> and she hath caused them to go up on the roof, and hideth them with the flax wood, which is arranged for her on the roof.
+**⁶** and she hath caused them to go up on the roof, and hideth them with the flax wood, which is arranged for her on the roof.
 
-<sup>7</sup> And the men have pursued after them the way of the Jordan, by the fords, and the gate they have shut afterwards, when the pursuers have gone out after them.
+**⁷** And the men have pursued after them the way of the Jordan, by the fords, and the gate they have shut afterwards, when the pursuers have gone out after them.
 
-<sup>8</sup> And — before they lie down — she hath gone up unto them on the roof,
+**⁸** And — before they lie down — she hath gone up unto them on the roof,
 
-<sup>9</sup> and she saith unto the men, 'I have known that Jehovah hath given to you the land, and that your terror hath fallen upon us, and that all the inhabitants of the land have melted at your presence.
+**⁹** and she saith unto the men, 'I have known that Jehovah hath given to you the land, and that your terror hath fallen upon us, and that all the inhabitants of the land have melted at your presence.
 
-<sup>10</sup> 'For we have heard how Jehovah dried up the waters of the Red Sea at your presence, in your going out of Egypt, and that which ye have done to the two kings of the Amorite who [are] beyond the Jordan; to Sihon and to Og whom ye devoted.
+**¹⁰** 'For we have heard how Jehovah dried up the waters of the Red Sea at your presence, in your going out of Egypt, and that which ye have done to the two kings of the Amorite who [are] beyond the Jordan; to Sihon and to Og whom ye devoted.
 
-<sup>11</sup> And we hear, and melt doth our heart, and there hath not stood any more spirit in [any] man, from your presence, for Jehovah your God, He [is] God in the heavens above, and on the earth beneath.
+**¹¹** And we hear, and melt doth our heart, and there hath not stood any more spirit in [any] man, from your presence, for Jehovah your God, He [is] God in the heavens above, and on the earth beneath.
 
-<sup>12</sup> 'And now, swear ye, I pray you, to me by Jehovah — because I have done with you kindness — that ye have done, even ye, kindness with the house of my father, and have given to me a true token,
+**¹²** 'And now, swear ye, I pray you, to me by Jehovah — because I have done with you kindness — that ye have done, even ye, kindness with the house of my father, and have given to me a true token,
 
-<sup>13</sup> and have kept alive my father, and my mother, and my brothers, and my sisters, and all that they have, and have delivered our souls from death.'
+**¹³** and have kept alive my father, and my mother, and my brothers, and my sisters, and all that they have, and have delivered our souls from death.'
 
-<sup>14</sup> And the men say to her, 'Our soul for yours — to die; if ye declare not this our matter, then it hath been, in Jehovah's giving to us this land, that we have done with thee kindness and truth.'
+**¹⁴** And the men say to her, 'Our soul for yours — to die; if ye declare not this our matter, then it hath been, in Jehovah's giving to us this land, that we have done with thee kindness and truth.'
 
-<sup>15</sup> And she causeth them to go down by a rope through the window, for her house [is] in the side of the wall, and in the wall she [is] dwelling;
+**¹⁵** And she causeth them to go down by a rope through the window, for her house [is] in the side of the wall, and in the wall she [is] dwelling;
 
-<sup>16</sup> and she saith to them, 'To the mountain go, lest the pursuers come upon you; and ye have been hidden there three days till the turning back of the pursuers, and afterwards ye go on your way.'
+**¹⁶** and she saith to them, 'To the mountain go, lest the pursuers come upon you; and ye have been hidden there three days till the turning back of the pursuers, and afterwards ye go on your way.'
 
-<sup>17</sup> And the men say unto her, 'We are acquitted of this thine oath which thou hast caused us to swear:
+**¹⁷** And the men say unto her, 'We are acquitted of this thine oath which thou hast caused us to swear:
 
-<sup>18</sup> lo, we are coming into the land, this line of scarlet thread thou dost bind to the window by which thou hast caused us to go down, and thy father, and thy mother, and thy brethren, and all the house of thy father thou dost gather unto thee, to the house;
+**¹⁸** lo, we are coming into the land, this line of scarlet thread thou dost bind to the window by which thou hast caused us to go down, and thy father, and thy mother, and thy brethren, and all the house of thy father thou dost gather unto thee, to the house;
 
-<sup>19</sup> and it hath been, any one who goeth out from the doors of thy house without, his blood [is] on his head, and we are innocent; and any one who is with thee in the house, his blood [is] on our head, if a hand is on him;
+**¹⁹** and it hath been, any one who goeth out from the doors of thy house without, his blood [is] on his head, and we are innocent; and any one who is with thee in the house, his blood [is] on our head, if a hand is on him;
 
-<sup>20</sup> and if thou declare this our matter, then we have been acquitted from thine oath which thou hast caused us to swear.'
+**²⁰** and if thou declare this our matter, then we have been acquitted from thine oath which thou hast caused us to swear.'
 
-<sup>21</sup> And she saith, 'According unto your words, so it [is];' and she sendeth them away, and they go; and she bindeth the scarlet line to the window.
+**²¹** And she saith, 'According unto your words, so it [is];' and she sendeth them away, and they go; and she bindeth the scarlet line to the window.
 
-<sup>22</sup> And they go, and come in to the mountain, and abide there three days until the pursuers have turned back; and the pursuers seek in all the way, and have not found.
+**²²** And they go, and come in to the mountain, and abide there three days until the pursuers have turned back; and the pursuers seek in all the way, and have not found.
 
-<sup>23</sup> And the two men turn back, and come down from the hill, and pass over, and come in unto Joshua son of Nun, and recount to him all that hath come upon them;
+**²³** And the two men turn back, and come down from the hill, and pass over, and come in unto Joshua son of Nun, and recount to him all that hath come upon them;
 
-<sup>24</sup> and they say unto Joshua, 'Surely Jehovah hath given into our hand all the land; and also, all the inhabitants of the land have melted at our presence.'
+**²⁴** and they say unto Joshua, 'Surely Jehovah hath given into our hand all the land; and also, all the inhabitants of the land have melted at our presence.'

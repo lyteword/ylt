@@ -1,77 +1,77 @@
 # Chapter 30
 
-<sup>1</sup> 'And thou hast made an altar [for] making perfume; [of] shittim wood thou dost make it;
+**¹** 'And thou hast made an altar [for] making perfume; [of] shittim wood thou dost make it;
 
-<sup>2</sup> a cubit its length, and a cubit its breadth, (it is square), and two cubits its height; its horns [are] of the same.
+**²** a cubit its length, and a cubit its breadth, (it is square), and two cubits its height; its horns [are] of the same.
 
-<sup>3</sup> 'And thou hast overlaid it with pure gold, its top, and its sides round about, and its horns; and thou hast made to it a crown of gold round about;
+**³** 'And thou hast overlaid it with pure gold, its top, and its sides round about, and its horns; and thou hast made to it a crown of gold round about;
 
-<sup>4</sup> and two rings of gold thou dost make to it under its crown; on its two ribs thou dost make [them], on its two sides, and they have become places for staves, to bear it with them.
+**⁴** and two rings of gold thou dost make to it under its crown; on its two ribs thou dost make [them], on its two sides, and they have become places for staves, to bear it with them.
 
-<sup>5</sup> 'And thou hast made the staves of shittim wood, and hast overlaid them with gold;
+**⁵** 'And thou hast made the staves of shittim wood, and hast overlaid them with gold;
 
-<sup>6</sup> and thou hast put it before the vail, which [is] by the ark of the testimony, before the mercy-seat which [is] over the testimony, whither I am met with thee.
+**⁶** and thou hast put it before the vail, which [is] by the ark of the testimony, before the mercy-seat which [is] over the testimony, whither I am met with thee.
 
-<sup>7</sup> 'And Aaron hath made perfume on it, perfume of spices, morning by morning; in his making the lamps right he doth perfume it,
+**⁷** 'And Aaron hath made perfume on it, perfume of spices, morning by morning; in his making the lamps right he doth perfume it,
 
-<sup>8</sup> and in Aaron's causing the lamps to go up between the evenings, he doth perfume it; a continual perfume before Jehovah to your generations.
+**⁸** and in Aaron's causing the lamps to go up between the evenings, he doth perfume it; a continual perfume before Jehovah to your generations.
 
-<sup>9</sup> 'Ye do not cause strange perfume to go up upon it, and burnt-offering, and present, and libation ye do not pour out on it;
+**⁹** 'Ye do not cause strange perfume to go up upon it, and burnt-offering, and present, and libation ye do not pour out on it;
 
-<sup>10</sup> and Aaron hath made atonement on its horns, once in a year, by the blood of the sin-offering of atonements; once in a year doth he make atonement for it, to your generations; it [is] most holy to Jehovah.'
+**¹⁰** and Aaron hath made atonement on its horns, once in a year, by the blood of the sin-offering of atonements; once in a year doth he make atonement for it, to your generations; it [is] most holy to Jehovah.'
 
-<sup>11</sup> And Jehovah speaketh unto Moses, saying,
+**¹¹** And Jehovah speaketh unto Moses, saying,
 
-<sup>12</sup> 'When thou takest up the sum of the sons of Israel for their numbers, then they have given each an atonement [for] his soul to Jehovah in their being numbered, and there is no plague among them in their being numbered.
+**¹²** 'When thou takest up the sum of the sons of Israel for their numbers, then they have given each an atonement [for] his soul to Jehovah in their being numbered, and there is no plague among them in their being numbered.
 
-<sup>13</sup> 'This they do give, every one passing over unto those numbered, half a shekel, by the shekel of the sanctuary (the shekel [is] twenty gerahs); half a shekel [is] the heave-offering to Jehovah;
+**¹³** 'This they do give, every one passing over unto those numbered, half a shekel, by the shekel of the sanctuary (the shekel [is] twenty gerahs); half a shekel [is] the heave-offering to Jehovah;
 
-<sup>14</sup> every one passing over unto those numbered, from a son of twenty years and upwards, doth give the heave-offering of Jehovah;
+**¹⁴** every one passing over unto those numbered, from a son of twenty years and upwards, doth give the heave-offering of Jehovah;
 
-<sup>15</sup> the rich doth not multiply, and the poor doth not diminish from the half-shekel, to give the heave-offering of Jehovah, to make atonement for your souls.
+**¹⁵** the rich doth not multiply, and the poor doth not diminish from the half-shekel, to give the heave-offering of Jehovah, to make atonement for your souls.
 
-<sup>16</sup> 'And thou hast taken the atonement-money from the sons of Israel, and hast given it for the service of the tent of meeting; and it hath been to the sons of Israel for a memorial before Jehovah, to make atonement for your souls.'
+**¹⁶** 'And thou hast taken the atonement-money from the sons of Israel, and hast given it for the service of the tent of meeting; and it hath been to the sons of Israel for a memorial before Jehovah, to make atonement for your souls.'
 
-<sup>17</sup> And Jehovah speaketh unto Moses, saying,
+**¹⁷** And Jehovah speaketh unto Moses, saying,
 
-<sup>18</sup> 'And thou hast made a laver of brass (and its base of brass), for washing; and thou hast put it between the tent of meeting and the altar, and hast put water there;
+**¹⁸** 'And thou hast made a laver of brass (and its base of brass), for washing; and thou hast put it between the tent of meeting and the altar, and hast put water there;
 
-<sup>19</sup> and Aaron and his sons have washed at it their hands and their feet,
+**¹⁹** and Aaron and his sons have washed at it their hands and their feet,
 
-<sup>20</sup> in their going in unto the tent of meeting they wash [with] water, and die not; or in their drawing nigh unto the altar to minister, to perfume a fire-offering to Jehovah,
+**²⁰** in their going in unto the tent of meeting they wash [with] water, and die not; or in their drawing nigh unto the altar to minister, to perfume a fire-offering to Jehovah,
 
-<sup>21</sup> then they have washed their hands and their feet, and they die not, and it hath been to them a statute age-during, to him and to his seed to their generations.'
+**²¹** then they have washed their hands and their feet, and they die not, and it hath been to them a statute age-during, to him and to his seed to their generations.'
 
-<sup>22</sup> And Jehovah speaketh unto Moses, saying,
+**²²** And Jehovah speaketh unto Moses, saying,
 
-<sup>23</sup> 'And thou, take to thyself principal spices, wild honey five hundred [shekels]; and spice-cinnamon, the half of that, two hundred and fifty; and spice-cane two hundred and fifty;
+**²³** 'And thou, take to thyself principal spices, wild honey five hundred [shekels]; and spice-cinnamon, the half of that, two hundred and fifty; and spice-cane two hundred and fifty;
 
-<sup>24</sup> and cassia five hundred, by the shekel of the sanctuary, and olive oil a hin;
+**²⁴** and cassia five hundred, by the shekel of the sanctuary, and olive oil a hin;
 
-<sup>25</sup> and thou hast made it a holy anointing oil, a compound mixture, work of a compounder; it is a holy anointing oil.
+**²⁵** and thou hast made it a holy anointing oil, a compound mixture, work of a compounder; it is a holy anointing oil.
 
-<sup>26</sup> 'And thou hast anointed with it the tent of meeting, and the ark of the testimony,
+**²⁶** 'And thou hast anointed with it the tent of meeting, and the ark of the testimony,
 
-<sup>27</sup> and the table and all its vessels, and the candlestick and its vessels, and the altar of perfume,
+**²⁷** and the table and all its vessels, and the candlestick and its vessels, and the altar of perfume,
 
-<sup>28</sup> and the altar of burnt-offering and all its vessels, and the laver and its base;
+**²⁸** and the altar of burnt-offering and all its vessels, and the laver and its base;
 
-<sup>29</sup> and thou hast sanctified them, and they have been most holy; all that is coming against them is holy;
+**²⁹** and thou hast sanctified them, and they have been most holy; all that is coming against them is holy;
 
-<sup>30</sup> and Aaron and his sons thou dost anoint, and hast sanctified them for being priests to Me.
+**³⁰** and Aaron and his sons thou dost anoint, and hast sanctified them for being priests to Me.
 
-<sup>31</sup> 'And unto the sons of Israel thou dost speak, saying, A holy anointing oil is this to Me, to your generations;
+**³¹** 'And unto the sons of Israel thou dost speak, saying, A holy anointing oil is this to Me, to your generations;
 
-<sup>32</sup> on flesh of man it is not poured, and with its proper proportion ye make none like it; it [is] holy; it is holy to you;
+**³²** on flesh of man it is not poured, and with its proper proportion ye make none like it; it [is] holy; it is holy to you;
 
-<sup>33</sup> a man who compoundeth [any] like it, or who putteth of it on a stranger — hath even been cut off from his people.'
+**³³** a man who compoundeth [any] like it, or who putteth of it on a stranger — hath even been cut off from his people.'
 
-<sup>34</sup> And Jehovah saith unto Moses, 'Take to thee spices, stacte, and onycha, and galbanum, spices and pure frankincense; they are part for part;
+**³⁴** And Jehovah saith unto Moses, 'Take to thee spices, stacte, and onycha, and galbanum, spices and pure frankincense; they are part for part;
 
-<sup>35</sup> and thou hast made it a perfume, a compound, work of a compounder, salted, pure, holy;
+**³⁵** and thou hast made it a perfume, a compound, work of a compounder, salted, pure, holy;
 
-<sup>36</sup> and thou hast beaten [some] of it small, and hast put of it before the testimony, in the tent of meeting, whither I am met with thee; most holy it is to you.
+**³⁶** and thou hast beaten [some] of it small, and hast put of it before the testimony, in the tent of meeting, whither I am met with thee; most holy it is to you.
 
-<sup>37</sup> 'As to the perfume which thou makest, with its proper proportion ye do not make to yourselves, holy it is to thee to Jehovah;
+**³⁷** 'As to the perfume which thou makest, with its proper proportion ye do not make to yourselves, holy it is to thee to Jehovah;
 
-<sup>38</sup> a man who maketh [any] like it — to be refreshed by it — hath even been cut off from his people.'
+**³⁸** a man who maketh [any] like it — to be refreshed by it — hath even been cut off from his people.'

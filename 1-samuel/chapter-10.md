@@ -1,55 +1,55 @@
 # Chapter 10
 
-<sup>1</sup> And Samuel taketh the vial of the oil, and poureth on his head, and kisseth him, and saith, 'Is it not because Jehovah hath appointed thee over His inheritance for leader?
+**¹** And Samuel taketh the vial of the oil, and poureth on his head, and kisseth him, and saith, 'Is it not because Jehovah hath appointed thee over His inheritance for leader?
 
-<sup>2</sup> In thy going to-day from me — then thou hast found two men by the grave of Rachel, in the border of Benjamin, at Zelzah, and they have said unto thee, The asses have been found which thou hast gone to seek; and lo, thy father hath left the matter of the asses, and hath sorrowed for you, saying, What do I do for my son?
+**²** In thy going to-day from me — then thou hast found two men by the grave of Rachel, in the border of Benjamin, at Zelzah, and they have said unto thee, The asses have been found which thou hast gone to seek; and lo, thy father hath left the matter of the asses, and hath sorrowed for you, saying, What do I do for my son?
 
-<sup>3</sup> 'And thou hast passed on thence, and beyond, and hast come in unto the oak of Tabor, and found thee there have three men going up unto God to Beth-El, one bearing three kids, and one bearing three cakes of bread, and one bearing a bottle of wine,
+**³** 'And thou hast passed on thence, and beyond, and hast come in unto the oak of Tabor, and found thee there have three men going up unto God to Beth-El, one bearing three kids, and one bearing three cakes of bread, and one bearing a bottle of wine,
 
-<sup>4</sup> and they have asked of thee of welfare, and given to thee two loaves, and thou hast received from their hand.
+**⁴** and they have asked of thee of welfare, and given to thee two loaves, and thou hast received from their hand.
 
-<sup>5</sup> 'Afterwards thou dost come unto the hill of God, where the garrison of the Philistines [is], and it cometh to pass, at thy coming in thither to the city, that thou hast met a band of prophets coming down from the high place, and before them psaltery, and tabret, and pipe, and harp, and they are prophesying;
+**⁵** 'Afterwards thou dost come unto the hill of God, where the garrison of the Philistines [is], and it cometh to pass, at thy coming in thither to the city, that thou hast met a band of prophets coming down from the high place, and before them psaltery, and tabret, and pipe, and harp, and they are prophesying;
 
-<sup>6</sup> and prospered over thee hath the Spirit of Jehovah, and thou hast prophesied with them, and hast been turned to another man;
+**⁶** and prospered over thee hath the Spirit of Jehovah, and thou hast prophesied with them, and hast been turned to another man;
 
-<sup>7</sup> and it hath been, when these signs come to thee — do for thyself as thy hand findeth, for God [is] with thee.
+**⁷** and it hath been, when these signs come to thee — do for thyself as thy hand findeth, for God [is] with thee.
 
-<sup>8</sup> 'And thou hast gone down before me to Gilgal, and lo, I am going down unto thee, to cause to ascend burnt-offerings, to sacrifice sacrifices of peace-offerings; seven days thou dost wait till my coming in unto thee, and I have made known to thee that which thou dost do.'
+**⁸** 'And thou hast gone down before me to Gilgal, and lo, I am going down unto thee, to cause to ascend burnt-offerings, to sacrifice sacrifices of peace-offerings; seven days thou dost wait till my coming in unto thee, and I have made known to thee that which thou dost do.'
 
-<sup>9</sup> And it hath been, at his turning his shoulder to go from Samuel, that God turneth to him another heart, and all these signs come on that day,
+**⁹** And it hath been, at his turning his shoulder to go from Samuel, that God turneth to him another heart, and all these signs come on that day,
 
-<sup>10</sup> and they come in thither to the height, and lo, a band of prophets — to meet him, and prosper over him doth the Spirit of God, and he prophesieth in their midst.
+**¹⁰** and they come in thither to the height, and lo, a band of prophets — to meet him, and prosper over him doth the Spirit of God, and he prophesieth in their midst.
 
-<sup>11</sup> And it cometh to pass, all his acquaintance heretofore, see, and lo, with prophets he hath prophesied, and the people say one unto another, 'What [is] this hath happened to the son of Kish? is Saul also among the prophets?'
+**¹¹** And it cometh to pass, all his acquaintance heretofore, see, and lo, with prophets he hath prophesied, and the people say one unto another, 'What [is] this hath happened to the son of Kish? is Saul also among the prophets?'
 
-<sup>12</sup> And a man thence answereth and saith, 'And who [is] their father?' therefore it hath been for a simile, 'Is Saul also among the prophets?'
+**¹²** And a man thence answereth and saith, 'And who [is] their father?' therefore it hath been for a simile, 'Is Saul also among the prophets?'
 
-<sup>13</sup> And he ceaseth from prophesying, and cometh in to the high place,
+**¹³** And he ceaseth from prophesying, and cometh in to the high place,
 
-<sup>14</sup> and the uncle of Saul saith unto him, and unto his young man, 'Whither went ye?' and he saith, 'To seek the asses; and we see that they are not, and we come in unto Samuel.'
+**¹⁴** and the uncle of Saul saith unto him, and unto his young man, 'Whither went ye?' and he saith, 'To seek the asses; and we see that they are not, and we come in unto Samuel.'
 
-<sup>15</sup> And the uncle of Saul saith, 'Declare, I pray thee, to me, what Samuel said to you?'
+**¹⁵** And the uncle of Saul saith, 'Declare, I pray thee, to me, what Samuel said to you?'
 
-<sup>16</sup> And Saul saith unto his uncle, 'He certainly declared to us that the asses were found;' and of the matter of the kingdom he hath not declared to him that which Samuel said.
+**¹⁶** And Saul saith unto his uncle, 'He certainly declared to us that the asses were found;' and of the matter of the kingdom he hath not declared to him that which Samuel said.
 
-<sup>17</sup> And Samuel calleth the people unto Jehovah to Mizpeh,
+**¹⁷** And Samuel calleth the people unto Jehovah to Mizpeh,
 
-<sup>18</sup> and saith unto the sons of Israel, 'Thus said Jehovah, God of Israel, I have brought up Israel out of Egypt, and I deliver you out of the hand of the Egyptians, and out of the hand of all the kingdoms who are oppressing you;
+**¹⁸** and saith unto the sons of Israel, 'Thus said Jehovah, God of Israel, I have brought up Israel out of Egypt, and I deliver you out of the hand of the Egyptians, and out of the hand of all the kingdoms who are oppressing you;
 
-<sup>19</sup> and ye to-day have rejected your God, who [is] Himself your saviour out of all your evils and your distresses, and ye say, 'Nay, but — a king thou dost set over us; and now, station yourselves before Jehovah, by your tribes, and by your thousands.'
+**¹⁹** and ye to-day have rejected your God, who [is] Himself your saviour out of all your evils and your distresses, and ye say, 'Nay, but — a king thou dost set over us; and now, station yourselves before Jehovah, by your tribes, and by your thousands.'
 
-<sup>20</sup> And Samuel bringeth near the whole tribes of Israel, and the tribe of Benjamin is captured,
+**²⁰** And Samuel bringeth near the whole tribes of Israel, and the tribe of Benjamin is captured,
 
-<sup>21</sup> and he bringeth near the tribe of Benjamin by its families, and the family of Matri is captured, and Saul son of Kish is captured, and they seek him, and he hath not been found.
+**²¹** and he bringeth near the tribe of Benjamin by its families, and the family of Matri is captured, and Saul son of Kish is captured, and they seek him, and he hath not been found.
 
-<sup>22</sup> And they ask again at Jehovah, 'Hath the man yet come hither?' and Jehovah saith, 'Lo, he hath been hidden near the vessels.'
+**²²** And they ask again at Jehovah, 'Hath the man yet come hither?' and Jehovah saith, 'Lo, he hath been hidden near the vessels.'
 
-<sup>23</sup> And they run and bring him thence, and he stationed himself in the midst of the people, and he is higher than any of the people from his shoulder and upward.
+**²³** And they run and bring him thence, and he stationed himself in the midst of the people, and he is higher than any of the people from his shoulder and upward.
 
-<sup>24</sup> And Samuel saith unto all the people, 'Have ye seen him on whom Jehovah hath fixed, for there is none like him among all the people?' And all the people shout, and say, 'Let the king live!'
+**²⁴** And Samuel saith unto all the people, 'Have ye seen him on whom Jehovah hath fixed, for there is none like him among all the people?' And all the people shout, and say, 'Let the king live!'
 
-<sup>25</sup> And Samuel speaketh unto the people the right of the kingdom, and writeth in a book, and placeth before Jehovah; and Samuel sendeth all the people away, each to his house.
+**²⁵** And Samuel speaketh unto the people the right of the kingdom, and writeth in a book, and placeth before Jehovah; and Samuel sendeth all the people away, each to his house.
 
-<sup>26</sup> And also Saul hath gone to his house, to Gibeah, and the force go with him whose heart God hath touched;
+**²⁶** And also Saul hath gone to his house, to Gibeah, and the force go with him whose heart God hath touched;
 
-<sup>27</sup> and the sons of worthlessness have said, 'What! this one doth save us!' and they despise him, and have not brought to him a present; and he is as one deaf.
+**²⁷** and the sons of worthlessness have said, 'What! this one doth save us!' and they despise him, and have not brought to him a present; and he is as one deaf.

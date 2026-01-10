@@ -1,45 +1,45 @@
 # Chapter 8
 
-<sup>1</sup> And it cometh to pass, when Samuel [is] aged, that he maketh his sons judges over Israel.
+**¹** And it cometh to pass, when Samuel [is] aged, that he maketh his sons judges over Israel.
 
-<sup>2</sup> And the name of his first-born son is Joel, and the name of his second Abiah, judges in Beer-Sheba:
+**²** And the name of his first-born son is Joel, and the name of his second Abiah, judges in Beer-Sheba:
 
-<sup>3</sup> and his sons have not walked in his ways, and turn aside after the dishonest gain, and take a bribe, and turn aside judgment.
+**³** and his sons have not walked in his ways, and turn aside after the dishonest gain, and take a bribe, and turn aside judgment.
 
-<sup>4</sup> And all the elders of Israel gather themselves together, and come in unto Samuel to Ramath,
+**⁴** And all the elders of Israel gather themselves together, and come in unto Samuel to Ramath,
 
-<sup>5</sup> and say unto him, 'Lo, thou hast become aged, and thy sons have not walked in thy ways; now, appoint to us a king, to judge us, like all the nations.'
+**⁵** and say unto him, 'Lo, thou hast become aged, and thy sons have not walked in thy ways; now, appoint to us a king, to judge us, like all the nations.'
 
-<sup>6</sup> And the thing is evil in the eyes of Samuel, when they have said, 'Give to us a king to judge us;' and Samuel prayeth unto Jehovah.
+**⁶** And the thing is evil in the eyes of Samuel, when they have said, 'Give to us a king to judge us;' and Samuel prayeth unto Jehovah.
 
-<sup>7</sup> And Jehovah saith unto Samuel, 'Hearken to the voice of the people, to all that they say unto thee, for thee they have not rejected, but Me they have rejected, from reigning over them.
+**⁷** And Jehovah saith unto Samuel, 'Hearken to the voice of the people, to all that they say unto thee, for thee they have not rejected, but Me they have rejected, from reigning over them.
 
-<sup>8</sup> According to all the works that they have done from the day of My bringing them up out of Egypt, even unto this day, when they forsake Me, and serve other gods — so they are doing also to thee.
+**⁸** According to all the works that they have done from the day of My bringing them up out of Egypt, even unto this day, when they forsake Me, and serve other gods — so they are doing also to thee.
 
-<sup>9</sup> And now, hearken to their voice; only, surely thou dost certainly protest to them, and hast declared to them the custom of the king who doth reign over them.'
+**⁹** And now, hearken to their voice; only, surely thou dost certainly protest to them, and hast declared to them the custom of the king who doth reign over them.'
 
-<sup>10</sup> And Samuel speaketh all the words of Jehovah unto the people who are asking from him a king,
+**¹⁰** And Samuel speaketh all the words of Jehovah unto the people who are asking from him a king,
 
-<sup>11</sup> and saith, 'This is the custom of the king who doth reign over you: Your sons he doth take, and hath appointed for himself among his chariots, and among his horsemen, and they have run before his chariots;
+**¹¹** and saith, 'This is the custom of the king who doth reign over you: Your sons he doth take, and hath appointed for himself among his chariots, and among his horsemen, and they have run before his chariots;
 
-<sup>12</sup> also to appoint for himself heads of thousands, and heads of fifties; also to plow his plowing, and to reap his reaping; and to make instruments of his war, and instruments of his charioteer.
+**¹²** also to appoint for himself heads of thousands, and heads of fifties; also to plow his plowing, and to reap his reaping; and to make instruments of his war, and instruments of his charioteer.
 
-<sup>13</sup> 'And your daughters he doth take for perfumers, and for cooks, and for bakers;
+**¹³** 'And your daughters he doth take for perfumers, and for cooks, and for bakers;
 
-<sup>14</sup> and your fields, and your vineyards, and your olive-yards — the best — he doth take, and hath given to his servants.
+**¹⁴** and your fields, and your vineyards, and your olive-yards — the best — he doth take, and hath given to his servants.
 
-<sup>15</sup> And your seed and your vineyards he doth tithe, and hath given to his eunuchs, and to his servants.
+**¹⁵** And your seed and your vineyards he doth tithe, and hath given to his eunuchs, and to his servants.
 
-<sup>16</sup> And your men-servants, and your maid-servants, and your young men — the best, and your asses, he doth take, and hath prepared for his own work;
+**¹⁶** And your men-servants, and your maid-servants, and your young men — the best, and your asses, he doth take, and hath prepared for his own work;
 
-<sup>17</sup> your flock he doth tithe, and ye are to him for servants.
+**¹⁷** your flock he doth tithe, and ye are to him for servants.
 
-<sup>18</sup> And ye have cried out in that day because of the king whom ye have chosen for yourselves, and Jehovah doth not answer you in that day.'
+**¹⁸** And ye have cried out in that day because of the king whom ye have chosen for yourselves, and Jehovah doth not answer you in that day.'
 
-<sup>19</sup> And the people refuse to hearken to the voice of Samuel, and say, 'Nay, but a king is over us,
+**¹⁹** And the people refuse to hearken to the voice of Samuel, and say, 'Nay, but a king is over us,
 
-<sup>20</sup> and we have been, even we, like all the nations; and our king hath judged us, and gone out before us, and fought our battles.'
+**²⁰** and we have been, even we, like all the nations; and our king hath judged us, and gone out before us, and fought our battles.'
 
-<sup>21</sup> And Samuel heareth all the words of the people, and speaketh them in the ears of Jehovah;
+**²¹** And Samuel heareth all the words of the people, and speaketh them in the ears of Jehovah;
 
-<sup>22</sup> and Jehovah saith unto Samuel, 'Hearken to their voice, and thou hast caused to reign over them a king.' And Samuel saith unto the men of Israel, 'Go ye each to his city.'
+**²²** and Jehovah saith unto Samuel, 'Hearken to their voice, and thou hast caused to reign over them a king.' And Samuel saith unto the men of Israel, 'Go ye each to his city.'

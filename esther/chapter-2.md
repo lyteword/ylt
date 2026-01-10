@@ -1,47 +1,47 @@
 # Chapter 2
 
-<sup>1</sup> After these things, at the ceasing of the fury of the king Ahasuerus, he hath remembered Vashti, and that which she did, and that which hath been decreed concerning her;
+**¹** After these things, at the ceasing of the fury of the king Ahasuerus, he hath remembered Vashti, and that which she did, and that which hath been decreed concerning her;
 
-<sup>2</sup> and servants of the king, his ministers, say, 'Let them seek for the king young women, virgins, of good appearance,
+**²** and servants of the king, his ministers, say, 'Let them seek for the king young women, virgins, of good appearance,
 
-<sup>3</sup> and the king doth appoint inspectors in all provinces of his kingdom, and they gather every young woman — virgin, of good appearance — unto Shushan the palace, unto the house of the women, unto the hand of Hege eunuch of the king, keeper of the women, and to give their purifications,
+**³** and the king doth appoint inspectors in all provinces of his kingdom, and they gather every young woman — virgin, of good appearance — unto Shushan the palace, unto the house of the women, unto the hand of Hege eunuch of the king, keeper of the women, and to give their purifications,
 
-<sup>4</sup> and the young woman who is good in the eyes of the king doth reign instead of Vashti;' and the thing is good in the eyes of the king, and he doth so.
+**⁴** and the young woman who is good in the eyes of the king doth reign instead of Vashti;' and the thing is good in the eyes of the king, and he doth so.
 
-<sup>5</sup> A man, a Jew, there hath been in Shushan the palace, and his name [is] Mordecai son of Jair, son of Shimei, son of Kish, a Benjamite —
+**⁵** A man, a Jew, there hath been in Shushan the palace, and his name [is] Mordecai son of Jair, son of Shimei, son of Kish, a Benjamite —
 
-<sup>6</sup> who had been removed from Jerusalem with the removal that was removed with Jeconiah king of Judah, whom Nebuchadnezzar king of Babylon removed —
+**⁶** who had been removed from Jerusalem with the removal that was removed with Jeconiah king of Judah, whom Nebuchadnezzar king of Babylon removed —
 
-<sup>7</sup> and he is supporting Hadassah — she [is] Esther — daughter of his uncle, for she hath neither father nor mother, and the young woman [is] of fair form, and of good appearance, and at the death of her father and her mother hath Mordecai taken her to him for a daughter.
+**⁷** and he is supporting Hadassah — she [is] Esther — daughter of his uncle, for she hath neither father nor mother, and the young woman [is] of fair form, and of good appearance, and at the death of her father and her mother hath Mordecai taken her to him for a daughter.
 
-<sup>8</sup> And it cometh to pass, in the word of the king, even his law, being heard, and in many young women being gathered unto Shushan the palace, unto the hand of Hegai, that Esther is taken unto the house of the king, unto the hand of Hegai, keeper of the women,
+**⁸** And it cometh to pass, in the word of the king, even his law, being heard, and in many young women being gathered unto Shushan the palace, unto the hand of Hegai, that Esther is taken unto the house of the king, unto the hand of Hegai, keeper of the women,
 
-<sup>9</sup> and the young woman is good in his eyes, and she receiveth kindness before him, and he hasteneth her purifications and her portions — to give to her, and the seven young women who are provided — to give to her, from the house of the king, and he changeth her and her young women to a good [place in] the house of the women.
+**⁹** and the young woman is good in his eyes, and she receiveth kindness before him, and he hasteneth her purifications and her portions — to give to her, and the seven young women who are provided — to give to her, from the house of the king, and he changeth her and her young women to a good [place in] the house of the women.
 
-<sup>10</sup> Esther hath not declared her people, and her kindred, for Mordecai hath laid a charge on her that she doth not declare [it];
+**¹⁰** Esther hath not declared her people, and her kindred, for Mordecai hath laid a charge on her that she doth not declare [it];
 
-<sup>11</sup> and during every day Mordecai is walking up and down before the court of the house of the women to know the welfare of Esther, and what is done with her.
+**¹¹** and during every day Mordecai is walking up and down before the court of the house of the women to know the welfare of Esther, and what is done with her.
 
-<sup>12</sup> And in the drawing nigh of the turn of each young woman to come in unto the king Ahasuerus, at the end of there being to her — according to the law of the women — twelve months, for so they fulfil the days of their purifications; six months with oil of myrrh, and six months with spices, and with the purifications of women,
+**¹²** And in the drawing nigh of the turn of each young woman to come in unto the king Ahasuerus, at the end of there being to her — according to the law of the women — twelve months, for so they fulfil the days of their purifications; six months with oil of myrrh, and six months with spices, and with the purifications of women,
 
-<sup>13</sup> and with this the young woman hath come in unto the king, all that she saith is given to her, to go in with her, out of the house of the women, unto the house of the king;
+**¹³** and with this the young woman hath come in unto the king, all that she saith is given to her, to go in with her, out of the house of the women, unto the house of the king;
 
-<sup>14</sup> in the evening she hath gone in, and in the morning she hath turned back unto the second house of the women, unto the hand of Shaashgaz eunuch of the king, keeper of the concubines; she cometh not in any more unto the king except the king hath delighted in her, and she hath been called by name.
+**¹⁴** in the evening she hath gone in, and in the morning she hath turned back unto the second house of the women, unto the hand of Shaashgaz eunuch of the king, keeper of the concubines; she cometh not in any more unto the king except the king hath delighted in her, and she hath been called by name.
 
-<sup>15</sup> And in the drawing nigh of the turn of Esther — daughter of Abihail, uncle of Mordecai, whom he had taken to him for a daughter — to come in unto the king, she hath not sought a thing except that which Hegai eunuch of the king, keeper of the women, saith, and Esther is receiving grace in the eyes of all seeing her.
+**¹⁵** And in the drawing nigh of the turn of Esther — daughter of Abihail, uncle of Mordecai, whom he had taken to him for a daughter — to come in unto the king, she hath not sought a thing except that which Hegai eunuch of the king, keeper of the women, saith, and Esther is receiving grace in the eyes of all seeing her.
 
-<sup>16</sup> And Esther is taken unto the king Ahasuerus, unto his royal house, in the tenth month — it [is] the month of Tebeth — in the seventh year of his reign,
+**¹⁶** And Esther is taken unto the king Ahasuerus, unto his royal house, in the tenth month — it [is] the month of Tebeth — in the seventh year of his reign,
 
-<sup>17</sup> and the king loveth Esther above all the women, and she receiveth grace and kindness before him above all the virgins, and he setteth a royal crown on her head, and causeth her to reign instead of Vashti,
+**¹⁷** and the king loveth Esther above all the women, and she receiveth grace and kindness before him above all the virgins, and he setteth a royal crown on her head, and causeth her to reign instead of Vashti,
 
-<sup>18</sup> and the king maketh a great banquet to all his heads and his servants — the banquet of Esther — and a release to the provinces hath made, and giveth gifts as a memorial of the king.
+**¹⁸** and the king maketh a great banquet to all his heads and his servants — the banquet of Esther — and a release to the provinces hath made, and giveth gifts as a memorial of the king.
 
-<sup>19</sup> And in the virgins being gathered a second time, then Mordecai is sitting in the gate of the king;
+**¹⁹** And in the virgins being gathered a second time, then Mordecai is sitting in the gate of the king;
 
-<sup>20</sup> Esther is not declaring her kindred and her people, as Mordecai hath laid a charge upon her, and the saying of Mordecai Esther is doing as when she was truly with him.
+**²⁰** Esther is not declaring her kindred and her people, as Mordecai hath laid a charge upon her, and the saying of Mordecai Esther is doing as when she was truly with him.
 
-<sup>21</sup> In those days, when Mordecai is sitting in the gate of the king, hath Bigthan been wroth, and Teresh, (two of the eunuchs of the king, the keepers of the threshold,) and they seek to put forth a hand on king Ahasuerus,
+**²¹** In those days, when Mordecai is sitting in the gate of the king, hath Bigthan been wroth, and Teresh, (two of the eunuchs of the king, the keepers of the threshold,) and they seek to put forth a hand on king Ahasuerus,
 
-<sup>22</sup> and the thing is known to Mordecai, and he declareth [it] to Esther the queen, and Esther speaketh to the king in the name of Mordecai,
+**²²** and the thing is known to Mordecai, and he declareth [it] to Esther the queen, and Esther speaketh to the king in the name of Mordecai,
 
-<sup>23</sup> and the thing is sought out, and found, and they are hanged both of them on a tree, and it is written in the book of the Chronicles before the king.
+**²³** and the thing is sought out, and found, and they are hanged both of them on a tree, and it is written in the book of the Chronicles before the king.

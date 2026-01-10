@@ -1,81 +1,81 @@
 # Chapter 11
 
-<sup>1</sup> And Jephthah the Gileadite hath been a mighty man of valour, and he [is] son of a woman, a harlot; and Gilead begetteth Jephthah,
+**¹** And Jephthah the Gileadite hath been a mighty man of valour, and he [is] son of a woman, a harlot; and Gilead begetteth Jephthah,
 
-<sup>2</sup> and the wife of Gilead beareth to him sons, and the wife's sons grow up and cast out Jephthah, and say to him, 'Thou dost not inherit in the house of our father; for son of another woman [art] thou.'
+**²** and the wife of Gilead beareth to him sons, and the wife's sons grow up and cast out Jephthah, and say to him, 'Thou dost not inherit in the house of our father; for son of another woman [art] thou.'
 
-<sup>3</sup> And Jephthah fleeth from the face of his brethren, and dwelleth in the land of Tob; and vain men gather themselves together unto Jephthah, and they go out with him.
+**³** And Jephthah fleeth from the face of his brethren, and dwelleth in the land of Tob; and vain men gather themselves together unto Jephthah, and they go out with him.
 
-<sup>4</sup> And it cometh to pass, after a time, that the Bene-Ammon fight with Israel,
+**⁴** And it cometh to pass, after a time, that the Bene-Ammon fight with Israel,
 
-<sup>5</sup> and it cometh to pass, when the Bene-Ammon have fought with Israel, that the elders of Gilead go to take Jephthah from the land of Tob;
+**⁵** and it cometh to pass, when the Bene-Ammon have fought with Israel, that the elders of Gilead go to take Jephthah from the land of Tob;
 
-<sup>6</sup> and they say unto Jephthah, 'Come, and thou hast been to us for captain, and we fight against the Bene-Ammon.'
+**⁶** and they say unto Jephthah, 'Come, and thou hast been to us for captain, and we fight against the Bene-Ammon.'
 
-<sup>7</sup> And Jephthah saith to the elders of Gilead, 'Have not ye hated me? and ye cast me out from the house of my father, and wherefore have ye come unto me now when ye are in distress?'
+**⁷** And Jephthah saith to the elders of Gilead, 'Have not ye hated me? and ye cast me out from the house of my father, and wherefore have ye come unto me now when ye are in distress?'
 
-<sup>8</sup> and the elders of Gilead say unto Jephthah, 'Therefore, now, we have turned back unto thee; and thou hast gone with us, and fought against the Bene-Ammon, and thou hast been to us for head — to all the inhabitants of Gilead.'
+**⁸** and the elders of Gilead say unto Jephthah, 'Therefore, now, we have turned back unto thee; and thou hast gone with us, and fought against the Bene-Ammon, and thou hast been to us for head — to all the inhabitants of Gilead.'
 
-<sup>9</sup> And Jephthah saith unto the elders of Gilead, 'If ye are taking me back to fight against the Bene-Ammon, and Jehovah hath given them before me — I, am I to you for a head?'
+**⁹** And Jephthah saith unto the elders of Gilead, 'If ye are taking me back to fight against the Bene-Ammon, and Jehovah hath given them before me — I, am I to you for a head?'
 
-<sup>10</sup> And the elders of Gilead say unto Jephthah, 'Jehovah is hearkening between us — if according to thy word we do not so.'
+**¹⁰** And the elders of Gilead say unto Jephthah, 'Jehovah is hearkening between us — if according to thy word we do not so.'
 
-<sup>11</sup> And Jephthah goeth with the elders of Gilead, and the people set him over them for head and for captain, and Jephthah speaketh all his words before Jehovah in Mizpeh.
+**¹¹** And Jephthah goeth with the elders of Gilead, and the people set him over them for head and for captain, and Jephthah speaketh all his words before Jehovah in Mizpeh.
 
-<sup>12</sup> And Jephthah sendeth messengers unto the king of the Bene-Ammon, saying, 'What — to me and to thee, that thou hast come in unto me, to fight in my land.'
+**¹²** And Jephthah sendeth messengers unto the king of the Bene-Ammon, saying, 'What — to me and to thee, that thou hast come in unto me, to fight in my land.'
 
-<sup>13</sup> And the king of the Bene-Ammon saith unto the messengers of Jephthah, 'Because Israel took my land in his coming up out of Egypt, from Arnon, and unto the Jabbok, and unto the Jordan; and now, restore them in peace.'
+**¹³** And the king of the Bene-Ammon saith unto the messengers of Jephthah, 'Because Israel took my land in his coming up out of Egypt, from Arnon, and unto the Jabbok, and unto the Jordan; and now, restore them in peace.'
 
-<sup>14</sup> And Jephthah addeth yet and sendeth messengers unto the king of the Bene-Ammon,
+**¹⁴** And Jephthah addeth yet and sendeth messengers unto the king of the Bene-Ammon,
 
-<sup>15</sup> and saith to him, 'Thus said Jephthah, Israel took not the land of Moab, and the land of the Bene-Ammon,
+**¹⁵** and saith to him, 'Thus said Jephthah, Israel took not the land of Moab, and the land of the Bene-Ammon,
 
-<sup>16</sup> for in their coming up out of Egypt, Israel goeth in the wilderness unto the Red Sea, and cometh in to Kadesh,
+**¹⁶** for in their coming up out of Egypt, Israel goeth in the wilderness unto the Red Sea, and cometh in to Kadesh,
 
-<sup>17</sup> and Israel sendeth messengers unto the king of Edom, saying, Let me pass over, I pray thee, through thy land, and the king of Edom hearkened not; and also unto the king of Moab hath [Israel] sent, and he hath not been willing; and Israel abideth in Kadesh,
+**¹⁷** and Israel sendeth messengers unto the king of Edom, saying, Let me pass over, I pray thee, through thy land, and the king of Edom hearkened not; and also unto the king of Moab hath [Israel] sent, and he hath not been willing; and Israel abideth in Kadesh,
 
-<sup>18</sup> and he goeth through the wilderness, and compasseth the land of Edom and the land of Moab, and cometh in at the rising of the sun of the land of Moab, and they encamp beyond Arnon, and have not come into the border of Moab, for Arnon [is] the border of Moab.
+**¹⁸** and he goeth through the wilderness, and compasseth the land of Edom and the land of Moab, and cometh in at the rising of the sun of the land of Moab, and they encamp beyond Arnon, and have not come into the border of Moab, for Arnon [is] the border of Moab.
 
-<sup>19</sup> 'And Israel sendeth messengers unto Sihon, king of the Amorite, king of Heshbon, and Israel saith to him, Let us pass over, we pray thee, through thy land, unto my place,
+**¹⁹** 'And Israel sendeth messengers unto Sihon, king of the Amorite, king of Heshbon, and Israel saith to him, Let us pass over, we pray thee, through thy land, unto my place,
 
-<sup>20</sup> and Sihon hath not trusted Israel to pass over through his border, and Sihon gathereth all his people, and they encamp in Jahaz, and fight with Israel;
+**²⁰** and Sihon hath not trusted Israel to pass over through his border, and Sihon gathereth all his people, and they encamp in Jahaz, and fight with Israel;
 
-<sup>21</sup> and Jehovah, God of Israel, giveth Sihon and all his people into the hand of Israel, and they smite them, and Israel possesseth all the land of the Amorite, the inhabitant of that land,
+**²¹** and Jehovah, God of Israel, giveth Sihon and all his people into the hand of Israel, and they smite them, and Israel possesseth all the land of the Amorite, the inhabitant of that land,
 
-<sup>22</sup> and they possess all the border of the Amorite from Arnon, and unto the Jabbok, and from the wilderness, and unto the Jordan.
+**²²** and they possess all the border of the Amorite from Arnon, and unto the Jabbok, and from the wilderness, and unto the Jordan.
 
-<sup>23</sup> 'And now, Jehovah, God of Israel, hath dispossessed the Amorite from the presence of His people Israel, and thou wouldest possess it!
+**²³** 'And now, Jehovah, God of Israel, hath dispossessed the Amorite from the presence of His people Israel, and thou wouldest possess it!
 
-<sup>24</sup> That which Chemosh thy god causeth thee to possess — dost thou not possess it? and all that which Jehovah our God hath dispossessed from our presence, — it we do possess.
+**²⁴** That which Chemosh thy god causeth thee to possess — dost thou not possess it? and all that which Jehovah our God hath dispossessed from our presence, — it we do possess.
 
-<sup>25</sup> 'And now, [art] thou at all better than Balak son of Zippor, king of Moab? did he at all strive with Israel? did he at all fight against them?
+**²⁵** 'And now, [art] thou at all better than Balak son of Zippor, king of Moab? did he at all strive with Israel? did he at all fight against them?
 
-<sup>26</sup> In Israel's dwelling in Heshbon and in its towns, and in Aroer and in its towns, and in all the cities which [are] by the sides of Arnon three hundred years — and wherefore have ye not delivered them in that time?
+**²⁶** In Israel's dwelling in Heshbon and in its towns, and in Aroer and in its towns, and in all the cities which [are] by the sides of Arnon three hundred years — and wherefore have ye not delivered them in that time?
 
-<sup>27</sup> And I — I have not sinned against thee, and thou art doing with me evil — to fight against me. Jehovah, the Judge, doth judge to-day between the sons of Israel and the sons of Ammon.'
+**²⁷** And I — I have not sinned against thee, and thou art doing with me evil — to fight against me. Jehovah, the Judge, doth judge to-day between the sons of Israel and the sons of Ammon.'
 
-<sup>28</sup> And the king of the Bene-Ammon hath not hearkened unto the words of Jephthah which he sent unto him,
+**²⁸** And the king of the Bene-Ammon hath not hearkened unto the words of Jephthah which he sent unto him,
 
-<sup>29</sup> and the Spirit of Jehovah is on Jephthah, and he passeth over Gilead and Manasseh, and passeth over Mizpeh of Gilead, and from Mizpeh of Gilead he hath passed over to the Bene-Ammon.
+**²⁹** and the Spirit of Jehovah is on Jephthah, and he passeth over Gilead and Manasseh, and passeth over Mizpeh of Gilead, and from Mizpeh of Gilead he hath passed over to the Bene-Ammon.
 
-<sup>30</sup> And Jephthah voweth a vow to Jehovah, and saith, 'If Thou dost at all give the Bene-Ammon into my hand —
+**³⁰** And Jephthah voweth a vow to Jehovah, and saith, 'If Thou dost at all give the Bene-Ammon into my hand —
 
-<sup>31</sup> then it hath been, that which at all cometh out from the doors of my house to meet me in my turning back in peace from the Bene-Ammon — it hath been to Jehovah, or I have offered up for it — a burnt-offering.'
+**³¹** then it hath been, that which at all cometh out from the doors of my house to meet me in my turning back in peace from the Bene-Ammon — it hath been to Jehovah, or I have offered up for it — a burnt-offering.'
 
-<sup>32</sup> And Jephthah passeth over unto the Bene-Ammon to fight against them, and Jehovah giveth them into his hand,
+**³²** And Jephthah passeth over unto the Bene-Ammon to fight against them, and Jehovah giveth them into his hand,
 
-<sup>33</sup> and he smiteth them from Aroer, and unto thy going in to Minnith, twenty cities, and unto the meadow of the vineyards — a very great smiting; and the Bene-Ammon are humbled at the presence of the sons of Israel.
+**³³** and he smiteth them from Aroer, and unto thy going in to Minnith, twenty cities, and unto the meadow of the vineyards — a very great smiting; and the Bene-Ammon are humbled at the presence of the sons of Israel.
 
-<sup>34</sup> And Jephthah cometh into Mizpeh, unto his house, and lo, his daughter is coming out to meet him with timbrels, and with choruses, and save her alone, he hath none, son or daughter.
+**³⁴** And Jephthah cometh into Mizpeh, unto his house, and lo, his daughter is coming out to meet him with timbrels, and with choruses, and save her alone, he hath none, son or daughter.
 
-<sup>35</sup> And it cometh to pass, when he seeth her, that he rendeth his garments, and saith, 'Alas, my daughter, thou hast caused me greatly to bend, and thou hast been among those troubling me; and I — I have opened my mouth unto Jehovah, and I am not able to turn back.'
+**³⁵** And it cometh to pass, when he seeth her, that he rendeth his garments, and saith, 'Alas, my daughter, thou hast caused me greatly to bend, and thou hast been among those troubling me; and I — I have opened my mouth unto Jehovah, and I am not able to turn back.'
 
-<sup>36</sup> And she saith unto him, 'My father — thou hast opened thy mouth unto Jehovah, do to me as it hath gone out from thy mouth, after that Jehovah hath done for thee vengeance on thine enemies, on the Bene-Ammon.'
+**³⁶** And she saith unto him, 'My father — thou hast opened thy mouth unto Jehovah, do to me as it hath gone out from thy mouth, after that Jehovah hath done for thee vengeance on thine enemies, on the Bene-Ammon.'
 
-<sup>37</sup> And she saith unto her father, 'Let this thing be done to me; desist from me two months, and I go on, and have gone down on the hills, and I weep for my virginity — I and my friends.'
+**³⁷** And she saith unto her father, 'Let this thing be done to me; desist from me two months, and I go on, and have gone down on the hills, and I weep for my virginity — I and my friends.'
 
-<sup>38</sup> And he saith, 'Go;' and he sendeth her away two months, and she goeth, she and her friends, and she weepeth for her virginity on the hills;
+**³⁸** And he saith, 'Go;' and he sendeth her away two months, and she goeth, she and her friends, and she weepeth for her virginity on the hills;
 
-<sup>39</sup> and it cometh to pass at the end of two months that she turneth back unto her father, and he doth to her his vow which he hath vowed, and she knew not a man; and it is a statute in Israel:
+**³⁹** and it cometh to pass at the end of two months that she turneth back unto her father, and he doth to her his vow which he hath vowed, and she knew not a man; and it is a statute in Israel:
 
-<sup>40</sup> from time to time the daughters of Israel go to talk to the daughter of Jephthah the Gileadite, four days in a year.
+**⁴⁰** from time to time the daughters of Israel go to talk to the daughter of Jephthah the Gileadite, four days in a year.

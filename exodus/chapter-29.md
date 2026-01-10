@@ -1,93 +1,93 @@
 # Chapter 29
 
-<sup>1</sup> 'And this [is] the thing which thou dost to them, to hallow them, for being priests to Me: Take one bullock, a son of the herd, and two rams, perfect ones,
+**¹** 'And this [is] the thing which thou dost to them, to hallow them, for being priests to Me: Take one bullock, a son of the herd, and two rams, perfect ones,
 
-<sup>2</sup> and bread unleavened, and cakes unleavened anointed with oil, of fine wheaten flour thou dost make them,
+**²** and bread unleavened, and cakes unleavened anointed with oil, of fine wheaten flour thou dost make them,
 
-<sup>3</sup> and thou hast put them on one basket, and hast brought them near in the basket, also the bullock and the two rams.
+**³** and thou hast put them on one basket, and hast brought them near in the basket, also the bullock and the two rams.
 
-<sup>4</sup> 'And Aaron and his sons thou dost bring near unto the opening of the tent of meeting, and hast bathed them with water;
+**⁴** 'And Aaron and his sons thou dost bring near unto the opening of the tent of meeting, and hast bathed them with water;
 
-<sup>5</sup> and thou hast taken the garments, and hast clothed Aaron with the coat, and the upper robe of the ephod, and the ephod, and the breastplate, and hast girded him with the girdle of the ephod,
+**⁵** and thou hast taken the garments, and hast clothed Aaron with the coat, and the upper robe of the ephod, and the ephod, and the breastplate, and hast girded him with the girdle of the ephod,
 
-<sup>6</sup> and hast set the mitre on his head, and hast put the holy crown on the mitre,
+**⁶** and hast set the mitre on his head, and hast put the holy crown on the mitre,
 
-<sup>7</sup> and hast taken the anointing oil, and hast poured [it] on his head, and hast anointed him.
+**⁷** and hast taken the anointing oil, and hast poured [it] on his head, and hast anointed him.
 
-<sup>8</sup> 'And his sons thou dost bring near, and hast clothed them [with] coats,
+**⁸** 'And his sons thou dost bring near, and hast clothed them [with] coats,
 
-<sup>9</sup> and hast girded them [with] a girdle (Aaron and his sons), and hast bound on them bonnets; and the priesthood hath been theirs by a statute age-during, and thou hast consecrated the hand of Aaron, and the hand of his sons,
+**⁹** and hast girded them [with] a girdle (Aaron and his sons), and hast bound on them bonnets; and the priesthood hath been theirs by a statute age-during, and thou hast consecrated the hand of Aaron, and the hand of his sons,
 
-<sup>10</sup> and hast brought near the bullock before the tent of meeting, and Aaron hath laid — his sons also — their hands on the head of the bullock.
+**¹⁰** and hast brought near the bullock before the tent of meeting, and Aaron hath laid — his sons also — their hands on the head of the bullock.
 
-<sup>11</sup> 'And thou hast slaughtered the bullock before Jehovah, at the opening of the tent of meeting,
+**¹¹** 'And thou hast slaughtered the bullock before Jehovah, at the opening of the tent of meeting,
 
-<sup>12</sup> and hast taken of the blood of the bullock, and hast put [it] on the horns of the altar with thy finger, and all the blood thou dost pour out at the foundation of the altar;
+**¹²** and hast taken of the blood of the bullock, and hast put [it] on the horns of the altar with thy finger, and all the blood thou dost pour out at the foundation of the altar;
 
-<sup>13</sup> and thou hast taken all the fat which is covering the inwards, and the redundance on the liver, and the two kidneys, and the fat which [is] on them, and hast made perfume on the altar;
+**¹³** and thou hast taken all the fat which is covering the inwards, and the redundance on the liver, and the two kidneys, and the fat which [is] on them, and hast made perfume on the altar;
 
-<sup>14</sup> and the flesh of the bullock, and his skin, and his dung, thou dost burn with fire at the outside of the camp; it [is] a sin-offering.
+**¹⁴** and the flesh of the bullock, and his skin, and his dung, thou dost burn with fire at the outside of the camp; it [is] a sin-offering.
 
-<sup>15</sup> 'And the one ram thou dost take, and Aaron and his sons have laid their hands on the head of the ram,
+**¹⁵** 'And the one ram thou dost take, and Aaron and his sons have laid their hands on the head of the ram,
 
-<sup>16</sup> and thou hast slaughtered the ram, and hast taken its blood, and hast sprinkled [it] on the altar round about,
+**¹⁶** and thou hast slaughtered the ram, and hast taken its blood, and hast sprinkled [it] on the altar round about,
 
-<sup>17</sup> and the ram thou dost cut into its pieces, and hast washed its inwards, and its legs, and hast put [them] on its pieces, and on its head;
+**¹⁷** and the ram thou dost cut into its pieces, and hast washed its inwards, and its legs, and hast put [them] on its pieces, and on its head;
 
-<sup>18</sup> and thou hast made perfume with the whole ram on the altar. It [is] a burnt-offering to Jehovah, a sweet fragrance; a fire-offering it [is] to Jehovah.
+**¹⁸** and thou hast made perfume with the whole ram on the altar. It [is] a burnt-offering to Jehovah, a sweet fragrance; a fire-offering it [is] to Jehovah.
 
-<sup>19</sup> 'And thou hast taken the second ram, and Aaron hath laid — his sons also — their hands on the head of the ram,
+**¹⁹** 'And thou hast taken the second ram, and Aaron hath laid — his sons also — their hands on the head of the ram,
 
-<sup>20</sup> and thou hast slaughtered the ram, and hast taken of its blood, and hast put on the tip of the right ear of Aaron, and on the tip of the right ear of his sons, and on the thumb of their right hand, and on the great toe of their right foot, and hast sprinkled the blood on the altar round about;
+**²⁰** and thou hast slaughtered the ram, and hast taken of its blood, and hast put on the tip of the right ear of Aaron, and on the tip of the right ear of his sons, and on the thumb of their right hand, and on the great toe of their right foot, and hast sprinkled the blood on the altar round about;
 
-<sup>21</sup> and thou hast taken of the blood which [is] on the altar, and of the anointing oil, and hast sprinkled on Aaron, and on his garments, and on his sons, and on the garments of his sons with him, and he hath been hallowed, he, and his garments, and his sons, and the garments of his sons with him.
+**²¹** and thou hast taken of the blood which [is] on the altar, and of the anointing oil, and hast sprinkled on Aaron, and on his garments, and on his sons, and on the garments of his sons with him, and he hath been hallowed, he, and his garments, and his sons, and the garments of his sons with him.
 
-<sup>22</sup> 'And thou hast taken from the ram the fat, and the fat tail, and the fat which is covering the inwards, and the redundance on the liver, and the two kidneys, and the fat which [is] on them, and the right leg, for it [is] a ram of consecration,
+**²²** 'And thou hast taken from the ram the fat, and the fat tail, and the fat which is covering the inwards, and the redundance on the liver, and the two kidneys, and the fat which [is] on them, and the right leg, for it [is] a ram of consecration,
 
-<sup>23</sup> and one round cake of bread, and one cake of oiled bread, and one thin cake out of the basket of the unleavened things which [is] before Jehovah.
+**²³** and one round cake of bread, and one cake of oiled bread, and one thin cake out of the basket of the unleavened things which [is] before Jehovah.
 
-<sup>24</sup> 'And thou hast set the whole on the hands of Aaron, and on the hands of his sons, and hast waved them — a wave-offering before Jehovah;
+**²⁴** 'And thou hast set the whole on the hands of Aaron, and on the hands of his sons, and hast waved them — a wave-offering before Jehovah;
 
-<sup>25</sup> and thou hast taken them out of their hand, and hast made perfume on the altar beside the burnt-offering, for sweet fragrance before Jehovah; a fire-offering it [is] to Jehovah.
+**²⁵** and thou hast taken them out of their hand, and hast made perfume on the altar beside the burnt-offering, for sweet fragrance before Jehovah; a fire-offering it [is] to Jehovah.
 
-<sup>26</sup> 'And thou hast taken the breast from the ram of the consecration which [is] for Aaron, and hast waved it — a wave-offering before Jehovah, and it hath become thy portion;
+**²⁶** 'And thou hast taken the breast from the ram of the consecration which [is] for Aaron, and hast waved it — a wave-offering before Jehovah, and it hath become thy portion;
 
-<sup>27</sup> and thou hast sanctified the breast of the wave-offering, and the leg of the heave-offering, which hath been waved, and which hath been lifted up from the ram of the consecration, of that which [is] for Aaron, and of that which [is] for his sons;
+**²⁷** and thou hast sanctified the breast of the wave-offering, and the leg of the heave-offering, which hath been waved, and which hath been lifted up from the ram of the consecration, of that which [is] for Aaron, and of that which [is] for his sons;
 
-<sup>28</sup> and it hath been for Aaron and for his sons, by a statute age-during from the sons of Israel, for it [is] a heave-offering; and it is a heave offering from the sons of Israel, from the sacrifices of their peace-offerings — their heave-offering to Jehovah.
+**²⁸** and it hath been for Aaron and for his sons, by a statute age-during from the sons of Israel, for it [is] a heave-offering; and it is a heave offering from the sons of Israel, from the sacrifices of their peace-offerings — their heave-offering to Jehovah.
 
-<sup>29</sup> 'And the holy garments which are Aaron's, are for his sons after him, to be anointed in them, and to consecrate in them their hand;
+**²⁹** 'And the holy garments which are Aaron's, are for his sons after him, to be anointed in them, and to consecrate in them their hand;
 
-<sup>30</sup> seven days doth the priest in his stead (of his sons) put them on, when he goeth in unto the tent of meeting, to minister in the sanctuary.
+**³⁰** seven days doth the priest in his stead (of his sons) put them on, when he goeth in unto the tent of meeting, to minister in the sanctuary.
 
-<sup>31</sup> 'And the ram of the consecration thou dost take, and hast boiled its flesh in the holy place;
+**³¹** 'And the ram of the consecration thou dost take, and hast boiled its flesh in the holy place;
 
-<sup>32</sup> and Aaron hath eaten — his sons also — the flesh of the ram, and the bread which [is] in the basket, at the opening of the tent of meeting;
+**³²** and Aaron hath eaten — his sons also — the flesh of the ram, and the bread which [is] in the basket, at the opening of the tent of meeting;
 
-<sup>33</sup> and they have eaten those things by which there is atonement to consecrate their hand, to sanctify them; and a stranger doth not eat — for they [are] holy;
+**³³** and they have eaten those things by which there is atonement to consecrate their hand, to sanctify them; and a stranger doth not eat — for they [are] holy;
 
-<sup>34</sup> and if there be left of the flesh of the consecration or of the bread till the morning, then thou hast burned that which is left with fire; it is not eaten, for it [is] holy.
+**³⁴** and if there be left of the flesh of the consecration or of the bread till the morning, then thou hast burned that which is left with fire; it is not eaten, for it [is] holy.
 
-<sup>35</sup> 'And thou hast done thus to Aaron and to his sons, according to all that I have commanded thee; seven days thou dost consecrate their hand;
+**³⁵** 'And thou hast done thus to Aaron and to his sons, according to all that I have commanded thee; seven days thou dost consecrate their hand;
 
-<sup>36</sup> and a bullock, a sin-offering, thou dost prepare daily for the atonements, and thou hast atoned for the altar, in thy making atonement on it, and hast anointed it to sanctify it;
+**³⁶** and a bullock, a sin-offering, thou dost prepare daily for the atonements, and thou hast atoned for the altar, in thy making atonement on it, and hast anointed it to sanctify it;
 
-<sup>37</sup> seven days thou dost make atonement for the altar, and hast sanctified it, and the altar hath been most holy; all that is coming against the altar is holy.
+**³⁷** seven days thou dost make atonement for the altar, and hast sanctified it, and the altar hath been most holy; all that is coming against the altar is holy.
 
-<sup>38</sup> 'And this [is] that which thou dost prepare on the altar; two lambs, sons of a year, daily continually;
+**³⁸** 'And this [is] that which thou dost prepare on the altar; two lambs, sons of a year, daily continually;
 
-<sup>39</sup> the one lamb thou dost prepare in the morning, and the second lamb thou dost prepare between the evenings;
+**³⁹** the one lamb thou dost prepare in the morning, and the second lamb thou dost prepare between the evenings;
 
-<sup>40</sup> and a tenth [deal] of fine flour, mixed with beaten oil, a fourth part of a hin, and a libation, a fourth part of a hin, of wine, [is] for the one lamb.
+**⁴⁰** and a tenth [deal] of fine flour, mixed with beaten oil, a fourth part of a hin, and a libation, a fourth part of a hin, of wine, [is] for the one lamb.
 
-<sup>41</sup> 'And the second lamb thou dost prepare between the evenings; according to the present of the morning, and according to its libation, thou dost prepare for it, for sweet fragrance, a fire-offering, to Jehovah: —
+**⁴¹** 'And the second lamb thou dost prepare between the evenings; according to the present of the morning, and according to its libation, thou dost prepare for it, for sweet fragrance, a fire-offering, to Jehovah: —
 
-<sup>42</sup> a continual burnt-offering for your generations, at the opening of the tent of meeting, before Jehovah, whither I am met with you, to speak unto thee there,
+**⁴²** a continual burnt-offering for your generations, at the opening of the tent of meeting, before Jehovah, whither I am met with you, to speak unto thee there,
 
-<sup>43</sup> and I have met there with the sons of Israel, and it hath been sanctified by My honour.
+**⁴³** and I have met there with the sons of Israel, and it hath been sanctified by My honour.
 
-<sup>44</sup> 'And I have sanctified the tent of meeting, and the altar, and Aaron and his sons I sanctify for being priests to Me,
+**⁴⁴** 'And I have sanctified the tent of meeting, and the altar, and Aaron and his sons I sanctify for being priests to Me,
 
-<sup>45</sup> and I have tabernacled in the midst of the sons of Israel, and have become their God,
+**⁴⁵** and I have tabernacled in the midst of the sons of Israel, and have become their God,
 
-<sup>46</sup> and they have known that I [am] Jehovah their God, who hath brought them out of the land of Egypt, that I may tabernacle in their midst; I [am] Jehovah their God.
+**⁴⁶** and they have known that I [am] Jehovah their God, who hath brought them out of the land of Egypt, that I may tabernacle in their midst; I [am] Jehovah their God.

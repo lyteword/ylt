@@ -1,53 +1,53 @@
 # Chapter 5
 
-<sup>1</sup> As to sons of Reuben, first-born of Israel — for he [is] the first-born, and on account of his profaning the couch of his father hath his birthright been given to the sons of Joseph son of Israel, and [he is] not to be reckoned by genealogy for the birthright,
+**¹** As to sons of Reuben, first-born of Israel — for he [is] the first-born, and on account of his profaning the couch of his father hath his birthright been given to the sons of Joseph son of Israel, and [he is] not to be reckoned by genealogy for the birthright,
 
-<sup>2</sup> for Judah hath been mighty over his brother, and for leader above him, and the birthright [is] to Joseph.
+**²** for Judah hath been mighty over his brother, and for leader above him, and the birthright [is] to Joseph.
 
-<sup>3</sup> Sons of Reuben, first-born of Israel: Hanoch, and Pallu, Hezron, and Carmi.
+**³** Sons of Reuben, first-born of Israel: Hanoch, and Pallu, Hezron, and Carmi.
 
-<sup>4</sup> Sons of Joel: Shemaiah his son, Gog his son, Shimei his son,
+**⁴** Sons of Joel: Shemaiah his son, Gog his son, Shimei his son,
 
-<sup>5</sup> Micah his son, Reaiah his son, Baal his son,
+**⁵** Micah his son, Reaiah his son, Baal his son,
 
-<sup>6</sup> Beerah his son, whom Tilgath-Pilneser king of Asshur removed; he [is] prince of the Reubenite.
+**⁶** Beerah his son, whom Tilgath-Pilneser king of Asshur removed; he [is] prince of the Reubenite.
 
-<sup>7</sup> And his brethren, by their families, in the genealogy of their generations, [are] heads: Jeiel, and Zechariah,
+**⁷** And his brethren, by their families, in the genealogy of their generations, [are] heads: Jeiel, and Zechariah,
 
-<sup>8</sup> and Bela son of Azaz, son of Shema, son of Joel — he is dwelling in Aroer, even unto Nebo and Baal-Meon;
+**⁸** and Bela son of Azaz, son of Shema, son of Joel — he is dwelling in Aroer, even unto Nebo and Baal-Meon;
 
-<sup>9</sup> and at the east he dwelt even unto the entering in of the wilderness, even from the river Phrat, for their cattle were multiplied in the land of Gilead.
+**⁹** and at the east he dwelt even unto the entering in of the wilderness, even from the river Phrat, for their cattle were multiplied in the land of Gilead.
 
-<sup>10</sup> And in the days of Saul they have made war with the Hagarites, who fall by their hand, and they dwell in their tents over all the face of the east of Gilead.
+**¹⁰** And in the days of Saul they have made war with the Hagarites, who fall by their hand, and they dwell in their tents over all the face of the east of Gilead.
 
-<sup>11</sup> And the sons of Gad, over-against them have dwelt in the land of Bashan unto Salcah,
+**¹¹** And the sons of Gad, over-against them have dwelt in the land of Bashan unto Salcah,
 
-<sup>12</sup> Joel the head, and Shapham the second, and Jaanai and Shaphat in Bashan;
+**¹²** Joel the head, and Shapham the second, and Jaanai and Shaphat in Bashan;
 
-<sup>13</sup> and their brethren of the house of their fathers [are] Michael, and Meshullam, and Sheba, and Jorai, and Jachan, and Zia, and Heber, seven.
+**¹³** and their brethren of the house of their fathers [are] Michael, and Meshullam, and Sheba, and Jorai, and Jachan, and Zia, and Heber, seven.
 
-<sup>14</sup> These [are] sons of Abihail son of Huri, son of Jaroah, son of Gilead, son of Michael, son of Jeshishai, son of Jahdo, son of Buz;
+**¹⁴** These [are] sons of Abihail son of Huri, son of Jaroah, son of Gilead, son of Michael, son of Jeshishai, son of Jahdo, son of Buz;
 
-<sup>15</sup> Ahi son of Abdiel, son of Guni, [is] head of the house of their fathers;
+**¹⁵** Ahi son of Abdiel, son of Guni, [is] head of the house of their fathers;
 
-<sup>16</sup> and they dwell in Gilead in Bashan, and in her small towns, and in all suburbs of Sharon, upon their outskirts;
+**¹⁶** and they dwell in Gilead in Bashan, and in her small towns, and in all suburbs of Sharon, upon their outskirts;
 
-<sup>17</sup> all of them reckoned themselves by genealogy in the days of Jotham king of Judah, and in the days of Jeroboam king of Israel.
+**¹⁷** all of them reckoned themselves by genealogy in the days of Jotham king of Judah, and in the days of Jeroboam king of Israel.
 
-<sup>18</sup> Sons of Reuben, and the Gadite, and the half of the tribe of Manasseh, of sons of valour, men bearing shield and sword, and treading bow, and taught in battle, [are] forty and four thousand and seven hundred and sixty, going out to the host.
+**¹⁸** Sons of Reuben, and the Gadite, and the half of the tribe of Manasseh, of sons of valour, men bearing shield and sword, and treading bow, and taught in battle, [are] forty and four thousand and seven hundred and sixty, going out to the host.
 
-<sup>19</sup> And they make war with the Hagarites, and Jetur, and Naphish, and Nodab,
+**¹⁹** And they make war with the Hagarites, and Jetur, and Naphish, and Nodab,
 
-<sup>20</sup> and they are helped against them, and the Hagarites are given into their hand, and all who [are] with them, for they cried to God in battle, and He was entreated of them, because they trusted in Him.
+**²⁰** and they are helped against them, and the Hagarites are given into their hand, and all who [are] with them, for they cried to God in battle, and He was entreated of them, because they trusted in Him.
 
-<sup>21</sup> And they take captive their cattle, of their camels fifty thousand, and of sheep two hundred and fifty thousand, and of asses two thousand, and of human beings a hundred thousand;
+**²¹** And they take captive their cattle, of their camels fifty thousand, and of sheep two hundred and fifty thousand, and of asses two thousand, and of human beings a hundred thousand;
 
-<sup>22</sup> for many have fallen pierced, for of God [is] the battle; and they dwell in their stead till the removal.
+**²²** for many have fallen pierced, for of God [is] the battle; and they dwell in their stead till the removal.
 
-<sup>23</sup> And the sons of the half of the tribe of Manasseh dwelt in the land, from Bashan unto Baal-Hermon, and Senir, and mount Hermon, they have multiplied.
+**²³** And the sons of the half of the tribe of Manasseh dwelt in the land, from Bashan unto Baal-Hermon, and Senir, and mount Hermon, they have multiplied.
 
-<sup>24</sup> And these [are] heads of the house of their fathers, even Epher, and Ishi, and Eliel, and Azriel, and Jeremiah, and Hodaviah, and Jahdiel, men mighty in valour, men of name, heads to the house of their fathers.
+**²⁴** And these [are] heads of the house of their fathers, even Epher, and Ishi, and Eliel, and Azriel, and Jeremiah, and Hodaviah, and Jahdiel, men mighty in valour, men of name, heads to the house of their fathers.
 
-<sup>25</sup> And they trespass against the God of their fathers, and go a-whoring after the gods of the peoples of the land whom God destroyed from their presence;
+**²⁵** And they trespass against the God of their fathers, and go a-whoring after the gods of the peoples of the land whom God destroyed from their presence;
 
-<sup>26</sup> and stir up doth the God of Israel the spirit of Pul king of Asshur, and the spirit of Tilgath-Pilneser king of Asshur, and he removeth them — even the Reubenite, and the Gadite, and the half of the tribe of Manasseh — and bringeth them in to Halah, and Habor, and Hara, and the river of Gozan unto this day.
+**²⁶** and stir up doth the God of Israel the spirit of Pul king of Asshur, and the spirit of Tilgath-Pilneser king of Asshur, and he removeth them — even the Reubenite, and the Gadite, and the half of the tribe of Manasseh — and bringeth them in to Halah, and Habor, and Hara, and the river of Gozan unto this day.

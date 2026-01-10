@@ -1,37 +1,37 @@
 # Chapter 13
 
-<sup>1</sup> 'When there ariseth in your midst a prophet, or a dreamer of a dream, and he hath given unto thee a sign or wonder,
+**¹** 'When there ariseth in your midst a prophet, or a dreamer of a dream, and he hath given unto thee a sign or wonder,
 
-<sup>2</sup> and the sign and the wonder hath come which he hath spoken of unto thee, saying, Let us go after other gods (which thou hast not known), and serve them,
+**²** and the sign and the wonder hath come which he hath spoken of unto thee, saying, Let us go after other gods (which thou hast not known), and serve them,
 
-<sup>3</sup> thou dost not hearken unto the words of that prophet, or unto that dreamer of the dream, for Jehovah your God is trying you, to know whether ye are loving Jehovah your God with all your heart, and with all your soul;
+**³** thou dost not hearken unto the words of that prophet, or unto that dreamer of the dream, for Jehovah your God is trying you, to know whether ye are loving Jehovah your God with all your heart, and with all your soul;
 
-<sup>4</sup> after Jehovah your God ye walk, and Him ye fear, and His commands ye keep, and to His voice ye hearken, and Him ye serve, and to Him ye cleave.
+**⁴** after Jehovah your God ye walk, and Him ye fear, and His commands ye keep, and to His voice ye hearken, and Him ye serve, and to Him ye cleave.
 
-<sup>5</sup> 'And that prophet, or that dreamer of the dream, is put to death, for he hath spoken apostasy against Jehovah your God (who is bringing you out of the land of Egypt, and hath ransomed you out of a house of servants), to drive you out of the way in which Jehovah thy God hath commanded thee to walk, and thou hast put away the evil thing from thy midst.
+**⁵** 'And that prophet, or that dreamer of the dream, is put to death, for he hath spoken apostasy against Jehovah your God (who is bringing you out of the land of Egypt, and hath ransomed you out of a house of servants), to drive you out of the way in which Jehovah thy God hath commanded thee to walk, and thou hast put away the evil thing from thy midst.
 
-<sup>6</sup> 'When thy brother — son of thy mother, or thy son, or thy daughter, or the wife of thy bosom, or thy friend who [is] as thine own soul — doth move thee, in secret, saying, Let us go and serve other gods — (which thou hast not known, thou and thy fathers,
+**⁶** 'When thy brother — son of thy mother, or thy son, or thy daughter, or the wife of thy bosom, or thy friend who [is] as thine own soul — doth move thee, in secret, saying, Let us go and serve other gods — (which thou hast not known, thou and thy fathers,
 
-<sup>7</sup> of the gods of the peoples who [are] round about you, who are near unto thee, or who are far off from thee, from the end of the earth even unto the end of the earth) —
+**⁷** of the gods of the peoples who [are] round about you, who are near unto thee, or who are far off from thee, from the end of the earth even unto the end of the earth) —
 
-<sup>8</sup> thou dost not consent to him, nor hearken unto him, nor doth thine eye have pity on him, nor dost thou spare, nor dost thou cover him over.
+**⁸** thou dost not consent to him, nor hearken unto him, nor doth thine eye have pity on him, nor dost thou spare, nor dost thou cover him over.
 
-<sup>9</sup> 'But thou dost surely kill him; thy hand is on him, in the first place, to put him to death, and the hand of all the people last;
+**⁹** 'But thou dost surely kill him; thy hand is on him, in the first place, to put him to death, and the hand of all the people last;
 
-<sup>10</sup> and thou hast stoned him with stones, and he hath died, for he hath sought to drive thee away from Jehovah thy God, who is bringing thee out of the land of Egypt, out of a house of servants;
+**¹⁰** and thou hast stoned him with stones, and he hath died, for he hath sought to drive thee away from Jehovah thy God, who is bringing thee out of the land of Egypt, out of a house of servants;
 
-<sup>11</sup> and all Israel do hear and fear, and add not to do like this evil thing in thy midst.
+**¹¹** and all Israel do hear and fear, and add not to do like this evil thing in thy midst.
 
-<sup>12</sup> 'When thou hearest, in one of thy cities which Jehovah thy God is giving to thee to dwell there, [one] saying,
+**¹²** 'When thou hearest, in one of thy cities which Jehovah thy God is giving to thee to dwell there, [one] saying,
 
-<sup>13</sup> Men, sons of worthlessness, have gone out of thy midst, and they force away the inhabitants of their city, saying, Let us go and serve other gods, which ye have not known —
+**¹³** Men, sons of worthlessness, have gone out of thy midst, and they force away the inhabitants of their city, saying, Let us go and serve other gods, which ye have not known —
 
-<sup>14</sup> and thou hast enquired, and searched, and asked diligently, and lo, truth; the thing is established; this abomination hath been done in thy midst:
+**¹⁴** and thou hast enquired, and searched, and asked diligently, and lo, truth; the thing is established; this abomination hath been done in thy midst:
 
-<sup>15</sup> 'Thou dost surely smite the inhabitants of that city by the mouth of the sword; devoting it, and all that [is] in it, even its cattle, by the mouth of the sword;
+**¹⁵** 'Thou dost surely smite the inhabitants of that city by the mouth of the sword; devoting it, and all that [is] in it, even its cattle, by the mouth of the sword;
 
-<sup>16</sup> and all its spoil thou dost gather unto the midst of its broad place, and hast burned with fire the city and all its spoil completely, before Jehovah thy God, and it hath been a heap age-during, it is not built any more;
+**¹⁶** and all its spoil thou dost gather unto the midst of its broad place, and hast burned with fire the city and all its spoil completely, before Jehovah thy God, and it hath been a heap age-during, it is not built any more;
 
-<sup>17</sup> and there doth not cleave to thy hand any of the devoted thing, so that Jehovah doth turn back from the fierceness of His anger, and hath given to thee mercies, and loved thee, and multiplied thee, as He hath sworn to thy fathers,
+**¹⁷** and there doth not cleave to thy hand any of the devoted thing, so that Jehovah doth turn back from the fierceness of His anger, and hath given to thee mercies, and loved thee, and multiplied thee, as He hath sworn to thy fathers,
 
-<sup>18</sup> when thou dost hearken to the voice of Jehovah thy God, to keep all his commands which I am commanding thee to-day, to do that which [is] right in the eyes of Jehovah thy God.
+**¹⁸** when thou dost hearken to the voice of Jehovah thy God, to keep all his commands which I am commanding thee to-day, to do that which [is] right in the eyes of Jehovah thy God.

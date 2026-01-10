@@ -1,51 +1,51 @@
 # Chapter 13
 
-<sup>1</sup> And the sons of Israel add to do the evil thing in the eyes of Jehovah, and Jehovah giveth them into the hand of the Philistines forty years.
+**¹** And the sons of Israel add to do the evil thing in the eyes of Jehovah, and Jehovah giveth them into the hand of the Philistines forty years.
 
-<sup>2</sup> And there is a certain man of Zorah, of the family of the Danite, and his name [is] Manoah, his wife [is] barren, and hath not borne;
+**²** And there is a certain man of Zorah, of the family of the Danite, and his name [is] Manoah, his wife [is] barren, and hath not borne;
 
-<sup>3</sup> and a messenger of Jehovah appeareth unto the woman, and saith unto her, 'Lo, I pray thee, thou [art] barren, and hast not borne; when thou hast conceived, then thou hast borne a son.
+**³** and a messenger of Jehovah appeareth unto the woman, and saith unto her, 'Lo, I pray thee, thou [art] barren, and hast not borne; when thou hast conceived, then thou hast borne a son.
 
-<sup>4</sup> And, now, take heed, I pray thee, and do not drink wine, and strong drink, and do not eat any unclean thing,
+**⁴** And, now, take heed, I pray thee, and do not drink wine, and strong drink, and do not eat any unclean thing,
 
-<sup>5</sup> for, lo, thou art conceiving and bearing a son, and a razor doth not go up on his head, for a Nazarite to God is the youth from the womb, and he doth begin to save Israel out of the hand of the Philistines.'
+**⁵** for, lo, thou art conceiving and bearing a son, and a razor doth not go up on his head, for a Nazarite to God is the youth from the womb, and he doth begin to save Israel out of the hand of the Philistines.'
 
-<sup>6</sup> And the woman cometh and speaketh to her husband, saying, 'A man of God hath come unto me, and his appearance [is] as the appearance of a messenger of God, very fearful, and I have not asked him whence he [is], and his name he hath not declared to me;
+**⁶** And the woman cometh and speaketh to her husband, saying, 'A man of God hath come unto me, and his appearance [is] as the appearance of a messenger of God, very fearful, and I have not asked him whence he [is], and his name he hath not declared to me;
 
-<sup>7</sup> and he saith to me, Lo, thou art pregnant, and bearing a son, and now do not drink wine and strong drink, and do not eat any unclean thing, for a Nazarite to God is the youth from the womb till the day of his death.'
+**⁷** and he saith to me, Lo, thou art pregnant, and bearing a son, and now do not drink wine and strong drink, and do not eat any unclean thing, for a Nazarite to God is the youth from the womb till the day of his death.'
 
-<sup>8</sup> And Manoah maketh entreaty unto Jehovah, and saith, 'O, my Lord, the man of God whom Thou didst send, let him come in, I pray thee, again unto us, and direct us what we do to the youth who is born.'
+**⁸** And Manoah maketh entreaty unto Jehovah, and saith, 'O, my Lord, the man of God whom Thou didst send, let him come in, I pray thee, again unto us, and direct us what we do to the youth who is born.'
 
-<sup>9</sup> And God hearkeneth to the voice of Manoah, and the messenger of God cometh again unto the woman, and she [is] sitting in a field, and Manoah her husband is not with her,
+**⁹** And God hearkeneth to the voice of Manoah, and the messenger of God cometh again unto the woman, and she [is] sitting in a field, and Manoah her husband is not with her,
 
-<sup>10</sup> and the woman hasteth, and runneth, and declareth to her husband, and saith unto him, 'Lo, he hath appeared unto me — the man who came on [that] day unto me.'
+**¹⁰** and the woman hasteth, and runneth, and declareth to her husband, and saith unto him, 'Lo, he hath appeared unto me — the man who came on [that] day unto me.'
 
-<sup>11</sup> And Manoah riseth, and goeth after his wife, and cometh unto the man, and saith to him, 'Art thou the man who spake unto the woman?' and he saith, 'I [am].'
+**¹¹** And Manoah riseth, and goeth after his wife, and cometh unto the man, and saith to him, 'Art thou the man who spake unto the woman?' and he saith, 'I [am].'
 
-<sup>12</sup> And Manoah saith, 'Now let thy words come to pass; what is the custom of the youth — and his work?'
+**¹²** And Manoah saith, 'Now let thy words come to pass; what is the custom of the youth — and his work?'
 
-<sup>13</sup> And the messenger of Jehovah saith unto Manoah, 'Of all that I said unto the woman let her take heed;
+**¹³** And the messenger of Jehovah saith unto Manoah, 'Of all that I said unto the woman let her take heed;
 
-<sup>14</sup> of anything which cometh out from the wine-vine she doth not eat, and wine and strong drink she doth not drink, and any unclean thing she doth not eat; all that I have commanded her she doth observe.'
+**¹⁴** of anything which cometh out from the wine-vine she doth not eat, and wine and strong drink she doth not drink, and any unclean thing she doth not eat; all that I have commanded her she doth observe.'
 
-<sup>15</sup> And Manoah saith unto the messenger of Jehovah, 'Let us detain thee, we pray thee, and prepare before thee a kid of the goats.'
+**¹⁵** And Manoah saith unto the messenger of Jehovah, 'Let us detain thee, we pray thee, and prepare before thee a kid of the goats.'
 
-<sup>16</sup> And the messenger of Jehovah saith unto Manoah, 'If thou detain me — I do not eat of thy bread; and if thou prepare a burnt-offering — to Jehovah thou dost offer it;' for Manoah hath not known that He [is] a messenger of Jehovah.
+**¹⁶** And the messenger of Jehovah saith unto Manoah, 'If thou detain me — I do not eat of thy bread; and if thou prepare a burnt-offering — to Jehovah thou dost offer it;' for Manoah hath not known that He [is] a messenger of Jehovah.
 
-<sup>17</sup> And Manoah saith unto the messenger of Jehovah, 'What [is] thy name? when thy words come to pass, then we have honoured thee.'
+**¹⁷** And Manoah saith unto the messenger of Jehovah, 'What [is] thy name? when thy words come to pass, then we have honoured thee.'
 
-<sup>18</sup> And the messenger of Jehovah saith to him, 'Why [is] this — thou dost ask for My name? — and it [is] Wonderful.'
+**¹⁸** And the messenger of Jehovah saith to him, 'Why [is] this — thou dost ask for My name? — and it [is] Wonderful.'
 
-<sup>19</sup> And Manoah taketh the kid of the goats, and the present, and offereth on the rock to Jehovah, and He is doing wonderfully, and Manoah and his wife are looking on,
+**¹⁹** And Manoah taketh the kid of the goats, and the present, and offereth on the rock to Jehovah, and He is doing wonderfully, and Manoah and his wife are looking on,
 
-<sup>20</sup> and it cometh to pass, in the going up of the flame from off the altar toward the heavens, that the messenger of Jehovah goeth up in the flame of the altar, and Manoah and his wife are looking on, and they fall on their faces to the earth,
+**²⁰** and it cometh to pass, in the going up of the flame from off the altar toward the heavens, that the messenger of Jehovah goeth up in the flame of the altar, and Manoah and his wife are looking on, and they fall on their faces to the earth,
 
-<sup>21</sup> and the messenger of Jehovah hath not added again to appear unto Manoah, and unto his wife, then hath Manoah known that He [is] a messenger of Jehovah.
+**²¹** and the messenger of Jehovah hath not added again to appear unto Manoah, and unto his wife, then hath Manoah known that He [is] a messenger of Jehovah.
 
-<sup>22</sup> And Manoah saith unto his wife, 'We certainly die, for we have seen God.'
+**²²** And Manoah saith unto his wife, 'We certainly die, for we have seen God.'
 
-<sup>23</sup> And his wife saith to him, 'If Jehovah were desirous to put us to death, He had not received from our hands burnt-offering and present, nor shewed us all these things, nor as [at this] time caused us to hear [anything] like this.'
+**²³** And his wife saith to him, 'If Jehovah were desirous to put us to death, He had not received from our hands burnt-offering and present, nor shewed us all these things, nor as [at this] time caused us to hear [anything] like this.'
 
-<sup>24</sup> And the woman beareth a son, and calleth his name Samson, and the youth groweth, and Jehovah doth bless him,
+**²⁴** And the woman beareth a son, and calleth his name Samson, and the youth groweth, and Jehovah doth bless him,
 
-<sup>25</sup> and the Spirit of Jehovah beginneth to move him in the camp of Dan, between Zorah and Eshtaol.
+**²⁵** and the Spirit of Jehovah beginneth to move him in the camp of Dan, between Zorah and Eshtaol.

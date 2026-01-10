@@ -1,43 +1,43 @@
 # Chapter 11
 
-<sup>1</sup> And Athaliah [is] mother of Ahaziah, and she hath seen that her son [is] dead, and she riseth, and destroyeth all the seed of the kingdom;
+**¹** And Athaliah [is] mother of Ahaziah, and she hath seen that her son [is] dead, and she riseth, and destroyeth all the seed of the kingdom;
 
-<sup>2</sup> and Jehosheba daughter of king Joram, sister of Ahaziah, taketh Joash son of Ahaziah, and stealeth him out of the midst of the sons of the king who are put to death, him and his nurse, in the inner part of the bed-chambers, and they hide him from the presence of Athaliah, and he hath not been put to death,
+**²** and Jehosheba daughter of king Joram, sister of Ahaziah, taketh Joash son of Ahaziah, and stealeth him out of the midst of the sons of the king who are put to death, him and his nurse, in the inner part of the bed-chambers, and they hide him from the presence of Athaliah, and he hath not been put to death,
 
-<sup>3</sup> and he is with her, in the house of Jehovah, hiding himself, six years, and Athaliah is reigning over the land.
+**³** and he is with her, in the house of Jehovah, hiding himself, six years, and Athaliah is reigning over the land.
 
-<sup>4</sup> And in the seventh year hath Jehoiada sent and taketh the heads of the hundreds, of the executioners and of the runners, and bringeth them in unto him, to the house of Jehovah, and maketh with them a covenant, and causeth them to swear in the house of Jehovah, and sheweth them the son of the king,
+**⁴** And in the seventh year hath Jehoiada sent and taketh the heads of the hundreds, of the executioners and of the runners, and bringeth them in unto him, to the house of Jehovah, and maketh with them a covenant, and causeth them to swear in the house of Jehovah, and sheweth them the son of the king,
 
-<sup>5</sup> and commandeth them, saying, 'This [is] the thing that ye do; The third of you [are] going in on the sabbath, and keepers of the charge of the house of the king,
+**⁵** and commandeth them, saying, 'This [is] the thing that ye do; The third of you [are] going in on the sabbath, and keepers of the charge of the house of the king,
 
-<sup>6</sup> and the third [is] at the gate of Sur, and the third at the gate behind the runners, and ye have kept the charge of the house pulled down;
+**⁶** and the third [is] at the gate of Sur, and the third at the gate behind the runners, and ye have kept the charge of the house pulled down;
 
-<sup>7</sup> and two parts of you, all going out on the sabbath — they have kept the charge of the house of Jehovah about the king,
+**⁷** and two parts of you, all going out on the sabbath — they have kept the charge of the house of Jehovah about the king,
 
-<sup>8</sup> and ye have compassed the king round about, each with his weapons in his hand, and he who is coming unto the ranges is put to death; and be ye with the king in his going out and in his coming in.'
+**⁸** and ye have compassed the king round about, each with his weapons in his hand, and he who is coming unto the ranges is put to death; and be ye with the king in his going out and in his coming in.'
 
-<sup>9</sup> And the heads of the hundreds do according to all that Jehoiada the priest commanded, and take each his men going in on the sabbath, with those going out on the sabbath, and come in unto Jehoiada the priest,
+**⁹** And the heads of the hundreds do according to all that Jehoiada the priest commanded, and take each his men going in on the sabbath, with those going out on the sabbath, and come in unto Jehoiada the priest,
 
-<sup>10</sup> and the priest giveth to the heads of the hundreds the spears and the shields that king David had, that [are] in the house of Jehovah.
+**¹⁰** and the priest giveth to the heads of the hundreds the spears and the shields that king David had, that [are] in the house of Jehovah.
 
-<sup>11</sup> And the runners stand, each with his weapons in his hand, from the right shoulder of the house unto the left shoulder of the house, by the altar and by the house, by the king round about;
+**¹¹** And the runners stand, each with his weapons in his hand, from the right shoulder of the house unto the left shoulder of the house, by the altar and by the house, by the king round about;
 
-<sup>12</sup> and he bringeth out the son of the king, and putteth on him the crown, and the testimony, and they make him king, and anoint him, and smite the hand, and say, 'Let the king live.'
+**¹²** and he bringeth out the son of the king, and putteth on him the crown, and the testimony, and they make him king, and anoint him, and smite the hand, and say, 'Let the king live.'
 
-<sup>13</sup> And Athaliah heareth the voice of the runners [and] of the people, and she cometh in unto the people, to the house of Jehovah,
+**¹³** And Athaliah heareth the voice of the runners [and] of the people, and she cometh in unto the people, to the house of Jehovah,
 
-<sup>14</sup> and looketh, and lo, the king is standing by the pillar, according to the ordinance, and the heads, and the trumpets, [are] by the king, and all the people of the land are rejoicing, and blowing with trumpets, and Athaliah rendeth her garments, and calleth, 'Conspiracy! conspiracy!'
+**¹⁴** and looketh, and lo, the king is standing by the pillar, according to the ordinance, and the heads, and the trumpets, [are] by the king, and all the people of the land are rejoicing, and blowing with trumpets, and Athaliah rendeth her garments, and calleth, 'Conspiracy! conspiracy!'
 
-<sup>15</sup> And Jehoiada the priest commandeth the heads of the hundreds, inspectors of the force, and saith unto them, 'Bring her out unto the outside of the ranges, and him who is going after her, put to death by the sword:' for the priest had said, 'Let her not be put to death in the house of Jehovah.'
+**¹⁵** And Jehoiada the priest commandeth the heads of the hundreds, inspectors of the force, and saith unto them, 'Bring her out unto the outside of the ranges, and him who is going after her, put to death by the sword:' for the priest had said, 'Let her not be put to death in the house of Jehovah.'
 
-<sup>16</sup> And they make for her sides, and she entereth the way of the entering in of the horses to the house of the king, and is put to death there.
+**¹⁶** And they make for her sides, and she entereth the way of the entering in of the horses to the house of the king, and is put to death there.
 
-<sup>17</sup> And Jehoiada maketh the covenant between Jehovah and the king and the people, to be for a people to Jehovah, and between the king and the people.
+**¹⁷** And Jehoiada maketh the covenant between Jehovah and the king and the people, to be for a people to Jehovah, and between the king and the people.
 
-<sup>18</sup> And all the people of the land go in to the house of Baal, and break it down, its altars and its images they have thoroughly broken, and Mattan priest of Baal they have slain before the altars; and the priest setteth inspectors over the house of Jehovah,
+**¹⁸** And all the people of the land go in to the house of Baal, and break it down, its altars and its images they have thoroughly broken, and Mattan priest of Baal they have slain before the altars; and the priest setteth inspectors over the house of Jehovah,
 
-<sup>19</sup> and taketh the heads of the hundreds, and the executioners, and the runners, and all the people of the land, and they bring down the king from the house of Jehovah, and come by the way of the gate of the runners, to the house of the king, and he sitteth on the throne of the kings.
+**¹⁹** and taketh the heads of the hundreds, and the executioners, and the runners, and all the people of the land, and they bring down the king from the house of Jehovah, and come by the way of the gate of the runners, to the house of the king, and he sitteth on the throne of the kings.
 
-<sup>20</sup> And all the people of the land rejoice, and the city [is] quiet, and Athaliah they have put to death by the sword in the house of the king;
+**²⁰** And all the people of the land rejoice, and the city [is] quiet, and Athaliah they have put to death by the sword in the house of the king;
 
-<sup>21</sup> a son of seven years is Jehoash in his reigning.
+**²¹** a son of seven years is Jehoash in his reigning.

@@ -1,87 +1,87 @@
 # Chapter 9
 
-<sup>1</sup> And Saul, yet breathing of threatening and slaughter to the disciples of the Lord, having gone to the chief priest,
+**¹** And Saul, yet breathing of threatening and slaughter to the disciples of the Lord, having gone to the chief priest,
 
-<sup>2</sup> did ask from him letters to Damascus, unto the synagogues, that if he may find any being of the way, both men and women, he may bring them bound to Jerusalem.
+**²** did ask from him letters to Damascus, unto the synagogues, that if he may find any being of the way, both men and women, he may bring them bound to Jerusalem.
 
-<sup>3</sup> And in the going, he came nigh to Damascus, and suddenly there shone round about him a light from the heaven,
+**³** And in the going, he came nigh to Damascus, and suddenly there shone round about him a light from the heaven,
 
-<sup>4</sup> and having fallen upon the earth, he heard a voice saying to him, 'Saul, Saul, why me dost thou persecute?'
+**⁴** and having fallen upon the earth, he heard a voice saying to him, 'Saul, Saul, why me dost thou persecute?'
 
-<sup>5</sup> And he said, 'Who art thou, Lord?' and the Lord said, 'I am Jesus whom thou dost persecute; hard for thee at the pricks to kick;'
+**⁵** And he said, 'Who art thou, Lord?' and the Lord said, 'I am Jesus whom thou dost persecute; hard for thee at the pricks to kick;'
 
-<sup>6</sup> trembling also, and astonished, he said, 'Lord, what dost thou wish me to do?' and the Lord [said] unto him, 'Arise, and enter into the city, and it shall be told thee what it behoveth thee to do.'
+**⁶** trembling also, and astonished, he said, 'Lord, what dost thou wish me to do?' and the Lord [said] unto him, 'Arise, and enter into the city, and it shall be told thee what it behoveth thee to do.'
 
-<sup>7</sup> And the men who are journeying with him stood speechless, hearing indeed the voice but seeing no one,
+**⁷** And the men who are journeying with him stood speechless, hearing indeed the voice but seeing no one,
 
-<sup>8</sup> and Saul arose from the earth, and his eyes having been opened, he beheld no one, and leading him by the hand they brought him to Damascus,
+**⁸** and Saul arose from the earth, and his eyes having been opened, he beheld no one, and leading him by the hand they brought him to Damascus,
 
-<sup>9</sup> and he was three days without seeing, and he did neither eat nor drink.
+**⁹** and he was three days without seeing, and he did neither eat nor drink.
 
-<sup>10</sup> And there was a certain disciple in Damascus, by name Ananias, and the Lord said unto him in a vision, 'Ananias;' and he said, 'Behold me, Lord;'
+**¹⁰** And there was a certain disciple in Damascus, by name Ananias, and the Lord said unto him in a vision, 'Ananias;' and he said, 'Behold me, Lord;'
 
-<sup>11</sup> and the Lord [saith] unto him, 'Having risen, go on unto the street that is called Straight, and seek in the house of Judas, [one] by name Saul of Tarsus, for, lo, he doth pray,
+**¹¹** and the Lord [saith] unto him, 'Having risen, go on unto the street that is called Straight, and seek in the house of Judas, [one] by name Saul of Tarsus, for, lo, he doth pray,
 
-<sup>12</sup> and he saw in a vision a man, by name Ananias, coming in, and putting a hand on him, that he may see again.'
+**¹²** and he saw in a vision a man, by name Ananias, coming in, and putting a hand on him, that he may see again.'
 
-<sup>13</sup> And Ananias answered, 'Lord, I have heard from many about this man, how many evils he did to Thy saints in Jerusalem,
+**¹³** And Ananias answered, 'Lord, I have heard from many about this man, how many evils he did to Thy saints in Jerusalem,
 
-<sup>14</sup> and here he hath authority from the chief priests, to bind all those calling on Thy name.'
+**¹⁴** and here he hath authority from the chief priests, to bind all those calling on Thy name.'
 
-<sup>15</sup> And the Lord said unto him, 'Be going on, because a choice vessel to Me is this one, to bear My name before nations and kings — the sons also of Israel;
+**¹⁵** And the Lord said unto him, 'Be going on, because a choice vessel to Me is this one, to bear My name before nations and kings — the sons also of Israel;
 
-<sup>16</sup> for I will shew him how many things it behoveth him for My name to suffer.'
+**¹⁶** for I will shew him how many things it behoveth him for My name to suffer.'
 
-<sup>17</sup> And Ananias went away, and did enter into the house, and having put upon him [his] hands, said, 'Saul, brother, the Lord hath sent me — Jesus who did appear to thee in the way in which thou wast coming — that thou mayest see again, and mayest be filled with the Holy Spirit.'
+**¹⁷** And Ananias went away, and did enter into the house, and having put upon him [his] hands, said, 'Saul, brother, the Lord hath sent me — Jesus who did appear to thee in the way in which thou wast coming — that thou mayest see again, and mayest be filled with the Holy Spirit.'
 
-<sup>18</sup> And immediately there fell from his eyes as it were scales, he saw again also presently, and having risen, was baptized,
+**¹⁸** And immediately there fell from his eyes as it were scales, he saw again also presently, and having risen, was baptized,
 
-<sup>19</sup> and having received nourishment, was strengthened, and Saul was with the disciples in Damascus certain days,
+**¹⁹** and having received nourishment, was strengthened, and Saul was with the disciples in Damascus certain days,
 
-<sup>20</sup> and immediately in the synagogues he was preaching the Christ, that he is the Son of God.
+**²⁰** and immediately in the synagogues he was preaching the Christ, that he is the Son of God.
 
-<sup>21</sup> And all those hearing were amazed, and said, 'Is not this he who laid waist in Jerusalem those calling on this name, and hither to this intent had come, that he might bring them bound to the chief priests?'
+**²¹** And all those hearing were amazed, and said, 'Is not this he who laid waist in Jerusalem those calling on this name, and hither to this intent had come, that he might bring them bound to the chief priests?'
 
-<sup>22</sup> And Saul was still more strengthened, and he was confounding the Jews dwelling in Damascus, proving that this is the Christ.
+**²²** And Saul was still more strengthened, and he was confounding the Jews dwelling in Damascus, proving that this is the Christ.
 
-<sup>23</sup> And when many days were fulfilled, the Jews took counsel together to kill him,
+**²³** And when many days were fulfilled, the Jews took counsel together to kill him,
 
-<sup>24</sup> and their counsel against [him] was known to Saul; they were also watching the gates both day and night, that they may kill him,
+**²⁴** and their counsel against [him] was known to Saul; they were also watching the gates both day and night, that they may kill him,
 
-<sup>25</sup> and the disciples having taken him, by night did let him down by the wall, letting down in a basket.
+**²⁵** and the disciples having taken him, by night did let him down by the wall, letting down in a basket.
 
-<sup>26</sup> And Saul, having come to Jerusalem, did try to join himself to the disciples, and they were all afraid of him, not believing that he is a disciple,
+**²⁶** And Saul, having come to Jerusalem, did try to join himself to the disciples, and they were all afraid of him, not believing that he is a disciple,
 
-<sup>27</sup> and Barnabas having taken him, brought [him] unto the apostles, and did declare to them how in the way he saw the Lord, and that he spake to him, and how in Damascus he was speaking boldly in the name of Jesus.
+**²⁷** and Barnabas having taken him, brought [him] unto the apostles, and did declare to them how in the way he saw the Lord, and that he spake to him, and how in Damascus he was speaking boldly in the name of Jesus.
 
-<sup>28</sup> And he was with them, coming in and going out in Jerusalem,
+**²⁸** And he was with them, coming in and going out in Jerusalem,
 
-<sup>29</sup> and speaking boldly in the name of the Lord Jesus, he was both speaking and disputing with the Hellenists, and they were taking in hand to kill him,
+**²⁹** and speaking boldly in the name of the Lord Jesus, he was both speaking and disputing with the Hellenists, and they were taking in hand to kill him,
 
-<sup>30</sup> and the brethren having known, brought him down to Caesarea, and sent him forth to Tarsus.
+**³⁰** and the brethren having known, brought him down to Caesarea, and sent him forth to Tarsus.
 
-<sup>31</sup> Then, indeed, the assemblies throughout all Judea, and Galilee, and Samaria, had peace, being built up, and, going on in the fear of the Lord, and in the comfort of the Holy Spirit, they were multiplied.
+**³¹** Then, indeed, the assemblies throughout all Judea, and Galilee, and Samaria, had peace, being built up, and, going on in the fear of the Lord, and in the comfort of the Holy Spirit, they were multiplied.
 
-<sup>32</sup> And it came to pass that Peter passing throughout all [quarters], came down also unto the saints who were dwelling at Lydda,
+**³²** And it came to pass that Peter passing throughout all [quarters], came down also unto the saints who were dwelling at Lydda,
 
-<sup>33</sup> and he found there a certain man, Aeneas by name — for eight years laid upon a couch — who was paralytic,
+**³³** and he found there a certain man, Aeneas by name — for eight years laid upon a couch — who was paralytic,
 
-<sup>34</sup> and Peter said to him, 'Aeneas, heal thee doth Jesus the Christ; arise and spread for thyself;' and immediately he rose,
+**³⁴** and Peter said to him, 'Aeneas, heal thee doth Jesus the Christ; arise and spread for thyself;' and immediately he rose,
 
-<sup>35</sup> and all those dwelling at Lydda, and Saron saw him, and did turn to the Lord.
+**³⁵** and all those dwelling at Lydda, and Saron saw him, and did turn to the Lord.
 
-<sup>36</sup> And in Joppa there was a certain female disciple, by name Tabitha, (which interpreted, is called Dorcas,) this woman was full of good works and kind acts that she was doing;
+**³⁶** And in Joppa there was a certain female disciple, by name Tabitha, (which interpreted, is called Dorcas,) this woman was full of good works and kind acts that she was doing;
 
-<sup>37</sup> and it came to pass in those days she, having ailed, died, and having bathed her, they laid her in an upper chamber,
+**³⁷** and it came to pass in those days she, having ailed, died, and having bathed her, they laid her in an upper chamber,
 
-<sup>38</sup> and Lydda being nigh to Joppa, the disciples having heard that Peter is in that [place], sent two men unto him, calling on him not to delay to come through unto them.
+**³⁸** and Lydda being nigh to Joppa, the disciples having heard that Peter is in that [place], sent two men unto him, calling on him not to delay to come through unto them.
 
-<sup>39</sup> And Peter having risen, went with them, whom having come, they brought into the upper chamber, and all the widows stood by him weeping, and shewing coats and garments, as many as Dorcas was making while she was with them.
+**³⁹** And Peter having risen, went with them, whom having come, they brought into the upper chamber, and all the widows stood by him weeping, and shewing coats and garments, as many as Dorcas was making while she was with them.
 
-<sup>40</sup> And Peter having put them all forth without, having bowed the knees, did pray, and having turned unto the body said, 'Tabitha, arise;' and she opened her eyes, and having seen Peter, she sat up,
+**⁴⁰** And Peter having put them all forth without, having bowed the knees, did pray, and having turned unto the body said, 'Tabitha, arise;' and she opened her eyes, and having seen Peter, she sat up,
 
-<sup>41</sup> and having given her [his] hand, he lifted her up, and having called the saints and the widows, he presented her alive,
+**⁴¹** and having given her [his] hand, he lifted her up, and having called the saints and the widows, he presented her alive,
 
-<sup>42</sup> and it became known throughout all Joppa, and many believed on the Lord;
+**⁴²** and it became known throughout all Joppa, and many believed on the Lord;
 
-<sup>43</sup> and it came to pass, that he remained many days in Joppa, with a certain one, Simon a tanner.
+**⁴³** and it came to pass, that he remained many days in Joppa, with a certain one, Simon a tanner.

@@ -1,27 +1,27 @@
 # Chapter 17
 
-<sup>1</sup> And Jehovah speaketh unto Moses, saying,
+**¹** And Jehovah speaketh unto Moses, saying,
 
-<sup>2</sup> 'Speak unto the sons of Israel, and take from them each a rod, for a father's house, from all their princes, for the house of their fathers, twelve rods; the name of each thou dost write on his rod,
+**²** 'Speak unto the sons of Israel, and take from them each a rod, for a father's house, from all their princes, for the house of their fathers, twelve rods; the name of each thou dost write on his rod,
 
-<sup>3</sup> and Aaron's name thou dost write on the tribe of Levi; for one rod [is] for the head of their fathers' house:
+**³** and Aaron's name thou dost write on the tribe of Levi; for one rod [is] for the head of their fathers' house:
 
-<sup>4</sup> and thou hast placed them in the tent of meeting, before the testimony, where I meet with you.
+**⁴** and thou hast placed them in the tent of meeting, before the testimony, where I meet with you.
 
-<sup>5</sup> 'And it hath come to pass, the man's rod on whom I fix doth flourish, and I have caused to cease from off me the murmurings of the sons of Israel, which they are murmuring against you.'
+**⁵** 'And it hath come to pass, the man's rod on whom I fix doth flourish, and I have caused to cease from off me the murmurings of the sons of Israel, which they are murmuring against you.'
 
-<sup>6</sup> And Moses speaketh unto the sons of Israel, and all their princes give unto him one rod for a prince, one rod for a prince, for their fathers' house, twelve rods, and the rod of Aaron [is] in the midst of their rods;
+**⁶** And Moses speaketh unto the sons of Israel, and all their princes give unto him one rod for a prince, one rod for a prince, for their fathers' house, twelve rods, and the rod of Aaron [is] in the midst of their rods;
 
-<sup>7</sup> and Moses placeth the rods before Jehovah, in the tent of the testimony.
+**⁷** and Moses placeth the rods before Jehovah, in the tent of the testimony.
 
-<sup>8</sup> And it cometh to pass, on the morrow, that Moses goeth in unto the tent of the testimony, and lo, the rod of Aaron hath flourished for the house of Levi, and is bringing out flourishing, and doth blossom blossoms, and doth produce almonds;
+**⁸** And it cometh to pass, on the morrow, that Moses goeth in unto the tent of the testimony, and lo, the rod of Aaron hath flourished for the house of Levi, and is bringing out flourishing, and doth blossom blossoms, and doth produce almonds;
 
-<sup>9</sup> and Moses bringeth out all the rods from before Jehovah, unto all the sons of Israel, and they look, and take each his rod.
+**⁹** and Moses bringeth out all the rods from before Jehovah, unto all the sons of Israel, and they look, and take each his rod.
 
-<sup>10</sup> And Jehovah saith unto Moses, 'Put back the rod of Aaron, before the testimony, for a charge, for a sign to the sons of rebellion, and thou dost remove their murmurings from off me, and they do not die;'
+**¹⁰** And Jehovah saith unto Moses, 'Put back the rod of Aaron, before the testimony, for a charge, for a sign to the sons of rebellion, and thou dost remove their murmurings from off me, and they do not die;'
 
-<sup>11</sup> and Moses doth as Jehovah hath commanded him; so he hath done.
+**¹¹** and Moses doth as Jehovah hath commanded him; so he hath done.
 
-<sup>12</sup> And the sons of Israel speak unto Moses, saying, 'Lo, we have expired; we have perished; we have all of us perished;
+**¹²** And the sons of Israel speak unto Moses, saying, 'Lo, we have expired; we have perished; we have all of us perished;
 
-<sup>13</sup> any who is at all drawing near unto the tabernacle of Jehovah dieth; have we not been consumed — to expire?'
+**¹³** any who is at all drawing near unto the tabernacle of Jehovah dieth; have we not been consumed — to expire?'

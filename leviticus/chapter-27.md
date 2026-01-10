@@ -1,69 +1,69 @@
 # Chapter 27
 
-<sup>1</sup> And Jehovah speaketh unto Moses, saying,
+**¹** And Jehovah speaketh unto Moses, saying,
 
-<sup>2</sup> 'Speak unto the sons of Israel, and thou hast said unto them, When a man maketh a wonderful vow, by thy valuation the persons [are] Jehovah's.
+**²** 'Speak unto the sons of Israel, and thou hast said unto them, When a man maketh a wonderful vow, by thy valuation the persons [are] Jehovah's.
 
-<sup>3</sup> When thy valuation hath been of the male from a son of twenty years even unto a son of sixty years, then hath been thy valuation fifty shekels of silver by the shekel of the sanctuary.
+**³** When thy valuation hath been of the male from a son of twenty years even unto a son of sixty years, then hath been thy valuation fifty shekels of silver by the shekel of the sanctuary.
 
-<sup>4</sup> And if it [is] a female — then hath thy valuation been thirty shekels;
+**⁴** And if it [is] a female — then hath thy valuation been thirty shekels;
 
-<sup>5</sup> and if from a son of five years even unto a son of twenty years — then hath thy valuation been of the male twenty shekels, and for the female, ten shekels;
+**⁵** and if from a son of five years even unto a son of twenty years — then hath thy valuation been of the male twenty shekels, and for the female, ten shekels;
 
-<sup>6</sup> and if from a son of a month even unto a son of five years — then hath thy valuation been of the male five shekels of silver, and for the female thy valuation [is] three shekels of silver;
+**⁶** and if from a son of a month even unto a son of five years — then hath thy valuation been of the male five shekels of silver, and for the female thy valuation [is] three shekels of silver;
 
-<sup>7</sup> and if from a son of sixty years and above — if a male, then hath thy valuation been fifteen shekels, and for a female, ten shekels.
+**⁷** and if from a son of sixty years and above — if a male, then hath thy valuation been fifteen shekels, and for a female, ten shekels.
 
-<sup>8</sup> 'And if he is poorer than thy valuation, then he hath presented himself before the priest, and the priest hath valued him; according to that which the hand of him who is vowing doth reach doth the priest value him.
+**⁸** 'And if he is poorer than thy valuation, then he hath presented himself before the priest, and the priest hath valued him; according to that which the hand of him who is vowing doth reach doth the priest value him.
 
-<sup>9</sup> 'And if [it is] a beast of which they bring near an offering to Jehovah, all that [one] giveth of it to Jehovah is holy;
+**⁹** 'And if [it is] a beast of which they bring near an offering to Jehovah, all that [one] giveth of it to Jehovah is holy;
 
-<sup>10</sup> he doth not change it nor exchange it, a good for a bad, or a bad for a good; and if he really change beast for beast, — then it hath been — it and its exchange is holy.
+**¹⁰** he doth not change it nor exchange it, a good for a bad, or a bad for a good; and if he really change beast for beast, — then it hath been — it and its exchange is holy.
 
-<sup>11</sup> 'And if [it is] any unclean beast of which they do not bring near an offering to Jehovah, then he hath presented the beast before the priest,
+**¹¹** 'And if [it is] any unclean beast of which they do not bring near an offering to Jehovah, then he hath presented the beast before the priest,
 
-<sup>12</sup> and the priest hath valued it; whether good or bad, according to thy valuation, O priest, so it is;
+**¹²** and the priest hath valued it; whether good or bad, according to thy valuation, O priest, so it is;
 
-<sup>13</sup> and if he really redeem it, then he hath added its fifth to thy valuation.
+**¹³** and if he really redeem it, then he hath added its fifth to thy valuation.
 
-<sup>14</sup> 'And when a man sanctifieth his house, a holy thing to Jehovah, then hath the priest valued it, whether good or bad; as the priest doth value it so it standeth;
+**¹⁴** 'And when a man sanctifieth his house, a holy thing to Jehovah, then hath the priest valued it, whether good or bad; as the priest doth value it so it standeth;
 
-<sup>15</sup> and if he who is sanctifying doth redeem his house, then he hath added a fifth of the money of thy valuation to it, and it hath become his.
+**¹⁵** and if he who is sanctifying doth redeem his house, then he hath added a fifth of the money of thy valuation to it, and it hath become his.
 
-<sup>16</sup> 'And if of the field of his possession a man sanctify to Jehovah, then hath thy valuation been according to its seed; a homer of barley-seed at fifty shekels of silver;
+**¹⁶** 'And if of the field of his possession a man sanctify to Jehovah, then hath thy valuation been according to its seed; a homer of barley-seed at fifty shekels of silver;
 
-<sup>17</sup> if from the year of the jubilee he sanctify his field, according to thy valuation it standeth;
+**¹⁷** if from the year of the jubilee he sanctify his field, according to thy valuation it standeth;
 
-<sup>18</sup> and if after the jubilee he sanctify his field, then hath the priest reckoned to him the money according to the years which are left, unto the year of the jubilee, and it hath been abated from thy valuation.
+**¹⁸** and if after the jubilee he sanctify his field, then hath the priest reckoned to him the money according to the years which are left, unto the year of the jubilee, and it hath been abated from thy valuation.
 
-<sup>19</sup> 'And if he really redeem the field — he who is sanctifying it — then he hath added a fifth of the money of thy valuation to it, and it hath been established to him;
+**¹⁹** 'And if he really redeem the field — he who is sanctifying it — then he hath added a fifth of the money of thy valuation to it, and it hath been established to him;
 
-<sup>20</sup> and if he do not redeem the field, or if he hath sold the field to another man, it is not redeemed any more;
+**²⁰** and if he do not redeem the field, or if he hath sold the field to another man, it is not redeemed any more;
 
-<sup>21</sup> and the field hath been, in its going out in the jubilee, holy to Jehovah as a field which is devoted; to the priest is its possession.
+**²¹** and the field hath been, in its going out in the jubilee, holy to Jehovah as a field which is devoted; to the priest is its possession.
 
-<sup>22</sup> 'And if the field of his purchase (which [is] not of the fields of his possession) [one] sanctify to Jehovah —
+**²²** 'And if the field of his purchase (which [is] not of the fields of his possession) [one] sanctify to Jehovah —
 
-<sup>23</sup> then hath the priest reckoned to him the amount of thy valuation unto the year of jubilee, and he hath given thy valuation in that day — a holy thing to Jehovah;
+**²³** then hath the priest reckoned to him the amount of thy valuation unto the year of jubilee, and he hath given thy valuation in that day — a holy thing to Jehovah;
 
-<sup>24</sup> in the year of the jubilee the field returneth to him from whom he bought it, to him whose [is] the possession of the land.
+**²⁴** in the year of the jubilee the field returneth to him from whom he bought it, to him whose [is] the possession of the land.
 
-<sup>25</sup> And all thy valuation is by the shekel of the sanctuary: twenty gerahs is the shekel.
+**²⁵** And all thy valuation is by the shekel of the sanctuary: twenty gerahs is the shekel.
 
-<sup>26</sup> 'Only, a firstling which is Jehovah's firstling among beasts — no man doth sanctify it, whether ox or sheep; it [is] Jehovah's.
+**²⁶** 'Only, a firstling which is Jehovah's firstling among beasts — no man doth sanctify it, whether ox or sheep; it [is] Jehovah's.
 
-<sup>27</sup> And if among the unclean beasts, then he hath ransomed [it] at thy valuation, and he hath added its fifth to it; and if it is not redeemed, then it hath been sold at thy valuation.
+**²⁷** And if among the unclean beasts, then he hath ransomed [it] at thy valuation, and he hath added its fifth to it; and if it is not redeemed, then it hath been sold at thy valuation.
 
-<sup>28</sup> 'Only, no devoted thing which a man devoteth to Jehovah, of all that he hath, of man, and beast, and of the field of his possession, is sold or redeemed; every devoted thing is most holy to Jehovah.
+**²⁸** 'Only, no devoted thing which a man devoteth to Jehovah, of all that he hath, of man, and beast, and of the field of his possession, is sold or redeemed; every devoted thing is most holy to Jehovah.
 
-<sup>29</sup> 'No devoted thing, which is devoted of man, is ransomed, it is surely put to death.
+**²⁹** 'No devoted thing, which is devoted of man, is ransomed, it is surely put to death.
 
-<sup>30</sup> And all tithe of the land, of the seed of the land, of the fruit of the tree, is Jehovah's — holy to Jehovah.
+**³⁰** And all tithe of the land, of the seed of the land, of the fruit of the tree, is Jehovah's — holy to Jehovah.
 
-<sup>31</sup> 'And if a man really redeem [any] of his tithe, its fifth he addeth to it.
+**³¹** 'And if a man really redeem [any] of his tithe, its fifth he addeth to it.
 
-<sup>32</sup> 'And all the tithe of the herd and of the flock — all that passeth by under the rod — the tenth is holy to Jehovah;
+**³²** 'And all the tithe of the herd and of the flock — all that passeth by under the rod — the tenth is holy to Jehovah;
 
-<sup>33</sup> he enquireth not between good and bad, nor doth he change it; and if he really change it — then it hath been — it and its exchange is holy; it is not redeemed.'
+**³³** he enquireth not between good and bad, nor doth he change it; and if he really change it — then it hath been — it and its exchange is holy; it is not redeemed.'
 
-<sup>34</sup> These [are] the commands which Jehovah hath commanded Moses for the sons of Israel, in mount Sinai.
+**³⁴** These [are] the commands which Jehovah hath commanded Moses for the sons of Israel, in mount Sinai.

@@ -1,59 +1,59 @@
 # Chapter 2
 
-<sup>1</sup> My little children, these things I write to you, that ye may not sin: and if any one may sin, an advocate we have with the Father, Jesus Christ, a righteous one,
+**¹** My little children, these things I write to you, that ye may not sin: and if any one may sin, an advocate we have with the Father, Jesus Christ, a righteous one,
 
-<sup>2</sup> and he — he is a propitiation for our sins, and not for ours only, but also for the whole world,
+**²** and he — he is a propitiation for our sins, and not for ours only, but also for the whole world,
 
-<sup>3</sup> and in this we know that we have known him, if his commands we may keep;
+**³** and in this we know that we have known him, if his commands we may keep;
 
-<sup>4</sup> he who is saying, 'I have known him,' and his command is not keeping, a liar he is, and in him the truth is not;
+**⁴** he who is saying, 'I have known him,' and his command is not keeping, a liar he is, and in him the truth is not;
 
-<sup>5</sup> and whoever may keep his word, truly in him the love of God hath been perfected; in this we know that in him we are.
+**⁵** and whoever may keep his word, truly in him the love of God hath been perfected; in this we know that in him we are.
 
-<sup>6</sup> He who is saying in him he doth remain, ought according as he walked also himself so to walk.
+**⁶** He who is saying in him he doth remain, ought according as he walked also himself so to walk.
 
-<sup>7</sup> Brethren, a new command I write not to you, but an old command, that ye had from the beginning — the old command is the word that ye heard from the beginning;
+**⁷** Brethren, a new command I write not to you, but an old command, that ye had from the beginning — the old command is the word that ye heard from the beginning;
 
-<sup>8</sup> again, a new command I write to you, which thing is true in him and in you, because the darkness doth pass away, and the true light doth now shine;
+**⁸** again, a new command I write to you, which thing is true in him and in you, because the darkness doth pass away, and the true light doth now shine;
 
-<sup>9</sup> he who is saying, in the light he is, and his brother is hating, in the darkness he is till now;
+**⁹** he who is saying, in the light he is, and his brother is hating, in the darkness he is till now;
 
-<sup>10</sup> he who is loving his brother, in the light he doth remain, and a stumbling-block in him there is not;
+**¹⁰** he who is loving his brother, in the light he doth remain, and a stumbling-block in him there is not;
 
-<sup>11</sup> and he who is hating his brother, in the darkness he is, and in the darkness he doth walk, and he hath not known whither he doth go, because the darkness did blind his eyes.
+**¹¹** and he who is hating his brother, in the darkness he is, and in the darkness he doth walk, and he hath not known whither he doth go, because the darkness did blind his eyes.
 
-<sup>12</sup> I write to you, little children, because the sins have been forgiven you through his name;
+**¹²** I write to you, little children, because the sins have been forgiven you through his name;
 
-<sup>13</sup> I write to you, fathers, because ye have known him who [is] from the beginning; I write to you, young men, because ye have overcome the evil. I write to you, little youths, because ye have known the Father:
+**¹³** I write to you, fathers, because ye have known him who [is] from the beginning; I write to you, young men, because ye have overcome the evil. I write to you, little youths, because ye have known the Father:
 
-<sup>14</sup> I did write to you, fathers, because ye have known him who [is] from the beginning; I did write to you, young men, because ye are strong, and the word of God in you doth remain, and ye have overcome the evil.
+**¹⁴** I did write to you, fathers, because ye have known him who [is] from the beginning; I did write to you, young men, because ye are strong, and the word of God in you doth remain, and ye have overcome the evil.
 
-<sup>15</sup> Love not ye the world, nor the things in the world; if any one doth love the world, the love of the Father is not in him,
+**¹⁵** Love not ye the world, nor the things in the world; if any one doth love the world, the love of the Father is not in him,
 
-<sup>16</sup> because all that [is] in the world — the desire of the flesh, and the desire of the eyes, and the ostentation of the life — is not of the Father, but of the world,
+**¹⁶** because all that [is] in the world — the desire of the flesh, and the desire of the eyes, and the ostentation of the life — is not of the Father, but of the world,
 
-<sup>17</sup> and the world doth pass away, and the desire of it, and he who is doing the will of God, he doth remain — to the age.
+**¹⁷** and the world doth pass away, and the desire of it, and he who is doing the will of God, he doth remain — to the age.
 
-<sup>18</sup> Little youths, it is the last hour; and even as ye heard that the antichrist doth come, even now antichrists have become many — whence we know that it is the last hour;
+**¹⁸** Little youths, it is the last hour; and even as ye heard that the antichrist doth come, even now antichrists have become many — whence we know that it is the last hour;
 
-<sup>19</sup> out of us they went forth, but they were not of us, for if they had been of us, they would have remained with us; but — that they might be manifested that they are not all of us.
+**¹⁹** out of us they went forth, but they were not of us, for if they had been of us, they would have remained with us; but — that they might be manifested that they are not all of us.
 
-<sup>20</sup> And ye have an anointing from the Holy One, and have known all things;
+**²⁰** And ye have an anointing from the Holy One, and have known all things;
 
-<sup>21</sup> I did not write to you because ye have not known the truth, but because ye have known it, and because no lie is of the truth.
+**²¹** I did not write to you because ye have not known the truth, but because ye have known it, and because no lie is of the truth.
 
-<sup>22</sup> Who is the liar, except he who is denying that Jesus is the Christ? this one is the antichrist who is denying the Father and the Son;
+**²²** Who is the liar, except he who is denying that Jesus is the Christ? this one is the antichrist who is denying the Father and the Son;
 
-<sup>23</sup> every one who is denying the Son, neither hath he the Father, [he who is confessing the Son hath the Father also.]
+**²³** every one who is denying the Son, neither hath he the Father, [he who is confessing the Son hath the Father also.]
 
-<sup>24</sup> Ye, then, that which ye heard from the beginning, in you let it remain; if in you may remain that which from the beginning ye did hear, ye also in the Son and in the Father shall remain,
+**²⁴** Ye, then, that which ye heard from the beginning, in you let it remain; if in you may remain that which from the beginning ye did hear, ye also in the Son and in the Father shall remain,
 
-<sup>25</sup> and this is the promise that He did promise us — the life the age-during.
+**²⁵** and this is the promise that He did promise us — the life the age-during.
 
-<sup>26</sup> These things I did write to you concerning those leading you astray;
+**²⁶** These things I did write to you concerning those leading you astray;
 
-<sup>27</sup> and you, the anointing that ye did receive from him, in you it doth remain, and ye have no need that any one may teach you, but as the same anointing doth teach you concerning all, and is true, and is not a lie, and even as was taught you, ye shall remain in him.
+**²⁷** and you, the anointing that ye did receive from him, in you it doth remain, and ye have no need that any one may teach you, but as the same anointing doth teach you concerning all, and is true, and is not a lie, and even as was taught you, ye shall remain in him.
 
-<sup>28</sup> And now, little children, remain in him, that when he may be manifested, we may have boldness, and may not be ashamed before him, in his presence;
+**²⁸** And now, little children, remain in him, that when he may be manifested, we may have boldness, and may not be ashamed before him, in his presence;
 
-<sup>29</sup> if ye know that he is righteous, know ye that every one doing the righteousness, of him hath been begotten.
+**²⁹** if ye know that he is righteous, know ye that every one doing the righteousness, of him hath been begotten.

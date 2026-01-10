@@ -1,99 +1,99 @@
 # Chapter 2
 
-<sup>1</sup> And in the second year of the reign of Nebuchadnezzar, dreamed hath Nebuchadnezzar dreams, and his spirit doth move itself, and his sleep hath been against him;
+**¹** And in the second year of the reign of Nebuchadnezzar, dreamed hath Nebuchadnezzar dreams, and his spirit doth move itself, and his sleep hath been against him;
 
-<sup>2</sup> and the king saith to call for scribes, and for enchanters, and for sorcerers, and for Chaldeans, to declare to the king his dreams. And they come in and stand before the king;
+**²** and the king saith to call for scribes, and for enchanters, and for sorcerers, and for Chaldeans, to declare to the king his dreams. And they come in and stand before the king;
 
-<sup>3</sup> and the king saith to them, 'A dream I have dreamed, and moved is my spirit to know the dream.'
+**³** and the king saith to them, 'A dream I have dreamed, and moved is my spirit to know the dream.'
 
-<sup>4</sup> And the Chaldeans speak to the king [in] Aramaean, 'O king, to the ages live, tell the dream to thy servants, and the interpretation we do shew.'
+**⁴** And the Chaldeans speak to the king [in] Aramaean, 'O king, to the ages live, tell the dream to thy servants, and the interpretation we do shew.'
 
-<sup>5</sup> The king hath answered and said to the Chaldeans, 'The thing from me is gone; if ye do not cause me to know the dream and its interpretation, pieces ye are made, and your houses are made dunghills;
+**⁵** The king hath answered and said to the Chaldeans, 'The thing from me is gone; if ye do not cause me to know the dream and its interpretation, pieces ye are made, and your houses are made dunghills;
 
-<sup>6</sup> and if the dream and its interpretation ye do shew, gifts, and fee, and great glory ye receive from before me, therefore the dream and its interpretation shew ye me.'
+**⁶** and if the dream and its interpretation ye do shew, gifts, and fee, and great glory ye receive from before me, therefore the dream and its interpretation shew ye me.'
 
-<sup>7</sup> They have answered a second time, and are saying, 'Let the king tell the dream to his servants, and the interpretation we do shew.
+**⁷** They have answered a second time, and are saying, 'Let the king tell the dream to his servants, and the interpretation we do shew.
 
-<sup>8</sup> The king hath answered and said, 'Of a truth I know that time ye are gaining, because that ye have seen that the thing is gone from me,
+**⁸** The king hath answered and said, 'Of a truth I know that time ye are gaining, because that ye have seen that the thing is gone from me,
 
-<sup>9</sup> [so] that, if the dream ye do not cause me to know — one is your sentence, seeing a word lying and corrupt ye have prepared to speak before me, till that the time is changed, therefore the dream tell ye to me, then do I know that its interpretation ye do shew me.'
+**⁹** [so] that, if the dream ye do not cause me to know — one is your sentence, seeing a word lying and corrupt ye have prepared to speak before me, till that the time is changed, therefore the dream tell ye to me, then do I know that its interpretation ye do shew me.'
 
-<sup>10</sup> The Chaldeans have answered before the king, and are saying, 'There is not a man on the earth who is able to shew the king's matter; therefore, no king, chief, and ruler, hath asked such a thing as this of any scribe, and enchanter, and Chaldean;
+**¹⁰** The Chaldeans have answered before the king, and are saying, 'There is not a man on the earth who is able to shew the king's matter; therefore, no king, chief, and ruler, hath asked such a thing as this of any scribe, and enchanter, and Chaldean;
 
-<sup>11</sup> and the thing that the king is asking [is] precious, and others are there not that do shew it before the king, save the gods, whose dwelling is not with flesh.'
+**¹¹** and the thing that the king is asking [is] precious, and others are there not that do shew it before the king, save the gods, whose dwelling is not with flesh.'
 
-<sup>12</sup> Therefore the king hath been angry and very wroth, and hath said to destroy all the wise men of Babylon;
+**¹²** Therefore the king hath been angry and very wroth, and hath said to destroy all the wise men of Babylon;
 
-<sup>13</sup> And the sentence hath gone forth, and the wise men are being slain, and they have sought Daniel and his companions to be slain.
+**¹³** And the sentence hath gone forth, and the wise men are being slain, and they have sought Daniel and his companions to be slain.
 
-<sup>14</sup> Then Daniel hath replied [with] counsel and discretion to Arioch chief of the executioners of the king, who hath gone forth to slay the wise men of Babylon.
+**¹⁴** Then Daniel hath replied [with] counsel and discretion to Arioch chief of the executioners of the king, who hath gone forth to slay the wise men of Babylon.
 
-<sup>15</sup> He hath answered and said to Arioch the king's captain, 'Wherefore [is] the sentence so urgent from before the king?' Then Arioch hath made the thing known to Daniel,
+**¹⁵** He hath answered and said to Arioch the king's captain, 'Wherefore [is] the sentence so urgent from before the king?' Then Arioch hath made the thing known to Daniel,
 
-<sup>16</sup> and Daniel hath gone up, and sought of the king that he would give him time to shew the interpretation to the king.
+**¹⁶** and Daniel hath gone up, and sought of the king that he would give him time to shew the interpretation to the king.
 
-<sup>17</sup> Then Daniel to his house hath gone, and to Hananiah, Mishael, and Azariah, his companions, he hath made the thing known,
+**¹⁷** Then Daniel to his house hath gone, and to Hananiah, Mishael, and Azariah, his companions, he hath made the thing known,
 
-<sup>18</sup> and to seek mercies from before the God of the heavens concerning this secret, that they destroy not Daniel and his companions with the rest of the wise men of Babylon.
+**¹⁸** and to seek mercies from before the God of the heavens concerning this secret, that they destroy not Daniel and his companions with the rest of the wise men of Babylon.
 
-<sup>19</sup> Then to Daniel, in a vision of the night, the secret hath been revealed. Then hath Daniel blessed the God of the heavens.
+**¹⁹** Then to Daniel, in a vision of the night, the secret hath been revealed. Then hath Daniel blessed the God of the heavens.
 
-<sup>20</sup> Daniel hath answered and said, 'Let the name of God be blessed from age even unto age, for wisdom and might — for they are His.
+**²⁰** Daniel hath answered and said, 'Let the name of God be blessed from age even unto age, for wisdom and might — for they are His.
 
-<sup>21</sup> And He is changing times and seasons, He is causing kings to pass away, and He is raising up kings; He is giving wisdom to the wise, and knowledge to those possessing understanding.
+**²¹** And He is changing times and seasons, He is causing kings to pass away, and He is raising up kings; He is giving wisdom to the wise, and knowledge to those possessing understanding.
 
-<sup>22</sup> He is revealing deep and hidden things; He hath known what [is] in darkness, and light with Him hath dwelt.
+**²²** He is revealing deep and hidden things; He hath known what [is] in darkness, and light with Him hath dwelt.
 
-<sup>23</sup> Thee, O God of my fathers, I am thanking and praising, for wisdom and might Thou hast given to me; and now, Thou hast caused me to know that which we have sought from Thee, for the king's matter Thou hast caused us to know.'
+**²³** Thee, O God of my fathers, I am thanking and praising, for wisdom and might Thou hast given to me; and now, Thou hast caused me to know that which we have sought from Thee, for the king's matter Thou hast caused us to know.'
 
-<sup>24</sup> Therefore Daniel hath gone up unto Arioch, whom the king hath appointed to destroy the wise men of Babylon; he hath gone, and thus hath said to him, 'The wise men of Babylon thou dost not destroy, bring me up before the king, and the interpretation to the king I do shew.'
+**²⁴** Therefore Daniel hath gone up unto Arioch, whom the king hath appointed to destroy the wise men of Babylon; he hath gone, and thus hath said to him, 'The wise men of Babylon thou dost not destroy, bring me up before the king, and the interpretation to the king I do shew.'
 
-<sup>25</sup> Then Arioch in haste hath brought up Daniel before the king, and thus hath said to him — 'I have found a man of the sons of the Removed of Judah, who the interpretation to the king doth make known.'
+**²⁵** Then Arioch in haste hath brought up Daniel before the king, and thus hath said to him — 'I have found a man of the sons of the Removed of Judah, who the interpretation to the king doth make known.'
 
-<sup>26</sup> The king hath answered and said to Daniel, whose name [is] Belteshazzar, 'Art thou able to cause me to know the dream that I have seen, and its interpretation?'
+**²⁶** The king hath answered and said to Daniel, whose name [is] Belteshazzar, 'Art thou able to cause me to know the dream that I have seen, and its interpretation?'
 
-<sup>27</sup> Daniel hath answered before the king and said, 'The secret that the king is asking, the wise men, the enchanters, the scribes, the soothsayers, are not able to shew to the king;
+**²⁷** Daniel hath answered before the king and said, 'The secret that the king is asking, the wise men, the enchanters, the scribes, the soothsayers, are not able to shew to the king;
 
-<sup>28</sup> but there is a God in the heavens, a revealer of secrets, and He hath made known to king Nebuchadnezzar that which [is] to be in the latter end of the days. 'Thy dream and the visions of thy head on thy bed are these:
+**²⁸** but there is a God in the heavens, a revealer of secrets, and He hath made known to king Nebuchadnezzar that which [is] to be in the latter end of the days. 'Thy dream and the visions of thy head on thy bed are these:
 
-<sup>29</sup> Thou, O king, thy thoughts on thy bed have come up [concerning] that which [is] to be after this, and the Revealer of secrets hath caused thee to know that which [is] to be.
+**²⁹** Thou, O king, thy thoughts on thy bed have come up [concerning] that which [is] to be after this, and the Revealer of secrets hath caused thee to know that which [is] to be.
 
-<sup>30</sup> As to me — not for [any] wisdom that is in me above any living hath this secret been revealed to me; but for the intent that the interpretation to the king they make known, and the thoughts of thy heart thou dost know.
+**³⁰** As to me — not for [any] wisdom that is in me above any living hath this secret been revealed to me; but for the intent that the interpretation to the king they make known, and the thoughts of thy heart thou dost know.
 
-<sup>31</sup> 'Thou, O king, wast looking, and lo, a certain great image. This image [is] mighty, and its brightness excellent; it is standing over-against thee, and its appearance [is] terrible.
+**³¹** 'Thou, O king, wast looking, and lo, a certain great image. This image [is] mighty, and its brightness excellent; it is standing over-against thee, and its appearance [is] terrible.
 
-<sup>32</sup> This image! its head [is] of good gold, its breasts and its arms of silver, its belly and its thighs of brass;
+**³²** This image! its head [is] of good gold, its breasts and its arms of silver, its belly and its thighs of brass;
 
-<sup>33</sup> its legs of iron, its feet, part of them of iron, and part of them of clay.
+**³³** its legs of iron, its feet, part of them of iron, and part of them of clay.
 
-<sup>34</sup> Thou wast looking till that a stone hath been cut out without hands, and it hath smitten the image on its feet, that [are] of iron and of clay, and it hath broken them small;
+**³⁴** Thou wast looking till that a stone hath been cut out without hands, and it hath smitten the image on its feet, that [are] of iron and of clay, and it hath broken them small;
 
-<sup>35</sup> then broken small together have been the iron, the clay, the brass, the silver, and the gold, and they have been as chaff from the summer threshing-floor, and carried them away hath the wind, and no place hath been found for them: and the stone that smote the image hath become a great mountain, and hath filled all the land.
+**³⁵** then broken small together have been the iron, the clay, the brass, the silver, and the gold, and they have been as chaff from the summer threshing-floor, and carried them away hath the wind, and no place hath been found for them: and the stone that smote the image hath become a great mountain, and hath filled all the land.
 
-<sup>36</sup> This [is] the dream, and its interpretation we do tell before the king.
+**³⁶** This [is] the dream, and its interpretation we do tell before the king.
 
-<sup>37</sup> 'Thou, O king, art a king of kings, for the God of the heavens a kingdom, strength, and might, and glory, hath given to thee;
+**³⁷** 'Thou, O king, art a king of kings, for the God of the heavens a kingdom, strength, and might, and glory, hath given to thee;
 
-<sup>38</sup> and whithersoever sons of men are dwelling, the beast of the field, and the fowl of the heavens, He hath given into thy hand, and hath caused thee to rule over them all; thou [art] this head of gold.
+**³⁸** and whithersoever sons of men are dwelling, the beast of the field, and the fowl of the heavens, He hath given into thy hand, and hath caused thee to rule over them all; thou [art] this head of gold.
 
-<sup>39</sup> And after thee doth rise up another kingdom lower than those, and another third kingdom of brass, that doth rule overall the earth.
+**³⁹** And after thee doth rise up another kingdom lower than those, and another third kingdom of brass, that doth rule overall the earth.
 
-<sup>40</sup> And the fourth kingdom is strong as iron, because that iron is breaking small, and making feeble, all [things], even as iron that is breaking all these, it beateth small and breaketh.
+**⁴⁰** And the fourth kingdom is strong as iron, because that iron is breaking small, and making feeble, all [things], even as iron that is breaking all these, it beateth small and breaketh.
 
-<sup>41</sup> As to that which thou hast seen: the feet and toes, part of them potter's clay, and part of them iron, the kingdom is divided: and some of the standing of the iron [is] to be in it, because that thou hast seen the iron mixed with miry clay.
+**⁴¹** As to that which thou hast seen: the feet and toes, part of them potter's clay, and part of them iron, the kingdom is divided: and some of the standing of the iron [is] to be in it, because that thou hast seen the iron mixed with miry clay.
 
-<sup>42</sup> As to the toes of the feet, part of them iron, and part of them clay: some part of the kingdom is strong, and some part of it is brittle.
+**⁴²** As to the toes of the feet, part of them iron, and part of them clay: some part of the kingdom is strong, and some part of it is brittle.
 
-<sup>43</sup> Because thou hast seen iron mixed with miry clay, they are mixing themselves with the seed of men: and they are not adhering one with another, even as iron is not mixed with clay.
+**⁴³** Because thou hast seen iron mixed with miry clay, they are mixing themselves with the seed of men: and they are not adhering one with another, even as iron is not mixed with clay.
 
-<sup>44</sup> 'And in the days of these kings raise up doth the God of the heavens a kingdom that is not destroyed — to the age, and its kingdom to another people is not left: it beateth small and endeth all these kingdoms, and it standeth to the age.
+**⁴⁴** 'And in the days of these kings raise up doth the God of the heavens a kingdom that is not destroyed — to the age, and its kingdom to another people is not left: it beateth small and endeth all these kingdoms, and it standeth to the age.
 
-<sup>45</sup> Because that thou hast seen that out of the mountain cut hath been a stone without hands, and it hath beaten small the iron, the brass, the clay, the silver, and the gold; the great God hath made known to the king that which [is] to be after this; and the dream [is] true, and its interpretation stedfast.
+**⁴⁵** Because that thou hast seen that out of the mountain cut hath been a stone without hands, and it hath beaten small the iron, the brass, the clay, the silver, and the gold; the great God hath made known to the king that which [is] to be after this; and the dream [is] true, and its interpretation stedfast.
 
-<sup>46</sup> Then hath king Nebuchadnezzar fallen on his face, and to Daniel he hath done obeisance, and present, and sweet things, he hath said to pour out to him.
+**⁴⁶** Then hath king Nebuchadnezzar fallen on his face, and to Daniel he hath done obeisance, and present, and sweet things, he hath said to pour out to him.
 
-<sup>47</sup> The king hath answered Daniel and said, 'Of a truth [it is] that your God is a God of gods, and a Lord of kings, and a revealer of secrets, since thou hast been able to reveal this secret.'
+**⁴⁷** The king hath answered Daniel and said, 'Of a truth [it is] that your God is a God of gods, and a Lord of kings, and a revealer of secrets, since thou hast been able to reveal this secret.'
 
-<sup>48</sup> Then the king hath made Daniel great, and many great gifts he hath given to him, and hath caused him to rule over all the province of Babylon, and chief of the perfects over all the wise men of Babylon.
+**⁴⁸** Then the king hath made Daniel great, and many great gifts he hath given to him, and hath caused him to rule over all the province of Babylon, and chief of the perfects over all the wise men of Babylon.
 
-<sup>49</sup> And Daniel hath sought from the king, and he hath appointed over the work of the province of Babylon, Shadrach, Meshach, and Abed-Nego, and Daniel [is] in the gate of the king.
+**⁴⁹** And Daniel hath sought from the king, and he hath appointed over the work of the province of Babylon, Shadrach, Meshach, and Abed-Nego, and Daniel [is] in the gate of the king.

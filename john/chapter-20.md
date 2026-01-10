@@ -1,63 +1,63 @@
 # Chapter 20
 
-<sup>1</sup> And on the first of the sabbaths, Mary the Magdalene doth come early (there being yet darkness) to the tomb, and she seeth the stone having been taken away out of the tomb,
+**¹** And on the first of the sabbaths, Mary the Magdalene doth come early (there being yet darkness) to the tomb, and she seeth the stone having been taken away out of the tomb,
 
-<sup>2</sup> she runneth, therefore, and cometh unto Simon Peter, and unto the other disciple whom Jesus was loving, and saith to them, 'They took away the Lord out of the tomb, and we have not known where they laid him.'
+**²** she runneth, therefore, and cometh unto Simon Peter, and unto the other disciple whom Jesus was loving, and saith to them, 'They took away the Lord out of the tomb, and we have not known where they laid him.'
 
-<sup>3</sup> Peter, therefore, went forth, and the other disciple, and they were coming to the tomb,
+**³** Peter, therefore, went forth, and the other disciple, and they were coming to the tomb,
 
-<sup>4</sup> and the two were running together, and the other disciple did run forward more quickly than Peter, and came first to the tomb,
+**⁴** and the two were running together, and the other disciple did run forward more quickly than Peter, and came first to the tomb,
 
-<sup>5</sup> and having stooped down, seeth the linen clothes lying, yet, indeed, he entered not.
+**⁵** and having stooped down, seeth the linen clothes lying, yet, indeed, he entered not.
 
-<sup>6</sup> Simon Peter, therefore, cometh, following him, and he entered into the tomb, and beholdeth the linen clothes lying,
+**⁶** Simon Peter, therefore, cometh, following him, and he entered into the tomb, and beholdeth the linen clothes lying,
 
-<sup>7</sup> and the napkin that was upon his head, not lying with the linen clothes, but apart, having been folded up, in one place;
+**⁷** and the napkin that was upon his head, not lying with the linen clothes, but apart, having been folded up, in one place;
 
-<sup>8</sup> then, therefore, entered also the other disciple who came first unto the tomb, and he saw, and did believe;
+**⁸** then, therefore, entered also the other disciple who came first unto the tomb, and he saw, and did believe;
 
-<sup>9</sup> for not yet did they know the Writing, that it behoveth him out of the dead to rise again.
+**⁹** for not yet did they know the Writing, that it behoveth him out of the dead to rise again.
 
-<sup>10</sup> The disciples therefore went away again unto their own friends,
+**¹⁰** The disciples therefore went away again unto their own friends,
 
-<sup>11</sup> and Mary was standing near the tomb, weeping without; as she was weeping, then, she stooped down to the tomb, and beholdeth two messengers in white, sitting,
+**¹¹** and Mary was standing near the tomb, weeping without; as she was weeping, then, she stooped down to the tomb, and beholdeth two messengers in white, sitting,
 
-<sup>12</sup> one at the head, and one at the feet, where the body of Jesus had been laid.
+**¹²** one at the head, and one at the feet, where the body of Jesus had been laid.
 
-<sup>13</sup> And they say to her, 'Woman, why dost thou weep?' she saith to them, 'Because they took away my Lord, and I have not known where they laid him;'
+**¹³** And they say to her, 'Woman, why dost thou weep?' she saith to them, 'Because they took away my Lord, and I have not known where they laid him;'
 
-<sup>14</sup> and these things having said, she turned backward, and seeth Jesus standing, and she had not known that it is Jesus.
+**¹⁴** and these things having said, she turned backward, and seeth Jesus standing, and she had not known that it is Jesus.
 
-<sup>15</sup> Jesus saith to her, 'Woman, why dost thou weep? whom dost thou seek;' she, supposing that he is the gardener, saith to him, 'Sir, if thou didst carry him away, tell me where thou didst lay him, and I will take him away;'
+**¹⁵** Jesus saith to her, 'Woman, why dost thou weep? whom dost thou seek;' she, supposing that he is the gardener, saith to him, 'Sir, if thou didst carry him away, tell me where thou didst lay him, and I will take him away;'
 
-<sup>16</sup> Jesus saith to her, 'Mary!' having turned, she saith to him, 'Rabbouni;' that is to say, 'Teacher.'
+**¹⁶** Jesus saith to her, 'Mary!' having turned, she saith to him, 'Rabbouni;' that is to say, 'Teacher.'
 
-<sup>17</sup> Jesus saith to her, 'Be not touching me, for I have not yet ascended unto my Father; and be going on to my brethren, and say to them, I ascend unto my Father, and your Father, and to my God, and to your God.'
+**¹⁷** Jesus saith to her, 'Be not touching me, for I have not yet ascended unto my Father; and be going on to my brethren, and say to them, I ascend unto my Father, and your Father, and to my God, and to your God.'
 
-<sup>18</sup> Mary the Magdalene cometh, telling to the disciples that she hath seen the Lord, and [that] these things he said to her.
+**¹⁸** Mary the Magdalene cometh, telling to the disciples that she hath seen the Lord, and [that] these things he said to her.
 
-<sup>19</sup> It being, therefore, evening, on that day, the first of the sabbaths, and the doors having been shut where the disciples were assembled, through fear of the Jews, Jesus came and stood in the midst, and saith to them, 'Peace to you;'
+**¹⁹** It being, therefore, evening, on that day, the first of the sabbaths, and the doors having been shut where the disciples were assembled, through fear of the Jews, Jesus came and stood in the midst, and saith to them, 'Peace to you;'
 
-<sup>20</sup> and this having said, he shewed them his hands and side; the disciples, therefore, rejoiced, having seen the Lord.
+**²⁰** and this having said, he shewed them his hands and side; the disciples, therefore, rejoiced, having seen the Lord.
 
-<sup>21</sup> Jesus, therefore, said to them again, 'Peace to you; according as the Father hath sent me, I also send you;'
+**²¹** Jesus, therefore, said to them again, 'Peace to you; according as the Father hath sent me, I also send you;'
 
-<sup>22</sup> and this having said, he breathed on [them], and saith to them, 'Receive the Holy Spirit;
+**²²** and this having said, he breathed on [them], and saith to them, 'Receive the Holy Spirit;
 
-<sup>23</sup> if of any ye may loose the sins, they are loosed to them; if of any ye may retain, they have been retained.'
+**²³** if of any ye may loose the sins, they are loosed to them; if of any ye may retain, they have been retained.'
 
-<sup>24</sup> And Thomas, one of the twelve, who is called Didymus, was not with them when Jesus came;
+**²⁴** And Thomas, one of the twelve, who is called Didymus, was not with them when Jesus came;
 
-<sup>25</sup> the other disciples, therefore, said to him, 'We have seen the Lord;' and he said to them, 'If I may not see in his hands the mark of the nails, and may put my finger to the mark of the nails, and may put my hand to his side, I will not believe.'
+**²⁵** the other disciples, therefore, said to him, 'We have seen the Lord;' and he said to them, 'If I may not see in his hands the mark of the nails, and may put my finger to the mark of the nails, and may put my hand to his side, I will not believe.'
 
-<sup>26</sup> And after eight days, again were his disciples within, and Thomas with them; Jesus cometh, the doors having been shut, and he stood in the midst, and said, 'Peace to you!'
+**²⁶** And after eight days, again were his disciples within, and Thomas with them; Jesus cometh, the doors having been shut, and he stood in the midst, and said, 'Peace to you!'
 
-<sup>27</sup> then he saith to Thomas, 'Bring thy finger hither, and see my hands, and bring thy hand, and put [it] to my side, and become not unbelieving, but believing.'
+**²⁷** then he saith to Thomas, 'Bring thy finger hither, and see my hands, and bring thy hand, and put [it] to my side, and become not unbelieving, but believing.'
 
-<sup>28</sup> And Thomas answered and said to him, 'My Lord and my God;'
+**²⁸** And Thomas answered and said to him, 'My Lord and my God;'
 
-<sup>29</sup> Jesus saith to him, 'Because thou hast seen me, Thomas, thou hast believed; happy those not having seen, and having believed.'
+**²⁹** Jesus saith to him, 'Because thou hast seen me, Thomas, thou hast believed; happy those not having seen, and having believed.'
 
-<sup>30</sup> Many indeed, therefore, other signs also did Jesus before his disciples, that are not written in this book;
+**³⁰** Many indeed, therefore, other signs also did Jesus before his disciples, that are not written in this book;
 
-<sup>31</sup> and these have been written that ye may believe that Jesus is the Christ, the Son of God, and that believing ye may have life in his name.'
+**³¹** and these have been written that ye may believe that Jesus is the Christ, the Son of God, and that believing ye may have life in his name.'

@@ -1,65 +1,65 @@
 # Chapter 2
 
-<sup>1</sup> And it cometh to pass afterwards, that David asketh at Jehovah, saying, 'Do I go up into one of the cities of Judah?' and Jehovah saith unto him, 'Go up.' And David saith, 'Whither do I go up?' and He saith, 'To Hebron.'
+**¹** And it cometh to pass afterwards, that David asketh at Jehovah, saying, 'Do I go up into one of the cities of Judah?' and Jehovah saith unto him, 'Go up.' And David saith, 'Whither do I go up?' and He saith, 'To Hebron.'
 
-<sup>2</sup> And David goeth up thither, and also his two wives, Ahinoam the Jezreelitess, and Abigail wife of Nabal the Carmelite;
+**²** And David goeth up thither, and also his two wives, Ahinoam the Jezreelitess, and Abigail wife of Nabal the Carmelite;
 
-<sup>3</sup> and his men who [are] with him hath David brought up — a man and his household — and they dwell in the cities of Hebron.
+**³** and his men who [are] with him hath David brought up — a man and his household — and they dwell in the cities of Hebron.
 
-<sup>4</sup> And the men of Judah come, and anoint there David for king over the house of Judah; and they declare to David, saying, 'The men of Jabesh-Gilead [are] they who buried Saul.'
+**⁴** And the men of Judah come, and anoint there David for king over the house of Judah; and they declare to David, saying, 'The men of Jabesh-Gilead [are] they who buried Saul.'
 
-<sup>5</sup> And David sendeth messengers unto the men of Jabesh-Gilead, and saith unto them, 'Blessed [are] ye of Jehovah, in that ye have done this kindness with your lord, with Saul, that ye bury him.
+**⁵** And David sendeth messengers unto the men of Jabesh-Gilead, and saith unto them, 'Blessed [are] ye of Jehovah, in that ye have done this kindness with your lord, with Saul, that ye bury him.
 
-<sup>6</sup> 'And, now, Jehovah doth with you kindness and truth, and also, I do with you this good because ye have done this thing;
+**⁶** 'And, now, Jehovah doth with you kindness and truth, and also, I do with you this good because ye have done this thing;
 
-<sup>7</sup> and now, are your hands strong, and be ye for sons of valour, for your lord Saul. [is] dead, and also — me have the house of Judah anointed for king over them.'
+**⁷** and now, are your hands strong, and be ye for sons of valour, for your lord Saul. [is] dead, and also — me have the house of Judah anointed for king over them.'
 
-<sup>8</sup> And Abner, son of Ner, head of the host which Saul hath, hath taken Ish-Bosheth, son of Saul, and causeth him to pass over to Mahanaim,
+**⁸** And Abner, son of Ner, head of the host which Saul hath, hath taken Ish-Bosheth, son of Saul, and causeth him to pass over to Mahanaim,
 
-<sup>9</sup> and causeth him to reign over Gilead, and over the Ashurite, and over Jezreel, and over Ephraim, and over Benjamin, and over Israel — all of it.
+**⁹** and causeth him to reign over Gilead, and over the Ashurite, and over Jezreel, and over Ephraim, and over Benjamin, and over Israel — all of it.
 
-<sup>10</sup> A son of forty years, [is] Ish-Bosheth son of Saul, in his reigning over Israel, and two years he hath reigned, only the house of Judah have been after David.
+**¹⁰** A son of forty years, [is] Ish-Bosheth son of Saul, in his reigning over Israel, and two years he hath reigned, only the house of Judah have been after David.
 
-<sup>11</sup> And the number of the days that David hath been king in Hebron, over the house of Judah, is seven years and six months.
+**¹¹** And the number of the days that David hath been king in Hebron, over the house of Judah, is seven years and six months.
 
-<sup>12</sup> And Abner son of Ner goeth out, and servants of Ish-Bosheth son of Saul, from Mahanaim to Gibeon.
+**¹²** And Abner son of Ner goeth out, and servants of Ish-Bosheth son of Saul, from Mahanaim to Gibeon.
 
-<sup>13</sup> And Joab son of Zeruiah, and servants of David, have gone out, and they meet by the pool of Gibeon together, and sit down, these by the pool on this [side], and these by the pool on that.
+**¹³** And Joab son of Zeruiah, and servants of David, have gone out, and they meet by the pool of Gibeon together, and sit down, these by the pool on this [side], and these by the pool on that.
 
-<sup>14</sup> And Abner saith unto Joab, 'Let the youths rise, I pray thee, and they play before us;' and Joab saith, 'Let them rise.'
+**¹⁴** And Abner saith unto Joab, 'Let the youths rise, I pray thee, and they play before us;' and Joab saith, 'Let them rise.'
 
-<sup>15</sup> And they rise and pass over, in number twelve of Benjamin, even of Ish-Bosheth son of Saul, and twelve of the servants of David.
+**¹⁵** And they rise and pass over, in number twelve of Benjamin, even of Ish-Bosheth son of Saul, and twelve of the servants of David.
 
-<sup>16</sup> And they lay hold, each on the head of his companion, and his sword [is] in the side of his companion, and they fall together, and [one] calleth that place Helkath-Hazzurim, which [is] in Gibeon,
+**¹⁶** And they lay hold, each on the head of his companion, and his sword [is] in the side of his companion, and they fall together, and [one] calleth that place Helkath-Hazzurim, which [is] in Gibeon,
 
-<sup>17</sup> and the battle is very hard on that day, and Abner is smitten, and the men of Israel, before the servants of David.
+**¹⁷** and the battle is very hard on that day, and Abner is smitten, and the men of Israel, before the servants of David.
 
-<sup>18</sup> And there are there three sons of Zeruiah, Joab, and Abishai, and Asahel, and Asahel [is] light on his feet, as one of the roes which [are] in the field,
+**¹⁸** And there are there three sons of Zeruiah, Joab, and Abishai, and Asahel, and Asahel [is] light on his feet, as one of the roes which [are] in the field,
 
-<sup>19</sup> And Asahel pursueth after Abner, and hath not turned aside to go to the right or to the left, from after Abner.
+**¹⁹** And Asahel pursueth after Abner, and hath not turned aside to go to the right or to the left, from after Abner.
 
-<sup>20</sup> And Abner looketh behind him, and saith, 'Art thou he — Asahel?' and he saith, 'I [am].'
+**²⁰** And Abner looketh behind him, and saith, 'Art thou he — Asahel?' and he saith, 'I [am].'
 
-<sup>21</sup> And Abner saith to him, 'Turn thee aside to thy right hand or to thy left, and seize for thee one of the youths, and take to thee his armour;' and Asahel hath not been willing to turn aside from after him.
+**²¹** And Abner saith to him, 'Turn thee aside to thy right hand or to thy left, and seize for thee one of the youths, and take to thee his armour;' and Asahel hath not been willing to turn aside from after him.
 
-<sup>22</sup> And Abner addeth again, saying unto Asahel, 'Turn thee aside from after me, why do I smite thee to the earth? and how do I lift up my face unto Joab thy brother?'
+**²²** And Abner addeth again, saying unto Asahel, 'Turn thee aside from after me, why do I smite thee to the earth? and how do I lift up my face unto Joab thy brother?'
 
-<sup>23</sup> And he refuseth to turn aside, and Abner smiteth him with the hinder part of the spear unto the fifth [rib], and the spear cometh out from behind him, and he falleth there, and dieth under it; and it cometh to pass, every one who hath come unto the place where Asahel hath fallen and dieth — they stand still.
+**²³** And he refuseth to turn aside, and Abner smiteth him with the hinder part of the spear unto the fifth [rib], and the spear cometh out from behind him, and he falleth there, and dieth under it; and it cometh to pass, every one who hath come unto the place where Asahel hath fallen and dieth — they stand still.
 
-<sup>24</sup> And Joab and Abishai pursue after Abner, and the sun hath gone in, and they have come in unto the height of Ammah, which [is] on the front of Giah, the way of the wilderness of Gibeon.
+**²⁴** And Joab and Abishai pursue after Abner, and the sun hath gone in, and they have come in unto the height of Ammah, which [is] on the front of Giah, the way of the wilderness of Gibeon.
 
-<sup>25</sup> And the sons of Benjamin gather themselves together after Abner, and become one troop, and stand on the top of a certain height,
+**²⁵** And the sons of Benjamin gather themselves together after Abner, and become one troop, and stand on the top of a certain height,
 
-<sup>26</sup> and Abner calleth unto Joab, and saith, 'For ever doth the sword consume? hast thou not known that it is bitterness in the latter end? and till when dost thou not say to the people to turn back from after their brethren?'
+**²⁶** and Abner calleth unto Joab, and saith, 'For ever doth the sword consume? hast thou not known that it is bitterness in the latter end? and till when dost thou not say to the people to turn back from after their brethren?'
 
-<sup>27</sup> And Joab saith, 'God liveth! for unless thou hadst spoken, surely then from the morning had the people gone up each from after his brother.'
+**²⁷** And Joab saith, 'God liveth! for unless thou hadst spoken, surely then from the morning had the people gone up each from after his brother.'
 
-<sup>28</sup> And Joab bloweth with a trumpet, and all the people stand still, and pursue no more after Israel, nor have they added any more to fight.
+**²⁸** And Joab bloweth with a trumpet, and all the people stand still, and pursue no more after Israel, nor have they added any more to fight.
 
-<sup>29</sup> And Abner and his men have gone through the plain all that night, and pass over the Jordan, and go on [through] all Bithron, and come in to Mahanaim.
+**²⁹** And Abner and his men have gone through the plain all that night, and pass over the Jordan, and go on [through] all Bithron, and come in to Mahanaim.
 
-<sup>30</sup> And Joab hath turned back from after Abner, and gathereth all the people, and there are lacking of the servants of David nineteen men, and Asahel;
+**³⁰** And Joab hath turned back from after Abner, and gathereth all the people, and there are lacking of the servants of David nineteen men, and Asahel;
 
-<sup>31</sup> and the servants of David have smitten of Benjamin, even among the men of Abner, three hundred and sixty men — they died.
+**³¹** and the servants of David have smitten of Benjamin, even among the men of Abner, three hundred and sixty men — they died.
 
-<sup>32</sup> And they lift up Asahel, and bury him in the burying-place of his father, which [is] in Beth-Lehem, and they go all the night — Joab and his men — and it is light to them in Hebron.
+**³²** And they lift up Asahel, and bury him in the burying-place of his father, which [is] in Beth-Lehem, and they go all the night — Joab and his men — and it is light to them in Hebron.

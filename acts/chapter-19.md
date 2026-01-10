@@ -1,83 +1,83 @@
 # Chapter 19
 
-<sup>1</sup> And it came to pass, in Apollos' being in Corinth, Paul having gone through the upper parts, came to Ephesus, and having found certain disciples,
+**¹** And it came to pass, in Apollos' being in Corinth, Paul having gone through the upper parts, came to Ephesus, and having found certain disciples,
 
-<sup>2</sup> he said unto them, 'The Holy Spirit did ye receive — having believed?' and they said unto him, 'But we did not even hear whether there is any Holy Spirit;'
+**²** he said unto them, 'The Holy Spirit did ye receive — having believed?' and they said unto him, 'But we did not even hear whether there is any Holy Spirit;'
 
-<sup>3</sup> and he said unto them, 'To what, then, were ye baptized?' and they said, 'To John's baptism.'
+**³** and he said unto them, 'To what, then, were ye baptized?' and they said, 'To John's baptism.'
 
-<sup>4</sup> And Paul said, 'John, indeed, did baptize with a baptism of reformation, saying to the people that in him who is coming after him they should believe — that is, in the Christ — Jesus;'
+**⁴** And Paul said, 'John, indeed, did baptize with a baptism of reformation, saying to the people that in him who is coming after him they should believe — that is, in the Christ — Jesus;'
 
-<sup>5</sup> and they, having heard, were baptized — to the name of the Lord Jesus,
+**⁵** and they, having heard, were baptized — to the name of the Lord Jesus,
 
-<sup>6</sup> and Paul having laid on them [his] hands, the Holy Spirit came upon them, they were speaking also with tongues, and prophesying,
+**⁶** and Paul having laid on them [his] hands, the Holy Spirit came upon them, they were speaking also with tongues, and prophesying,
 
-<sup>7</sup> and all the men were, as it were, twelve.
+**⁷** and all the men were, as it were, twelve.
 
-<sup>8</sup> And having gone into the synagogue, he was speaking boldly for three months, reasoning and persuading the things concerning the reign of God,
+**⁸** And having gone into the synagogue, he was speaking boldly for three months, reasoning and persuading the things concerning the reign of God,
 
-<sup>9</sup> and when certain were hardened and were disbelieving, speaking evil of the way before the multitude, having departed from them, he did separate the disciples, every day reasoning in the school of a certain Tyrannus.
+**⁹** and when certain were hardened and were disbelieving, speaking evil of the way before the multitude, having departed from them, he did separate the disciples, every day reasoning in the school of a certain Tyrannus.
 
-<sup>10</sup> And this happened for two years so that all those dwelling in Asia did hear the word of the Lord Jesus, both Jews and Greeks,
+**¹⁰** And this happened for two years so that all those dwelling in Asia did hear the word of the Lord Jesus, both Jews and Greeks,
 
-<sup>11</sup> mighty works also — not common — was God working through the hands of Paul,
+**¹¹** mighty works also — not common — was God working through the hands of Paul,
 
-<sup>12</sup> so that even unto the ailing were brought from his body handkerchiefs or aprons, and the sicknesses departed from them; the evil spirits also went forth from them.
+**¹²** so that even unto the ailing were brought from his body handkerchiefs or aprons, and the sicknesses departed from them; the evil spirits also went forth from them.
 
-<sup>13</sup> And certain of the wandering exorcist Jews, took upon [them] to name over those having the evil spirits the name of the Lord Jesus, saying, 'We adjure you by Jesus, whom Paul doth preach;'
+**¹³** And certain of the wandering exorcist Jews, took upon [them] to name over those having the evil spirits the name of the Lord Jesus, saying, 'We adjure you by Jesus, whom Paul doth preach;'
 
-<sup>14</sup> and there were certain — seven sons of Sceva, a Jew, a chief priest — who are doing this thing;
+**¹⁴** and there were certain — seven sons of Sceva, a Jew, a chief priest — who are doing this thing;
 
-<sup>15</sup> and the evil spirit, answering, said, 'Jesus I know, and Paul I am acquainted with; and ye — who are ye?'
+**¹⁵** and the evil spirit, answering, said, 'Jesus I know, and Paul I am acquainted with; and ye — who are ye?'
 
-<sup>16</sup> And the man, in whom was the evil spirit, leaping upon them, and having overcome them, prevailed against them, so that naked and wounded they did flee out of that house,
+**¹⁶** And the man, in whom was the evil spirit, leaping upon them, and having overcome them, prevailed against them, so that naked and wounded they did flee out of that house,
 
-<sup>17</sup> and this became known to all, both Jews and Greeks, who are dwelling at Ephesus, and fear fell upon them all, and the name of the Lord Jesus was being magnified,
+**¹⁷** and this became known to all, both Jews and Greeks, who are dwelling at Ephesus, and fear fell upon them all, and the name of the Lord Jesus was being magnified,
 
-<sup>18</sup> many also of those who did believe were coming, confessing and declaring their acts,
+**¹⁸** many also of those who did believe were coming, confessing and declaring their acts,
 
-<sup>19</sup> and many of those who had practised the curious arts, having brought the books together, were burning [them] before all; and they reckoned together the prices of them, and found [it] five myriads of silverlings;
+**¹⁹** and many of those who had practised the curious arts, having brought the books together, were burning [them] before all; and they reckoned together the prices of them, and found [it] five myriads of silverlings;
 
-<sup>20</sup> so powerfully was the word of God increasing and prevailing.
+**²⁰** so powerfully was the word of God increasing and prevailing.
 
-<sup>21</sup> And when these things were fulfilled, Paul purposed in the Spirit, having gone through Macedonia and Achaia, to go on to Jerusalem, saying — 'After my being there, it behoveth me also to see Rome;'
+**²¹** And when these things were fulfilled, Paul purposed in the Spirit, having gone through Macedonia and Achaia, to go on to Jerusalem, saying — 'After my being there, it behoveth me also to see Rome;'
 
-<sup>22</sup> and having sent to Macedonia two of those ministering to him — Timotheus and Erastus — he himself stayed a time in Asia.
+**²²** and having sent to Macedonia two of those ministering to him — Timotheus and Erastus — he himself stayed a time in Asia.
 
-<sup>23</sup> And there came, at that time, not a little stir about the way,
+**²³** And there came, at that time, not a little stir about the way,
 
-<sup>24</sup> for a certain one, Demetrius by name, a worker in silver, making silver sanctuaries of Artemis, was bringing to the artificers gain not a little,
+**²⁴** for a certain one, Demetrius by name, a worker in silver, making silver sanctuaries of Artemis, was bringing to the artificers gain not a little,
 
-<sup>25</sup> whom, having brought in a crowd together, and those who did work about such things, he said, 'Men, ye know that by this work we have our wealth;
+**²⁵** whom, having brought in a crowd together, and those who did work about such things, he said, 'Men, ye know that by this work we have our wealth;
 
-<sup>26</sup> and ye see and hear, that not only at Ephesus, but almost in all Asia, this Paul, having persuaded, did turn away a great multitude, saying, that they are not gods who are made by hands;
+**²⁶** and ye see and hear, that not only at Ephesus, but almost in all Asia, this Paul, having persuaded, did turn away a great multitude, saying, that they are not gods who are made by hands;
 
-<sup>27</sup> and not only is this department in danger for us of coming into disregard, but also, that of the great goddess Artemis the temple is to be reckoned for nothing, and also her greatness is about to be brought down, whom all Asia and the world doth worship.'
+**²⁷** and not only is this department in danger for us of coming into disregard, but also, that of the great goddess Artemis the temple is to be reckoned for nothing, and also her greatness is about to be brought down, whom all Asia and the world doth worship.'
 
-<sup>28</sup> And they having heard, and having become full of wrath, were crying out, saying, 'Great [is] the Artemis of the Ephesians!'
+**²⁸** And they having heard, and having become full of wrath, were crying out, saying, 'Great [is] the Artemis of the Ephesians!'
 
-<sup>29</sup> and the whole city was filled with confusion, they rushed also with one accord into the theatre, having caught Gaius and Aristarchus, Macedonians, Paul's fellow-travellers.
+**²⁹** and the whole city was filled with confusion, they rushed also with one accord into the theatre, having caught Gaius and Aristarchus, Macedonians, Paul's fellow-travellers.
 
-<sup>30</sup> And on Paul's purposing to enter in unto the populace, the disciples were not suffering him,
+**³⁰** And on Paul's purposing to enter in unto the populace, the disciples were not suffering him,
 
-<sup>31</sup> and certain also of the chief men of Asia, being his friends, having sent unto him, were entreating him not to venture himself into the theatre.
+**³¹** and certain also of the chief men of Asia, being his friends, having sent unto him, were entreating him not to venture himself into the theatre.
 
-<sup>32</sup> Some indeed, therefore, were calling out one thing, and some another, for the assembly was confused, and the greater part did not know for what they were come together;
+**³²** Some indeed, therefore, were calling out one thing, and some another, for the assembly was confused, and the greater part did not know for what they were come together;
 
-<sup>33</sup> and out of the multitude they put forward Alexander — the Jews thrusting him forward — and Alexander having beckoned with the hand, wished to make defence to the populace,
+**³³** and out of the multitude they put forward Alexander — the Jews thrusting him forward — and Alexander having beckoned with the hand, wished to make defence to the populace,
 
-<sup>34</sup> and having known that he is a Jew, one voice came out of all, for about two hours, crying, 'Great [is] the Artemis of the Ephesians!'
+**³⁴** and having known that he is a Jew, one voice came out of all, for about two hours, crying, 'Great [is] the Artemis of the Ephesians!'
 
-<sup>35</sup> And the public clerk having quieted the multitude, saith, 'Men, Ephesians, why, who is the man that doth not know that the city of the Ephesians is a devotee of the great goddess Artemis, and of that which fell down from Zeus?
+**³⁵** And the public clerk having quieted the multitude, saith, 'Men, Ephesians, why, who is the man that doth not know that the city of the Ephesians is a devotee of the great goddess Artemis, and of that which fell down from Zeus?
 
-<sup>36</sup> these things, then, not being to be gainsaid, it is necessary for you to be quiet, and to do nothing rashly.
+**³⁶** these things, then, not being to be gainsaid, it is necessary for you to be quiet, and to do nothing rashly.
 
-<sup>37</sup> 'For ye brought these men, who are neither temple-robbers nor speaking evil of your goddess;
+**³⁷** 'For ye brought these men, who are neither temple-robbers nor speaking evil of your goddess;
 
-<sup>38</sup> if indeed, therefore, Demetrius and the artificers with him with any one have a matter, court [days] are held, and there are proconsuls; let them accuse one another.
+**³⁸** if indeed, therefore, Demetrius and the artificers with him with any one have a matter, court [days] are held, and there are proconsuls; let them accuse one another.
 
-<sup>39</sup> 'And if ye seek after anything concerning other matters, in the legal assembly it shall be determined;
+**³⁹** 'And if ye seek after anything concerning other matters, in the legal assembly it shall be determined;
 
-<sup>40</sup> for we are also in peril of being accused of insurrection in regard to this day, there being no occasion by which we shall be able to give an account of this concourse;'
+**⁴⁰** for we are also in peril of being accused of insurrection in regard to this day, there being no occasion by which we shall be able to give an account of this concourse;'
 
-<sup>41</sup> and these things having said, he dismissed the assembly.
+**⁴¹** and these things having said, he dismissed the assembly.

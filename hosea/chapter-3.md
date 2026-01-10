@@ -1,11 +1,11 @@
 # Chapter 3
 
-<sup>1</sup> And Jehovah saith unto me: 'Again, go, love a woman, loved of a friend, and an adulteress, like the loved of Jehovah, the sons of Israel, and they are turning unto other gods, and are lovers of grape-cakes.'
+**¹** And Jehovah saith unto me: 'Again, go, love a woman, loved of a friend, and an adulteress, like the loved of Jehovah, the sons of Israel, and they are turning unto other gods, and are lovers of grape-cakes.'
 
-<sup>2</sup> And I buy her to me for fifteen silverlings, and a homer and a letech of barley;
+**²** And I buy her to me for fifteen silverlings, and a homer and a letech of barley;
 
-<sup>3</sup> and I say unto her, 'Many days thou dost remain for Me, thou dost not go a-whoring, nor become any one's; and I also [am] for thee.'
+**³** and I say unto her, 'Many days thou dost remain for Me, thou dost not go a-whoring, nor become any one's; and I also [am] for thee.'
 
-<sup>4</sup> For many days remain do the sons of Israel without a king, and there is no prince, and there is no sacrifice, and there is no standing pillar, and there is no ephod and teraphim.
+**⁴** For many days remain do the sons of Israel without a king, and there is no prince, and there is no sacrifice, and there is no standing pillar, and there is no ephod and teraphim.
 
-<sup>5</sup> Afterwards turned back have the sons of Israel, and sought Jehovah their God, and David their king, and have hastened unto Jehovah, and unto His goodness, in the latter end of the days.
+**⁵** Afterwards turned back have the sons of Israel, and sought Jehovah their God, and David their king, and have hastened unto Jehovah, and unto His goodness, in the latter end of the days.

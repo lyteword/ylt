@@ -1,43 +1,43 @@
 # Chapter 5
 
-<sup>1</sup> Every one who is believing that Jesus is the Christ, of God he hath been begotten, and every one who is loving Him who did beget, doth love also him who is begotten of Him:
+**¹** Every one who is believing that Jesus is the Christ, of God he hath been begotten, and every one who is loving Him who did beget, doth love also him who is begotten of Him:
 
-<sup>2</sup> in this we know that we love the children of God, when we may love God, and His commands may keep;
+**²** in this we know that we love the children of God, when we may love God, and His commands may keep;
 
-<sup>3</sup> for this is the love of God, that His commands we may keep, and His commands are not burdensome;
+**³** for this is the love of God, that His commands we may keep, and His commands are not burdensome;
 
-<sup>4</sup> because every one who is begotten of God doth overcome the world, and this is the victory that did overcome the world — our faith;
+**⁴** because every one who is begotten of God doth overcome the world, and this is the victory that did overcome the world — our faith;
 
-<sup>5</sup> who is he who is overcoming the world, if not he who is believing that Jesus is the Son of God?
+**⁵** who is he who is overcoming the world, if not he who is believing that Jesus is the Son of God?
 
-<sup>6</sup> This one is he who did come through water and blood — Jesus the Christ, not in the water only, but in the water and the blood; and the Spirit it is that is testifying, because the Spirit is the truth,
+**⁶** This one is he who did come through water and blood — Jesus the Christ, not in the water only, but in the water and the blood; and the Spirit it is that is testifying, because the Spirit is the truth,
 
-<sup>7</sup> because three are who are testifying [in the heaven, the Father, the Word, and the Holy Spirit, and these — the three — are one;
+**⁷** because three are who are testifying [in the heaven, the Father, the Word, and the Holy Spirit, and these — the three — are one;
 
-<sup>8</sup> and three are who are testifying in the earth], the Spirit, and the water, and the blood, and the three are into the one.
+**⁸** and three are who are testifying in the earth], the Spirit, and the water, and the blood, and the three are into the one.
 
-<sup>9</sup> If the testimony of men we receive, the testimony of God is greater, because this is the testimony of God that He hath testified concerning His Son.
+**⁹** If the testimony of men we receive, the testimony of God is greater, because this is the testimony of God that He hath testified concerning His Son.
 
-<sup>10</sup> He who is believing in the Son of God, hath the testimony in himself; he who is not believing God, a liar hath made Him, because he hath not believed in the testimony that God hath testified concerning His Son;
+**¹⁰** He who is believing in the Son of God, hath the testimony in himself; he who is not believing God, a liar hath made Him, because he hath not believed in the testimony that God hath testified concerning His Son;
 
-<sup>11</sup> and this is the testimony, that life age-during did God give to us, and this — the life — is in His Son;
+**¹¹** and this is the testimony, that life age-during did God give to us, and this — the life — is in His Son;
 
-<sup>12</sup> he who is having the Son, hath the life; he who is not having the Son of God — the life he hath not.
+**¹²** he who is having the Son, hath the life; he who is not having the Son of God — the life he hath not.
 
-<sup>13</sup> These things I did write to you who are believing in the name of the Son of God, that ye may know that life ye have age-during, and that ye may believe in the name of the Son of God.
+**¹³** These things I did write to you who are believing in the name of the Son of God, that ye may know that life ye have age-during, and that ye may believe in the name of the Son of God.
 
-<sup>14</sup> And this is the boldness that we have toward Him, that if anything we may ask according to his will, He doth hear us,
+**¹⁴** And this is the boldness that we have toward Him, that if anything we may ask according to his will, He doth hear us,
 
-<sup>15</sup> and if we have known that He doth hear us, whatever we may ask, we have known that we have the requests that we have requested from Him.
+**¹⁵** and if we have known that He doth hear us, whatever we may ask, we have known that we have the requests that we have requested from Him.
 
-<sup>16</sup> If any one may see his brother sinning a sin not unto death, he shall ask, and He shall give to him life to those sinning not unto death; there is sin to death, not concerning it do I speak that he may beseech;
+**¹⁶** If any one may see his brother sinning a sin not unto death, he shall ask, and He shall give to him life to those sinning not unto death; there is sin to death, not concerning it do I speak that he may beseech;
 
-<sup>17</sup> all unrighteousness is sin, and there is sin not unto death.
+**¹⁷** all unrighteousness is sin, and there is sin not unto death.
 
-<sup>18</sup> We have known that every one who hath been begotten of God doth not sin, but he who was begotten of God doth keep himself, and the evil one doth not touch him;
+**¹⁸** We have known that every one who hath been begotten of God doth not sin, but he who was begotten of God doth keep himself, and the evil one doth not touch him;
 
-<sup>19</sup> we have known that of God we are, and the whole world in the evil doth lie;
+**¹⁹** we have known that of God we are, and the whole world in the evil doth lie;
 
-<sup>20</sup> and we have known that the Son of God is come, and hath given us a mind, that we may know Him who is true, and we are in Him who is true, in His Son Jesus Christ; this one is the true God and the life age-during!
+**²⁰** and we have known that the Son of God is come, and hath given us a mind, that we may know Him who is true, and we are in Him who is true, in His Son Jesus Christ; this one is the true God and the life age-during!
 
-<sup>21</sup> Little children, guard yourselves from the idols! Amen.
+**²¹** Little children, guard yourselves from the idols! Amen.

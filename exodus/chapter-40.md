@@ -1,77 +1,77 @@
 # Chapter 40
 
-<sup>1</sup> And Jehovah speaketh unto Moses, saying,
+**¹** And Jehovah speaketh unto Moses, saying,
 
-<sup>2</sup> 'On the first day of the month, in the first month, thou dost raise up the tabernacle of the tent of meeting,
+**²** 'On the first day of the month, in the first month, thou dost raise up the tabernacle of the tent of meeting,
 
-<sup>3</sup> and hast set there the ark of the testimony, and hast covered over the ark with the vail,
+**³** and hast set there the ark of the testimony, and hast covered over the ark with the vail,
 
-<sup>4</sup> and hast brought in the table, and set its arrangement in order, and hast brought in the candlestick, and caused its lamps to go up.
+**⁴** and hast brought in the table, and set its arrangement in order, and hast brought in the candlestick, and caused its lamps to go up.
 
-<sup>5</sup> 'And thou hast put the golden altar for perfume before the ark of the testimony, and hast put the covering of the opening to the tabernacle,
+**⁵** 'And thou hast put the golden altar for perfume before the ark of the testimony, and hast put the covering of the opening to the tabernacle,
 
-<sup>6</sup> and hast put the altar of the burnt-offering before the opening of the tabernacle of the tent of meeting,
+**⁶** and hast put the altar of the burnt-offering before the opening of the tabernacle of the tent of meeting,
 
-<sup>7</sup> and hast put the laver between the tent of meeting and the altar, and hast put water there.
+**⁷** and hast put the laver between the tent of meeting and the altar, and hast put water there.
 
-<sup>8</sup> 'And thou hast set the court round about, and hast placed the covering of the gate of the court,
+**⁸** 'And thou hast set the court round about, and hast placed the covering of the gate of the court,
 
-<sup>9</sup> and hast taken the anointing oil, and anointed the tabernacle, and all that [is] in it, and hallowed it, and all its vessels, and it hath been holy;
+**⁹** and hast taken the anointing oil, and anointed the tabernacle, and all that [is] in it, and hallowed it, and all its vessels, and it hath been holy;
 
-<sup>10</sup> and thou hast anointed the altar of the burnt-offering, and all its vessels, and sanctified the altar, and the altar hath been most holy;
+**¹⁰** and thou hast anointed the altar of the burnt-offering, and all its vessels, and sanctified the altar, and the altar hath been most holy;
 
-<sup>11</sup> and thou hast anointed the laver and its base, and sanctified it.
+**¹¹** and thou hast anointed the laver and its base, and sanctified it.
 
-<sup>12</sup> 'And thou hast brought near Aaron and his sons unto the opening of the tent of meeting, and hast bathed them with water;
+**¹²** 'And thou hast brought near Aaron and his sons unto the opening of the tent of meeting, and hast bathed them with water;
 
-<sup>13</sup> and thou hast clothed Aaron with the holy garments, and anointed him, and sanctified him, and he hath acted as priest to Me.
+**¹³** and thou hast clothed Aaron with the holy garments, and anointed him, and sanctified him, and he hath acted as priest to Me.
 
-<sup>14</sup> 'And his sons thou dost bring near, and hast clothed them with coats,
+**¹⁴** 'And his sons thou dost bring near, and hast clothed them with coats,
 
-<sup>15</sup> and anointed them as thou hast anointed their father, and they have acted as priests to Me, and their anointing hath been to be to them for a priesthood age-during, to their generations.'
+**¹⁵** and anointed them as thou hast anointed their father, and they have acted as priests to Me, and their anointing hath been to be to them for a priesthood age-during, to their generations.'
 
-<sup>16</sup> And Moses doth according to all that Jehovah hath commanded him; so he hath done.
+**¹⁶** And Moses doth according to all that Jehovah hath commanded him; so he hath done.
 
-<sup>17</sup> And it cometh to pass, in the first month, in the second year, in the first of the month, the tabernacle hath been raised up;
+**¹⁷** And it cometh to pass, in the first month, in the second year, in the first of the month, the tabernacle hath been raised up;
 
-<sup>18</sup> and Moses raiseth up the tabernacle, and setteth its sockets, and placeth its boards, and placeth its bars, and raiseth its pillars,
+**¹⁸** and Moses raiseth up the tabernacle, and setteth its sockets, and placeth its boards, and placeth its bars, and raiseth its pillars,
 
-<sup>19</sup> and spreadeth the tent over the tabernacle, and putteth the covering of the tent upon it above, as Jehovah hath commanded Moses.
+**¹⁹** and spreadeth the tent over the tabernacle, and putteth the covering of the tent upon it above, as Jehovah hath commanded Moses.
 
-<sup>20</sup> And he taketh and putteth the testimony unto the ark, and setteth the staves on the ark, and putteth the mercy-seat on the ark above;
+**²⁰** And he taketh and putteth the testimony unto the ark, and setteth the staves on the ark, and putteth the mercy-seat on the ark above;
 
-<sup>21</sup> and bringeth in the ark unto the tabernacle, and placeth the vail of the covering, and covereth over the ark of the testimony, as Jehovah hath commanded Moses.
+**²¹** and bringeth in the ark unto the tabernacle, and placeth the vail of the covering, and covereth over the ark of the testimony, as Jehovah hath commanded Moses.
 
-<sup>22</sup> And he putteth the table in the tent of meeting, on the side of the tabernacle northward, at the outside of the vail,
+**²²** And he putteth the table in the tent of meeting, on the side of the tabernacle northward, at the outside of the vail,
 
-<sup>23</sup> and setteth in order upon it the arrangement of bread, before Jehovah, as Jehovah hath commanded Moses.
+**²³** and setteth in order upon it the arrangement of bread, before Jehovah, as Jehovah hath commanded Moses.
 
-<sup>24</sup> And he putteth the candlestick in the tent of meeting, over-against the table, on the side of the tabernacle southward,
+**²⁴** And he putteth the candlestick in the tent of meeting, over-against the table, on the side of the tabernacle southward,
 
-<sup>25</sup> and causeth the lamps to go up before Jehovah, as Jehovah hath commanded Moses.
+**²⁵** and causeth the lamps to go up before Jehovah, as Jehovah hath commanded Moses.
 
-<sup>26</sup> And he setteth the golden altar in the tent of meeting, before the vail,
+**²⁶** And he setteth the golden altar in the tent of meeting, before the vail,
 
-<sup>27</sup> and maketh perfume on it — spice-perfume — as Jehovah hath commanded Moses.
+**²⁷** and maketh perfume on it — spice-perfume — as Jehovah hath commanded Moses.
 
-<sup>28</sup> And he setteth the covering of the opening to the tabernacle,
+**²⁸** And he setteth the covering of the opening to the tabernacle,
 
-<sup>29</sup> and the altar of the burnt-offering he hath set at the opening of the tabernacle of the tent of meeting, and causeth the burnt-offering to go up upon it, and the present, as Jehovah hath commanded Moses.
+**²⁹** and the altar of the burnt-offering he hath set at the opening of the tabernacle of the tent of meeting, and causeth the burnt-offering to go up upon it, and the present, as Jehovah hath commanded Moses.
 
-<sup>30</sup> And he putteth the laver between the tent of meeting and the altar, and putteth water there for washing,
+**³⁰** And he putteth the laver between the tent of meeting and the altar, and putteth water there for washing,
 
-<sup>31</sup> and Moses and Aaron and his sons have washed their hands and their feet at the same;
+**³¹** and Moses and Aaron and his sons have washed their hands and their feet at the same;
 
-<sup>32</sup> in their going in unto the tent of meeting, and in their drawing near unto the altar, they wash, as Jehovah hath commanded Moses.
+**³²** in their going in unto the tent of meeting, and in their drawing near unto the altar, they wash, as Jehovah hath commanded Moses.
 
-<sup>33</sup> And he raiseth up the court round about the tabernacle, and about the altar, and placeth the covering of the gate of the court; and Moses completeth the work.
+**³³** And he raiseth up the court round about the tabernacle, and about the altar, and placeth the covering of the gate of the court; and Moses completeth the work.
 
-<sup>34</sup> And the cloud covereth the tent of meeting, and the honour of Jehovah hath filled the tabernacle;
+**³⁴** And the cloud covereth the tent of meeting, and the honour of Jehovah hath filled the tabernacle;
 
-<sup>35</sup> and Moses hath not been able to go in unto the tent of meeting, for the cloud hath tabernacled on it, and the honour of Jehovah hath filled the tabernacle.
+**³⁵** and Moses hath not been able to go in unto the tent of meeting, for the cloud hath tabernacled on it, and the honour of Jehovah hath filled the tabernacle.
 
-<sup>36</sup> And in the going up of the cloud from off the tabernacle the sons of Israel journey in all their journeys;
+**³⁶** And in the going up of the cloud from off the tabernacle the sons of Israel journey in all their journeys;
 
-<sup>37</sup> and if the cloud go not up then they journey not, until the day of its going up:
+**³⁷** and if the cloud go not up then they journey not, until the day of its going up:
 
-<sup>38</sup> for the cloud of Jehovah [is] on the tabernacle by day, and fire is in it by night, before the eyes of all the house of Israel in all their journeys.
+**³⁸** for the cloud of Jehovah [is] on the tabernacle by day, and fire is in it by night, before the eyes of all the house of Israel in all their journeys.

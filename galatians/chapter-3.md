@@ -1,59 +1,59 @@
 # Chapter 3
 
-<sup>1</sup> O thoughtless Galatians, who did bewitch you, not to obey the truth — before whose eyes Jesus Christ was described before among you crucified?
+**¹** O thoughtless Galatians, who did bewitch you, not to obey the truth — before whose eyes Jesus Christ was described before among you crucified?
 
-<sup>2</sup> this only do I wish to learn from you — by works of law the Spirit did ye receive, or by the hearing of faith?
+**²** this only do I wish to learn from you — by works of law the Spirit did ye receive, or by the hearing of faith?
 
-<sup>3</sup> so thoughtless are ye! having begun in the Spirit, now in the flesh do ye end?
+**³** so thoughtless are ye! having begun in the Spirit, now in the flesh do ye end?
 
-<sup>4</sup> so many things did ye suffer in vain! if, indeed, even in vain.
+**⁴** so many things did ye suffer in vain! if, indeed, even in vain.
 
-<sup>5</sup> He, therefore, who is supplying to you the Spirit, and working mighty acts among you — by works of law or by the hearing of faith [is it]?
+**⁵** He, therefore, who is supplying to you the Spirit, and working mighty acts among you — by works of law or by the hearing of faith [is it]?
 
-<sup>6</sup> according as Abraham did believe God, and it was reckoned to him — to righteousness;
+**⁶** according as Abraham did believe God, and it was reckoned to him — to righteousness;
 
-<sup>7</sup> know ye, then, that those of faith — these are sons of Abraham,
+**⁷** know ye, then, that those of faith — these are sons of Abraham,
 
-<sup>8</sup> and the Writing having foreseen that by faith God doth declare righteous the nations did proclaim before the good news to Abraham —
+**⁸** and the Writing having foreseen that by faith God doth declare righteous the nations did proclaim before the good news to Abraham —
 
-<sup>9</sup> 'Blessed in thee shall be all the nations;' so that those of faith are blessed with the faithful Abraham,
+**⁹** 'Blessed in thee shall be all the nations;' so that those of faith are blessed with the faithful Abraham,
 
-<sup>10</sup> for as many as are of works of law are under a curse, for it hath been written, 'Cursed [is] every one who is not remaining in all things that have been written in the Book of the Law — to do them,'
+**¹⁰** for as many as are of works of law are under a curse, for it hath been written, 'Cursed [is] every one who is not remaining in all things that have been written in the Book of the Law — to do them,'
 
-<sup>11</sup> and that in law no one is declared righteous with God, is evident, because 'The righteous by faith shall live;'
+**¹¹** and that in law no one is declared righteous with God, is evident, because 'The righteous by faith shall live;'
 
-<sup>12</sup> and the law is not by faith, but — 'The man who did them shall live in them.'
+**¹²** and the law is not by faith, but — 'The man who did them shall live in them.'
 
-<sup>13</sup> Christ did redeem us from the curse of the law, having become for us a curse, for it hath been written, 'Cursed is every one who is hanging on a tree,'
+**¹³** Christ did redeem us from the curse of the law, having become for us a curse, for it hath been written, 'Cursed is every one who is hanging on a tree,'
 
-<sup>14</sup> that to the nations the blessing of Abraham may come in Christ Jesus, that the promise of the Spirit we may receive through the faith.
+**¹⁴** that to the nations the blessing of Abraham may come in Christ Jesus, that the promise of the Spirit we may receive through the faith.
 
-<sup>15</sup> Brethren, as a man I say [it], even of man a confirmed covenant no one doth make void or doth add to,
+**¹⁵** Brethren, as a man I say [it], even of man a confirmed covenant no one doth make void or doth add to,
 
-<sup>16</sup> and to Abraham were the promises spoken, and to his seed; He doth not say, 'And to seeds,' as of many, but as of one, 'And to thy seed,' which is Christ;
+**¹⁶** and to Abraham were the promises spoken, and to his seed; He doth not say, 'And to seeds,' as of many, but as of one, 'And to thy seed,' which is Christ;
 
-<sup>17</sup> and this I say, A covenant confirmed before by God to Christ, the law, that came four hundred and thirty years after, doth not set aside, to make void the promise,
+**¹⁷** and this I say, A covenant confirmed before by God to Christ, the law, that came four hundred and thirty years after, doth not set aside, to make void the promise,
 
-<sup>18</sup> for if by law [be] the inheritance, [it is] no more by promise, but to Abraham through promise did God grant [it].
+**¹⁸** for if by law [be] the inheritance, [it is] no more by promise, but to Abraham through promise did God grant [it].
 
-<sup>19</sup> Why, then, the law? on account of the transgressions it was added, till the seed might come to which the promise hath been made, having been set in order through messengers in the hand of a mediator —
+**¹⁹** Why, then, the law? on account of the transgressions it was added, till the seed might come to which the promise hath been made, having been set in order through messengers in the hand of a mediator —
 
-<sup>20</sup> and the mediator is not of one, and God is one —
+**²⁰** and the mediator is not of one, and God is one —
 
-<sup>21</sup> the law, then, [is] against the promises of God? — let it not be! for if a law was given that was able to make alive, truly by law there would have been the righteousness,
+**²¹** the law, then, [is] against the promises of God? — let it not be! for if a law was given that was able to make alive, truly by law there would have been the righteousness,
 
-<sup>22</sup> but the Writing did shut up the whole under sin, that the promise by faith of Jesus Christ may be given to those believing.
+**²²** but the Writing did shut up the whole under sin, that the promise by faith of Jesus Christ may be given to those believing.
 
-<sup>23</sup> And before the coming of the faith, under law we were being kept, shut up to the faith about to be revealed,
+**²³** And before the coming of the faith, under law we were being kept, shut up to the faith about to be revealed,
 
-<sup>24</sup> so that the law became our child-conductor — to Christ, that by faith we may be declared righteous,
+**²⁴** so that the law became our child-conductor — to Christ, that by faith we may be declared righteous,
 
-<sup>25</sup> and the faith having come, no more under a child-conductor are we,
+**²⁵** and the faith having come, no more under a child-conductor are we,
 
-<sup>26</sup> for ye are all sons of God through the faith in Christ Jesus,
+**²⁶** for ye are all sons of God through the faith in Christ Jesus,
 
-<sup>27</sup> for as many as to Christ were baptized did put on Christ;
+**²⁷** for as many as to Christ were baptized did put on Christ;
 
-<sup>28</sup> there is not here Jew or Greek, there is not here servant nor freeman, there is not here male and female, for all ye are one in Christ Jesus;
+**²⁸** there is not here Jew or Greek, there is not here servant nor freeman, there is not here male and female, for all ye are one in Christ Jesus;
 
-<sup>29</sup> and if ye [are] of Christ then of Abraham ye are seed, and according to promise — heirs.
+**²⁹** and if ye [are] of Christ then of Abraham ye are seed, and according to promise — heirs.

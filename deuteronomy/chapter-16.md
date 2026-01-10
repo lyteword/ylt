@@ -1,45 +1,45 @@
 # Chapter 16
 
-<sup>1</sup> 'Observe the month of Abib — and thou hast made a passover to Jehovah thy God, for in the month of Abib hath Jehovah thy God brought thee out of Egypt by night;
+**¹** 'Observe the month of Abib — and thou hast made a passover to Jehovah thy God, for in the month of Abib hath Jehovah thy God brought thee out of Egypt by night;
 
-<sup>2</sup> and thou hast sacrificed a passover to Jehovah thy God, of the flock, and of the herd, in the place which Jehovah doth choose to cause His name to tabernacle there.
+**²** and thou hast sacrificed a passover to Jehovah thy God, of the flock, and of the herd, in the place which Jehovah doth choose to cause His name to tabernacle there.
 
-<sup>3</sup> 'Thou dost not eat with it any fermented thing, seven days thou dost eat with it unleavened things, bread of affliction; for in haste thou hast come out of the land of Egypt; so that thou dost remember the day of thy coming out of the land of Egypt all days of thy life;
+**³** 'Thou dost not eat with it any fermented thing, seven days thou dost eat with it unleavened things, bread of affliction; for in haste thou hast come out of the land of Egypt; so that thou dost remember the day of thy coming out of the land of Egypt all days of thy life;
 
-<sup>4</sup> and there is not seen with thee leaven in all thy border seven days, and there doth not remain of the flesh which thou dost sacrifice at evening on the first day till morning.
+**⁴** and there is not seen with thee leaven in all thy border seven days, and there doth not remain of the flesh which thou dost sacrifice at evening on the first day till morning.
 
-<sup>5</sup> 'Thou art not able to sacrifice the passover within any of thy gates which Jehovah thy God is giving to thee,
+**⁵** 'Thou art not able to sacrifice the passover within any of thy gates which Jehovah thy God is giving to thee,
 
-<sup>6</sup> except at the place which Jehovah thy God doth choose to cause His name to tabernacle — there thou dost sacrifice the passover in the evening, at the going in of the sun, the season of thy coming out of Egypt;
+**⁶** except at the place which Jehovah thy God doth choose to cause His name to tabernacle — there thou dost sacrifice the passover in the evening, at the going in of the sun, the season of thy coming out of Egypt;
 
-<sup>7</sup> and thou hast cooked and eaten in the place on which Jehovah thy God doth fix, and hast turned in the morning, and gone to thy tents;
+**⁷** and thou hast cooked and eaten in the place on which Jehovah thy God doth fix, and hast turned in the morning, and gone to thy tents;
 
-<sup>8</sup> six days thou dost eat unleavened things, and on the seventh day [is] a restraint to Jehovah thy God; thou dost do no work.
+**⁸** six days thou dost eat unleavened things, and on the seventh day [is] a restraint to Jehovah thy God; thou dost do no work.
 
-<sup>9</sup> 'Seven weeks thou dost number to thee; from the beginning of the sickle among the standing corn thou dost begin to number seven weeks,
+**⁹** 'Seven weeks thou dost number to thee; from the beginning of the sickle among the standing corn thou dost begin to number seven weeks,
 
-<sup>10</sup> and thou hast made the feast of weeks to Jehovah thy God, a tribute of a free-will offering of thy hand, which thou dost give, as Jehovah thy God doth bless thee.
+**¹⁰** and thou hast made the feast of weeks to Jehovah thy God, a tribute of a free-will offering of thy hand, which thou dost give, as Jehovah thy God doth bless thee.
 
-<sup>11</sup> And thou hast rejoiced before Jehovah thy God, thou, and thy son, and thy daughter, and thy man-servant, and thy handmaid, and the Levite who [is] within thy gates, and the sojourner, and the fatherless, and the widow, who [are] in thy midst, in the place which Jehovah thy God doth choose to cause His name to tabernacle there,
+**¹¹** And thou hast rejoiced before Jehovah thy God, thou, and thy son, and thy daughter, and thy man-servant, and thy handmaid, and the Levite who [is] within thy gates, and the sojourner, and the fatherless, and the widow, who [are] in thy midst, in the place which Jehovah thy God doth choose to cause His name to tabernacle there,
 
-<sup>12</sup> and thou hast remembered that a servant thou hast been in Egypt, and hast observed and done these statutes.
+**¹²** and thou hast remembered that a servant thou hast been in Egypt, and hast observed and done these statutes.
 
-<sup>13</sup> 'The feast of booths thou dost make for thee seven days, in thine in-gathering of thy threshing-floor, and of thy wine-vat;
+**¹³** 'The feast of booths thou dost make for thee seven days, in thine in-gathering of thy threshing-floor, and of thy wine-vat;
 
-<sup>14</sup> and thou hast rejoiced in thy feast, thou, and thy son, and thy daughter, and thy man-servant, and thy handmaid, and the Levite, and the sojourner, and the fatherless, and the widow, who [are] within thy gates.
+**¹⁴** and thou hast rejoiced in thy feast, thou, and thy son, and thy daughter, and thy man-servant, and thy handmaid, and the Levite, and the sojourner, and the fatherless, and the widow, who [are] within thy gates.
 
-<sup>15</sup> Seven days thou dost feast before Jehovah thy God, in the place which Jehovah doth choose, for Jehovah thy God doth bless thee in all thine increase, and in every work of thy hands, and thou hast been only rejoicing.
+**¹⁵** Seven days thou dost feast before Jehovah thy God, in the place which Jehovah doth choose, for Jehovah thy God doth bless thee in all thine increase, and in every work of thy hands, and thou hast been only rejoicing.
 
-<sup>16</sup> 'Three times in a year doth every one of thy males appear before Jehovah thy God in the place which He doth choose — in the feast of unleavened things, and in the feast of weeks, and in the feast of booths; and they do not appear before Jehovah empty;
+**¹⁶** 'Three times in a year doth every one of thy males appear before Jehovah thy God in the place which He doth choose — in the feast of unleavened things, and in the feast of weeks, and in the feast of booths; and they do not appear before Jehovah empty;
 
-<sup>17</sup> each according to the gift of his hand, according to the blessing of Jehovah thy God, which He hath given to thee.
+**¹⁷** each according to the gift of his hand, according to the blessing of Jehovah thy God, which He hath given to thee.
 
-<sup>18</sup> 'Judges and authorities thou dost make to thee within all thy gates which Jehovah thy God is giving to thee, for thy tribes; and they have judged the people — a righteous judgment.
+**¹⁸** 'Judges and authorities thou dost make to thee within all thy gates which Jehovah thy God is giving to thee, for thy tribes; and they have judged the people — a righteous judgment.
 
-<sup>19</sup> Thou dost not turn aside judgment; thou dost not discern faces, nor take a bribe, for the bribe blindeth the eyes of the wise, and perverteth the words of the righteous.
+**¹⁹** Thou dost not turn aside judgment; thou dost not discern faces, nor take a bribe, for the bribe blindeth the eyes of the wise, and perverteth the words of the righteous.
 
-<sup>20</sup> Righteousness — righteousness thou dost pursue, so that thou livest, and hast possessed the land which Jehovah thy God is giving to thee.
+**²⁰** Righteousness — righteousness thou dost pursue, so that thou livest, and hast possessed the land which Jehovah thy God is giving to thee.
 
-<sup>21</sup> 'Thou dost not plant for thee a shrine of any trees near the altar of Jehovah thy God, which thou makest for thyself,
+**²¹** 'Thou dost not plant for thee a shrine of any trees near the altar of Jehovah thy God, which thou makest for thyself,
 
-<sup>22</sup> and thou dost not raise up to thee any standing image which Jehovah thy God is hating.
+**²²** and thou dost not raise up to thee any standing image which Jehovah thy God is hating.

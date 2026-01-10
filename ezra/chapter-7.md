@@ -1,57 +1,57 @@
 # Chapter 7
 
-<sup>1</sup> And after these things, in the reign of Artaxerxes king of Persia, Ezra son of Seraiah, son of Azariah, son of Hilkiah,
+**¹** And after these things, in the reign of Artaxerxes king of Persia, Ezra son of Seraiah, son of Azariah, son of Hilkiah,
 
-<sup>2</sup> son of Shallum, son of Zadok, son of Ahitub,
+**²** son of Shallum, son of Zadok, son of Ahitub,
 
-<sup>3</sup> son of Amariah, son of Azariah, son of Meraioth,
+**³** son of Amariah, son of Azariah, son of Meraioth,
 
-<sup>4</sup> son of Zerahiah, son of Uzzi, son of Bukki,
+**⁴** son of Zerahiah, son of Uzzi, son of Bukki,
 
-<sup>5</sup> son of Abishua, son of Phinehas, son of Eleazar, son of Aaron the head priest;
+**⁵** son of Abishua, son of Phinehas, son of Eleazar, son of Aaron the head priest;
 
-<sup>6</sup> Ezra himself hath come up from Babylon, and he [is] a scribe ready in the law of Moses, that Jehovah God of Israel gave, and the king giveth to him — according to the hand of Jehovah his God upon him — all his request.
+**⁶** Ezra himself hath come up from Babylon, and he [is] a scribe ready in the law of Moses, that Jehovah God of Israel gave, and the king giveth to him — according to the hand of Jehovah his God upon him — all his request.
 
-<sup>7</sup> And there go up of the sons of Israel, and of the priests, and the Levites, and the singers, and the gatekeepers, and the Nethinim, unto Jerusalem, in the seventh year of Artaxerxes the king.
+**⁷** And there go up of the sons of Israel, and of the priests, and the Levites, and the singers, and the gatekeepers, and the Nethinim, unto Jerusalem, in the seventh year of Artaxerxes the king.
 
-<sup>8</sup> And he cometh in to Jerusalem in the fifth month, that [is in] the seventh year of the king,
+**⁸** And he cometh in to Jerusalem in the fifth month, that [is in] the seventh year of the king,
 
-<sup>9</sup> for on the first of the month he hath founded the ascent from Babylon, and on the first of the fifth month he hath come in unto Jerusalem, according to the good hand of his God upon him,
+**⁹** for on the first of the month he hath founded the ascent from Babylon, and on the first of the fifth month he hath come in unto Jerusalem, according to the good hand of his God upon him,
 
-<sup>10</sup> for Ezra hath prepared his heart to seek the law of Jehovah, and to do, and to teach in Israel statute and judgment.
+**¹⁰** for Ezra hath prepared his heart to seek the law of Jehovah, and to do, and to teach in Israel statute and judgment.
 
-<sup>11</sup> And this [is] a copy of the letter that the king Artaxerxes gave to Ezra the priest, the scribe, a scribe of the words of the commands of Jehovah, and of His statutes on Israel:
+**¹¹** And this [is] a copy of the letter that the king Artaxerxes gave to Ezra the priest, the scribe, a scribe of the words of the commands of Jehovah, and of His statutes on Israel:
 
-<sup>12</sup> 'Artaxerxes, king of kings, to Ezra the priest, a perfect scribe of the law of the God of heaven, and at such a time:
+**¹²** 'Artaxerxes, king of kings, to Ezra the priest, a perfect scribe of the law of the God of heaven, and at such a time:
 
-<sup>13</sup> By me hath been made a decree that every one who is willing, in my kingdom, of the people of Israel and of its priests and Levites, to go to Jerusalem with thee, doth go;
+**¹³** By me hath been made a decree that every one who is willing, in my kingdom, of the people of Israel and of its priests and Levites, to go to Jerusalem with thee, doth go;
 
-<sup>14</sup> because that from the king and his seven counsellors thou art sent, to inquire concerning Judah and concerning Jerusalem, with the law of God that [is] in thy hand,
+**¹⁴** because that from the king and his seven counsellors thou art sent, to inquire concerning Judah and concerning Jerusalem, with the law of God that [is] in thy hand,
 
-<sup>15</sup> and to carry silver and gold that the king and his counsellors willingly offered to the God of Israel, whose tabernacle [is] in Jerusalem,
+**¹⁵** and to carry silver and gold that the king and his counsellors willingly offered to the God of Israel, whose tabernacle [is] in Jerusalem,
 
-<sup>16</sup> and all the silver and gold that thou findest in all the province of Babylon, with the free-will offerings of the people, and of the priests, offering willingly, for the house of their God that [is] in Jerusalem,
+**¹⁶** and all the silver and gold that thou findest in all the province of Babylon, with the free-will offerings of the people, and of the priests, offering willingly, for the house of their God that [is] in Jerusalem,
 
-<sup>17</sup> therefore thou dost speedily buy with this money, bullocks, rams, lambs, and their presents, and their libations, and dost bring them near to the altar of the house of your God that [is] in Jerusalem,
+**¹⁷** therefore thou dost speedily buy with this money, bullocks, rams, lambs, and their presents, and their libations, and dost bring them near to the altar of the house of your God that [is] in Jerusalem,
 
-<sup>18</sup> and that which to thee and to thy brethren is good to do with the rest of the silver and gold, according to the will of your God ye do.'
+**¹⁸** and that which to thee and to thy brethren is good to do with the rest of the silver and gold, according to the will of your God ye do.'
 
-<sup>19</sup> 'And the vessels that are given to thee, for the service of the house of thy God, make perfect before the God of Jerusalem;
+**¹⁹** 'And the vessels that are given to thee, for the service of the house of thy God, make perfect before the God of Jerusalem;
 
-<sup>20</sup> and the rest of the needful things of the house of thy God, that it falleth to thee to give, thou dost give from the treasure-house of the king.
+**²⁰** and the rest of the needful things of the house of thy God, that it falleth to thee to give, thou dost give from the treasure-house of the king.
 
-<sup>21</sup> 'And by me — I Artaxerxes the king — is made a decree to all treasurers who [are] beyond the river, that all that Ezra the priest, scribe of the law of the God of heaven, doth ask of you, be done speedily:
+**²¹** 'And by me — I Artaxerxes the king — is made a decree to all treasurers who [are] beyond the river, that all that Ezra the priest, scribe of the law of the God of heaven, doth ask of you, be done speedily:
 
-<sup>22</sup> Unto silver a hundred talents, and unto wheat a hundred cors, and unto wine a hundred baths, and unto oil a hundred baths, and salt without reckoning;
+**²²** Unto silver a hundred talents, and unto wheat a hundred cors, and unto wine a hundred baths, and unto oil a hundred baths, and salt without reckoning;
 
-<sup>23</sup> all that [is] by the decree of the God of heaven, let be done diligently for the house of the God of heaven; for why is there wrath against the kingdom of the king and his sons?
+**²³** all that [is] by the decree of the God of heaven, let be done diligently for the house of the God of heaven; for why is there wrath against the kingdom of the king and his sons?
 
-<sup>24</sup> 'And to you we are making known, that upon any of the priests and Levites, singers, gatekeepers, Nethinim, and servants of the house of God, tribute and custom there is no authority to lift up.
+**²⁴** 'And to you we are making known, that upon any of the priests and Levites, singers, gatekeepers, Nethinim, and servants of the house of God, tribute and custom there is no authority to lift up.
 
-<sup>25</sup> 'And thou, Ezra, according to the wisdom of thy God, that [is] in thy hand, appoint magistrates and judges who may be judges to all the people who are beyond the river, to all knowing the law of thy God, and he who hath not known ye cause to know;
+**²⁵** 'And thou, Ezra, according to the wisdom of thy God, that [is] in thy hand, appoint magistrates and judges who may be judges to all the people who are beyond the river, to all knowing the law of thy God, and he who hath not known ye cause to know;
 
-<sup>26</sup> and any who doth not do the law of thy God, and the law of the king, speedily is judgment done upon him, whether to death, or to banishment, or to confiscation of riches, and to bonds.'
+**²⁶** and any who doth not do the law of thy God, and the law of the king, speedily is judgment done upon him, whether to death, or to banishment, or to confiscation of riches, and to bonds.'
 
-<sup>27</sup> Blessed [is] Jehovah, God of our fathers, who hath given such a thing as this in the heart of the king, to beautify the house of Jehovah that [is] in Jerusalem,
+**²⁷** Blessed [is] Jehovah, God of our fathers, who hath given such a thing as this in the heart of the king, to beautify the house of Jehovah that [is] in Jerusalem,
 
-<sup>28</sup> and unto me hath stretched out kindness before the king and his counsellors, and before all the mighty heads of the king: and I have strengthened myself as the hand of Jehovah my God [is] upon me, and I gather out of Israel heads to go up with me.
+**²⁸** and unto me hath stretched out kindness before the king and his counsellors, and before all the mighty heads of the king: and I have strengthened myself as the hand of Jehovah my God [is] upon me, and I gather out of Israel heads to go up with me.

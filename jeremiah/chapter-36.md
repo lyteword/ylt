@@ -1,65 +1,65 @@
 # Chapter 36
 
-<sup>1</sup> And it cometh to pass, in the fourth year of Jehoiakim son of Josiah king of Judah, this word hath been unto Jeremiah from Jehovah, saying:
+**¹** And it cometh to pass, in the fourth year of Jehoiakim son of Josiah king of Judah, this word hath been unto Jeremiah from Jehovah, saying:
 
-<sup>2</sup> 'Take to thee a roll of a book, and thou hast written on it all the words that I have spoken unto thee concerning Israel, and concerning Judah, and concerning all the nations, from the day I spake unto thee, from the days of Josiah, even unto this day;
+**²** 'Take to thee a roll of a book, and thou hast written on it all the words that I have spoken unto thee concerning Israel, and concerning Judah, and concerning all the nations, from the day I spake unto thee, from the days of Josiah, even unto this day;
 
-<sup>3</sup> if so be the house of Israel do hear all the evil that I am thinking of doing to them, so that they turn back each from is evil way, and I have been propitious to their iniquity, and to their sin.'
+**³** if so be the house of Israel do hear all the evil that I am thinking of doing to them, so that they turn back each from is evil way, and I have been propitious to their iniquity, and to their sin.'
 
-<sup>4</sup> And Jeremiah calleth Baruch son of Neriah, and Baruch writeth from the mouth of Jeremiah all the words of Jehovah, that He hath spoken unto him, on a roll of a book.
+**⁴** And Jeremiah calleth Baruch son of Neriah, and Baruch writeth from the mouth of Jeremiah all the words of Jehovah, that He hath spoken unto him, on a roll of a book.
 
-<sup>5</sup> And Jeremiah commandeth Baruch, saying, 'I am restrained, I am not able to enter the house of Jehovah;
+**⁵** And Jeremiah commandeth Baruch, saying, 'I am restrained, I am not able to enter the house of Jehovah;
 
-<sup>6</sup> but thou hast entered — and thou hast read in the roll that thou hast written from my mouth, the words of Jehovah, in the ears of the people, in the house of Jehovah, in the day of the fast, and also in the ears of all Judah who are coming in from their cities thou dost read them;
+**⁶** but thou hast entered — and thou hast read in the roll that thou hast written from my mouth, the words of Jehovah, in the ears of the people, in the house of Jehovah, in the day of the fast, and also in the ears of all Judah who are coming in from their cities thou dost read them;
 
-<sup>7</sup> if so be their supplication doth fall before Jehovah, and they turn back each from his evil way, for great [is] the anger and the fury that Jehovah hath spoken concerning this people.'
+**⁷** if so be their supplication doth fall before Jehovah, and they turn back each from his evil way, for great [is] the anger and the fury that Jehovah hath spoken concerning this people.'
 
-<sup>8</sup> And Baruch son of Neriah doth according to all that Jeremiah the prophet commanded him, to read in the book the words of Jehovah in the house of Jehovah.
+**⁸** And Baruch son of Neriah doth according to all that Jeremiah the prophet commanded him, to read in the book the words of Jehovah in the house of Jehovah.
 
-<sup>9</sup> And it cometh to pass, in the fifth year of Jehoiakim son of Josiah king of Judah, in the ninth month, proclaimed a fast before Jehovah have all the people in Jerusalem, and all the people who are coming in from cities of Judah to Jerusalem;
+**⁹** And it cometh to pass, in the fifth year of Jehoiakim son of Josiah king of Judah, in the ninth month, proclaimed a fast before Jehovah have all the people in Jerusalem, and all the people who are coming in from cities of Judah to Jerusalem;
 
-<sup>10</sup> and Baruch readeth in the book the words of Jeremiah in the house of Jehovah, in the chamber of Gemariah son of Shaphan the scribe, in the higher court, at the opening of the new gate of the house of Jehovah, in the ears of all the people.
+**¹⁰** and Baruch readeth in the book the words of Jeremiah in the house of Jehovah, in the chamber of Gemariah son of Shaphan the scribe, in the higher court, at the opening of the new gate of the house of Jehovah, in the ears of all the people.
 
-<sup>11</sup> And Michaiah son of Gemariah, son of Shaphan, heareth all the words of Jehovah from off the book,
+**¹¹** And Michaiah son of Gemariah, son of Shaphan, heareth all the words of Jehovah from off the book,
 
-<sup>12</sup> and he goeth down [to] the house of the king, unto the chamber of the scribe, and lo, there are all the heads sitting: Elishama the scribe, and Delaiah son of Shemaiah, and Elnathan son of Acbor, and Gemariah son of Shaphan, and Zedekiah son of Hananiah, and all the heads.
+**¹²** and he goeth down [to] the house of the king, unto the chamber of the scribe, and lo, there are all the heads sitting: Elishama the scribe, and Delaiah son of Shemaiah, and Elnathan son of Acbor, and Gemariah son of Shaphan, and Zedekiah son of Hananiah, and all the heads.
 
-<sup>13</sup> And declare to them doth Micaiah all the words that he hath heard, when Baruch readeth in the book in the ears of the people;
+**¹³** And declare to them doth Micaiah all the words that he hath heard, when Baruch readeth in the book in the ears of the people;
 
-<sup>14</sup> and all the heads send unto Baruch, Jehudi son of Nethaniah, son of Shelemiah, son of Cushi, saying, 'The roll in which thou hast read in the ears of the people take in thy hand, and come.' And Baruch son of Neriah taketh the roll in his hand and cometh in unto them,
+**¹⁴** and all the heads send unto Baruch, Jehudi son of Nethaniah, son of Shelemiah, son of Cushi, saying, 'The roll in which thou hast read in the ears of the people take in thy hand, and come.' And Baruch son of Neriah taketh the roll in his hand and cometh in unto them,
 
-<sup>15</sup> and they say unto him, 'Sit down, we pray thee, and read it in our ears,' and Baruch readeth in their ears,
+**¹⁵** and they say unto him, 'Sit down, we pray thee, and read it in our ears,' and Baruch readeth in their ears,
 
-<sup>16</sup> and it cometh to pass, when they hear all the words, they have been afraid one at another, and say unto Baruch, 'We do surely declare to the king all these words.'
+**¹⁶** and it cometh to pass, when they hear all the words, they have been afraid one at another, and say unto Baruch, 'We do surely declare to the king all these words.'
 
-<sup>17</sup> And they asked Baruch, saying, 'Declare, we pray thee, to us, how didst thou write all these words — from his mouth?'
+**¹⁷** And they asked Baruch, saying, 'Declare, we pray thee, to us, how didst thou write all these words — from his mouth?'
 
-<sup>18</sup> And Baruch saith to them, 'From his mouth, he pronounceth unto me all these words, and I am writing on the book with ink.'
+**¹⁸** And Baruch saith to them, 'From his mouth, he pronounceth unto me all these words, and I am writing on the book with ink.'
 
-<sup>19</sup> And the heads say unto Baruch, 'Go, be hidden, thou and Jeremiah, and let no one know where ye [are].'
+**¹⁹** And the heads say unto Baruch, 'Go, be hidden, thou and Jeremiah, and let no one know where ye [are].'
 
-<sup>20</sup> And they go in unto the king, to the court, and the roll they have laid up in the chamber of Elishama the scribe, and they declare in the ears of the king all the words.
+**²⁰** And they go in unto the king, to the court, and the roll they have laid up in the chamber of Elishama the scribe, and they declare in the ears of the king all the words.
 
-<sup>21</sup> And the king sendeth Jehudi to take the roll, and he taketh it out of the chamber of Elishama the scribe, and Jehudi readeth it in the ears of the king, and in the ears of all the heads who are standing by the king;
+**²¹** And the king sendeth Jehudi to take the roll, and he taketh it out of the chamber of Elishama the scribe, and Jehudi readeth it in the ears of the king, and in the ears of all the heads who are standing by the king;
 
-<sup>22</sup> and the king is sitting in the winter-house, in the ninth month, and the stove before him is burning,
+**²²** and the king is sitting in the winter-house, in the ninth month, and the stove before him is burning,
 
-<sup>23</sup> and it cometh to pass, when Jehudi readeth three or four leaves, he cutteth it out with the scribe's knife, and hath cast unto the fire, that [is] on the stove, till the consumption of all the roll by the fire that [is] on the stove.
+**²³** and it cometh to pass, when Jehudi readeth three or four leaves, he cutteth it out with the scribe's knife, and hath cast unto the fire, that [is] on the stove, till the consumption of all the roll by the fire that [is] on the stove.
 
-<sup>24</sup> And the king and all his servants who are hearing all these words have not been afraid, nor rent their garments.
+**²⁴** And the king and all his servants who are hearing all these words have not been afraid, nor rent their garments.
 
-<sup>25</sup> And also Elnathan, and Delaiah, and Gemariah have interceded with the king not to burn the roll, and he hath not hearkened unto them.
+**²⁵** And also Elnathan, and Delaiah, and Gemariah have interceded with the king not to burn the roll, and he hath not hearkened unto them.
 
-<sup>26</sup> And the king commandeth Jerahmeel son of Hammelek, and Seraiah son of Azriel, and Shelemiah son of Abdeel, to take Baruch the scribe, and Jeremiah the prophet, and Jehovah doth hide them.
+**²⁶** And the king commandeth Jerahmeel son of Hammelek, and Seraiah son of Azriel, and Shelemiah son of Abdeel, to take Baruch the scribe, and Jeremiah the prophet, and Jehovah doth hide them.
 
-<sup>27</sup> And there is a word of Jehovah unto Jeremiah — after the king's burning the roll, even the words that Baruch hath written from the mouth of Jeremiah — saying:
+**²⁷** And there is a word of Jehovah unto Jeremiah — after the king's burning the roll, even the words that Baruch hath written from the mouth of Jeremiah — saying:
 
-<sup>28</sup> 'Turn, take to thee another roll, and write on it all the former words that were on the first roll, that Jehoiakim king of Judah burnt,
+**²⁸** 'Turn, take to thee another roll, and write on it all the former words that were on the first roll, that Jehoiakim king of Judah burnt,
 
-<sup>29</sup> and unto Jehoiakim king of Judah thou dost say: Thus said Jehovah, Thou hast burnt this roll, saying, Wherefore hast thou written on it, saying, The king of Babylon surely cometh in, and hath destroyed this land, and caused to cease from it man and beast?
+**²⁹** and unto Jehoiakim king of Judah thou dost say: Thus said Jehovah, Thou hast burnt this roll, saying, Wherefore hast thou written on it, saying, The king of Babylon surely cometh in, and hath destroyed this land, and caused to cease from it man and beast?
 
-<sup>30</sup> 'Therefore, thus said Jehovah, concerning Jehoiakim king of Judah: He hath none sitting on the throne of David, and his carcase is cast out to heat by day, and to cold by night;
+**³⁰** 'Therefore, thus said Jehovah, concerning Jehoiakim king of Judah: He hath none sitting on the throne of David, and his carcase is cast out to heat by day, and to cold by night;
 
-<sup>31</sup> and I have charged on him, and on his seed, and on his servants, their iniquity; and I have brought in on them, and on the inhabitants of Jerusalem, and unto the men of Judah, all the evil that I have spoken unto them, and they hearkened not.'
+**³¹** and I have charged on him, and on his seed, and on his servants, their iniquity; and I have brought in on them, and on the inhabitants of Jerusalem, and unto the men of Judah, all the evil that I have spoken unto them, and they hearkened not.'
 
-<sup>32</sup> And Jeremiah hath taken another roll, and giveth it unto Baruch son of Neriah the scribe, and he writeth on it from the mouth of Jeremiah all the words of the book that Jehoiakim king of Judah hath burnt in the fire; and again there were added unto them many words like these.
+**³²** And Jeremiah hath taken another roll, and giveth it unto Baruch son of Neriah the scribe, and he writeth on it from the mouth of Jeremiah all the words of the book that Jehoiakim king of Judah hath burnt in the fire; and again there were added unto them many words like these.

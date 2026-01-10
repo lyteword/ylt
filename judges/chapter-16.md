@@ -1,63 +1,63 @@
 # Chapter 16
 
-<sup>1</sup> And Samson goeth to Gaza, and seeth there a woman, a harlot, and goeth in unto her;
+**¹** And Samson goeth to Gaza, and seeth there a woman, a harlot, and goeth in unto her;
 
-<sup>2</sup> [it is told] to the Gazathites, saying, 'Samson hath come in hither;' and they go round and lay wait for him all the night at the gate of the city, and keep themselves silent all the night, saying, 'Till the light of the morning — then we have slain him.'
+**²** [it is told] to the Gazathites, saying, 'Samson hath come in hither;' and they go round and lay wait for him all the night at the gate of the city, and keep themselves silent all the night, saying, 'Till the light of the morning — then we have slain him.'
 
-<sup>3</sup> And Samson lieth down till the middle of the night, and riseth in the middle of the night, and layeth hold on the doors of the gate of the city, and on the two side posts, and removeth them with the bar, and putteth on his shoulders, and taketh them up unto the top of the hill, which [is] on the front of Hebron.
+**³** And Samson lieth down till the middle of the night, and riseth in the middle of the night, and layeth hold on the doors of the gate of the city, and on the two side posts, and removeth them with the bar, and putteth on his shoulders, and taketh them up unto the top of the hill, which [is] on the front of Hebron.
 
-<sup>4</sup> And it cometh to pass afterwards that he loveth a woman in the valley of Sorek, and her name [is] Delilah,
+**⁴** And it cometh to pass afterwards that he loveth a woman in the valley of Sorek, and her name [is] Delilah,
 
-<sup>5</sup> and the princes of the Philistines come up unto her, and say to her, 'Entice him, and see wherein his great power [is], and wherein we are able for him — and we have bound him to afflict him, and we — we give to thee, each one, eleven hundred silverlings.'
+**⁵** and the princes of the Philistines come up unto her, and say to her, 'Entice him, and see wherein his great power [is], and wherein we are able for him — and we have bound him to afflict him, and we — we give to thee, each one, eleven hundred silverlings.'
 
-<sup>6</sup> And Delilah saith unto Samson, 'Declare, I pray thee, to me, wherein thy great power [is], and wherewith thou art bound, to afflict thee.'
+**⁶** And Delilah saith unto Samson, 'Declare, I pray thee, to me, wherein thy great power [is], and wherewith thou art bound, to afflict thee.'
 
-<sup>7</sup> And Samson saith unto her, 'If they bind me with seven green withs which have not been dried, then I have been weak, and have been as one of the human race.'
+**⁷** And Samson saith unto her, 'If they bind me with seven green withs which have not been dried, then I have been weak, and have been as one of the human race.'
 
-<sup>8</sup> And the princes of the Philistines bring up to her seven green withs which have not been dried, and she bindeth him with them.
+**⁸** And the princes of the Philistines bring up to her seven green withs which have not been dried, and she bindeth him with them.
 
-<sup>9</sup> And the ambush is abiding with her in an inner chamber, and she saith unto him, 'Philistines [are] upon thee, Samson;' and he breaketh the withs as a thread of tow is broken in its smelling fire, and his power hath not been known.
+**⁹** And the ambush is abiding with her in an inner chamber, and she saith unto him, 'Philistines [are] upon thee, Samson;' and he breaketh the withs as a thread of tow is broken in its smelling fire, and his power hath not been known.
 
-<sup>10</sup> And Delilah saith unto Samson, 'Lo, thou hast played upon me, and speakest unto me lies; now, declare, I pray thee, to me, wherewith thou art bound.'
+**¹⁰** And Delilah saith unto Samson, 'Lo, thou hast played upon me, and speakest unto me lies; now, declare, I pray thee, to me, wherewith thou art bound.'
 
-<sup>11</sup> And he saith unto her, 'If they certainly bind me with thick bands, new ones, by which work hath not been done, then I have been weak, and have been as one of the human race.'
+**¹¹** And he saith unto her, 'If they certainly bind me with thick bands, new ones, by which work hath not been done, then I have been weak, and have been as one of the human race.'
 
-<sup>12</sup> And Delilah taketh thick bands, new ones, and bindeth him with them, and saith unto him, 'Philistines [are] upon thee, Samson;' and the ambush is abiding in an inner chamber, and he breaketh them from off his arms as a thread.
+**¹²** And Delilah taketh thick bands, new ones, and bindeth him with them, and saith unto him, 'Philistines [are] upon thee, Samson;' and the ambush is abiding in an inner chamber, and he breaketh them from off his arms as a thread.
 
-<sup>13</sup> And Delilah saith unto Samson, 'Hitherto thou hast played upon me, and dost speak unto me lies; declare to me wherewith thou art bound.' And he saith unto her, 'If thou weavest the seven locks of my head with the web.'
+**¹³** And Delilah saith unto Samson, 'Hitherto thou hast played upon me, and dost speak unto me lies; declare to me wherewith thou art bound.' And he saith unto her, 'If thou weavest the seven locks of my head with the web.'
 
-<sup>14</sup> And she fixeth [it] with the pin, and saith unto him, 'Philistines [are] upon thee, Samson;' and he awaketh out of his sleep, and journeyeth with the pin of the weaving machine, and with the web.
+**¹⁴** And she fixeth [it] with the pin, and saith unto him, 'Philistines [are] upon thee, Samson;' and he awaketh out of his sleep, and journeyeth with the pin of the weaving machine, and with the web.
 
-<sup>15</sup> And she saith unto him, 'How dost thou say, I have loved thee, and thy heart is not with me? these three times thou hast played upon me, and hast not declared to me wherein thy great power [is].'
+**¹⁵** And she saith unto him, 'How dost thou say, I have loved thee, and thy heart is not with me? these three times thou hast played upon me, and hast not declared to me wherein thy great power [is].'
 
-<sup>16</sup> And it cometh to pass, because she distressed him with her words all the days, and doth urge him, and his soul is grieved to death,
+**¹⁶** And it cometh to pass, because she distressed him with her words all the days, and doth urge him, and his soul is grieved to death,
 
-<sup>17</sup> that he declareth to her all his heart, and saith to her, 'A razor hath not gone up on my head, for a Nazarite to God I [am] from the womb of my mother; if I have been shaven, then hath my power turned aside from me, and I have been weak, and have been as any of the human race.'
+**¹⁷** that he declareth to her all his heart, and saith to her, 'A razor hath not gone up on my head, for a Nazarite to God I [am] from the womb of my mother; if I have been shaven, then hath my power turned aside from me, and I have been weak, and have been as any of the human race.'
 
-<sup>18</sup> And Delilah seeth that he hath declared to her all his heart, and she sendeth and calleth for the princes of the Philistines, saying, 'Come up this time, for he hath declared to me all his heart;' and the princes of the Philistines have come up unto her, and bring up the money in their hand.
+**¹⁸** And Delilah seeth that he hath declared to her all his heart, and she sendeth and calleth for the princes of the Philistines, saying, 'Come up this time, for he hath declared to me all his heart;' and the princes of the Philistines have come up unto her, and bring up the money in their hand.
 
-<sup>19</sup> and she maketh him sleep on her knees, and calleth for a man, and shaveth the seven locks of his head, and beginneth to afflict him, and his power turneth aside from off him;
+**¹⁹** and she maketh him sleep on her knees, and calleth for a man, and shaveth the seven locks of his head, and beginneth to afflict him, and his power turneth aside from off him;
 
-<sup>20</sup> and she saith, 'Philistines [are] upon thee, Samson;' and he awaketh out of his sleep, and saith, 'I go out as time by time, and shake myself;' and he hath not known that Jehovah hath turned aside from off him.
+**²⁰** and she saith, 'Philistines [are] upon thee, Samson;' and he awaketh out of his sleep, and saith, 'I go out as time by time, and shake myself;' and he hath not known that Jehovah hath turned aside from off him.
 
-<sup>21</sup> And the Philistines seize him, and pick out his eyes, and bring him down to Gaza, and bind him with two brazen fetters; and he is grinding in the prison-house.
+**²¹** And the Philistines seize him, and pick out his eyes, and bring him down to Gaza, and bind him with two brazen fetters; and he is grinding in the prison-house.
 
-<sup>22</sup> And the hair of his head beginneth to shoot up, when he hath been shaven,
+**²²** And the hair of his head beginneth to shoot up, when he hath been shaven,
 
-<sup>23</sup> and the princes of the Philistines have been gathered together to sacrifice a great sacrifice to Dagon their god, and to rejoice; and they say, 'Our god hath given into our hand Samson our enemy.'
+**²³** and the princes of the Philistines have been gathered together to sacrifice a great sacrifice to Dagon their god, and to rejoice; and they say, 'Our god hath given into our hand Samson our enemy.'
 
-<sup>24</sup> And the people see him, and praise their god, for they said, 'Our god hath given in our hand our enemy, and he who is laying waste our land, and who multiplied our wounded.'
+**²⁴** And the people see him, and praise their god, for they said, 'Our god hath given in our hand our enemy, and he who is laying waste our land, and who multiplied our wounded.'
 
-<sup>25</sup> And it cometh to pass, when their heart [is] glad, that they say, 'Call for Samson, and he doth play before us;' and they call for Samson out of the prison-house, and he playeth before them, and they cause him to stand between the pillars.
+**²⁵** And it cometh to pass, when their heart [is] glad, that they say, 'Call for Samson, and he doth play before us;' and they call for Samson out of the prison-house, and he playeth before them, and they cause him to stand between the pillars.
 
-<sup>26</sup> And Samson saith unto the young man who is keeping hold on his hand, 'Let me alone, and let me feel the pillars on which the house is established, and I lean upon them.'
+**²⁶** And Samson saith unto the young man who is keeping hold on his hand, 'Let me alone, and let me feel the pillars on which the house is established, and I lean upon them.'
 
-<sup>27</sup> And the house hath been full of men and of women, and thither [are] all the princes of the Philistines, and on the roof [are] about three thousand men and women, who are looking on the playing of Samson.
+**²⁷** And the house hath been full of men and of women, and thither [are] all the princes of the Philistines, and on the roof [are] about three thousand men and women, who are looking on the playing of Samson.
 
-<sup>28</sup> And Samson calleth unto Jehovah, and saith, 'Lord Jehovah, remember me, I pray Thee, and strengthen me, I pray Thee, only this time, O God; and I am avenged — vengeance at once — because of my two eyes, on the Philistines.'
+**²⁸** And Samson calleth unto Jehovah, and saith, 'Lord Jehovah, remember me, I pray Thee, and strengthen me, I pray Thee, only this time, O God; and I am avenged — vengeance at once — because of my two eyes, on the Philistines.'
 
-<sup>29</sup> And Samson turneth aside [to] the two middle pillars, on which the house is established, and on which it is supported, [to] the one with his right hand, and one with his left;
+**²⁹** And Samson turneth aside [to] the two middle pillars, on which the house is established, and on which it is supported, [to] the one with his right hand, and one with his left;
 
-<sup>30</sup> and Samson saith, 'Let me die with the Philistines,' and he inclineth himself powerfully, and the house falleth on the princes, and on all the people who [are] in it, and the dead whom he hath put to death in his death are more than those whom he put to death in his life.
+**³⁰** and Samson saith, 'Let me die with the Philistines,' and he inclineth himself powerfully, and the house falleth on the princes, and on all the people who [are] in it, and the dead whom he hath put to death in his death are more than those whom he put to death in his life.
 
-<sup>31</sup> And his brethren come down, and all the house of his father, and lift him up, and bring him up, and bury him between Zorah and Eshtaol, in the burying-place of Manoah his father; and he hath judged Israel twenty years.
+**³¹** And his brethren come down, and all the house of his father, and lift him up, and bring him up, and bury him between Zorah and Eshtaol, in the burying-place of Manoah his father; and he hath judged Israel twenty years.

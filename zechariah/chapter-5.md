@@ -1,23 +1,23 @@
 # Chapter 5
 
-<sup>1</sup> And I turn back, and lift up mine eyes, and look, and lo, a flying roll.
+**¹** And I turn back, and lift up mine eyes, and look, and lo, a flying roll.
 
-<sup>2</sup> And he saith unto me, 'What art thou seeing?' And I say, 'I am seeing a flying roll, its length twenty by the cubit, and its breadth ten by the cubit.'
+**²** And he saith unto me, 'What art thou seeing?' And I say, 'I am seeing a flying roll, its length twenty by the cubit, and its breadth ten by the cubit.'
 
-<sup>3</sup> And he saith unto me, 'This [is] the execration that is going forth over the face of all the land, for every one who is stealing, on the one side, according to it, hath been declared innocent, and every one who hath sworn, on the other side, according to it, hath been declared innocent.
+**³** And he saith unto me, 'This [is] the execration that is going forth over the face of all the land, for every one who is stealing, on the one side, according to it, hath been declared innocent, and every one who hath sworn, on the other side, according to it, hath been declared innocent.
 
-<sup>4</sup> 'I have brought it out — an affirmation of Jehovah of Hosts — and it hath come in unto the house of the thief, and unto the house of him who hath sworn in My name to a falsehood, and it hath remained in the midst of his house, and hath consumed it, both its wood and its stones.'
+**⁴** 'I have brought it out — an affirmation of Jehovah of Hosts — and it hath come in unto the house of the thief, and unto the house of him who hath sworn in My name to a falsehood, and it hath remained in the midst of his house, and hath consumed it, both its wood and its stones.'
 
-<sup>5</sup> And the messenger who is speaking with me goeth forth, and saith unto me, 'Lift up, I pray thee, thine eyes, and see what [is] this that is coming forth?'
+**⁵** And the messenger who is speaking with me goeth forth, and saith unto me, 'Lift up, I pray thee, thine eyes, and see what [is] this that is coming forth?'
 
-<sup>6</sup> And I say, 'What [is] it?' And he saith, 'This — the ephah that is coming forth.' And he saith, 'This [is] their aspect in all the land.
+**⁶** And I say, 'What [is] it?' And he saith, 'This — the ephah that is coming forth.' And he saith, 'This [is] their aspect in all the land.
 
-<sup>7</sup> And lo, a cake of lead lifted up; and this [is] a woman sitting in the midst of the ephah.'
+**⁷** And lo, a cake of lead lifted up; and this [is] a woman sitting in the midst of the ephah.'
 
-<sup>8</sup> And he saith, 'This [is] the wicked woman.' And he casteth her unto the midst of the ephah, and casteth the weight of lead on its mouth.
+**⁸** And he saith, 'This [is] the wicked woman.' And he casteth her unto the midst of the ephah, and casteth the weight of lead on its mouth.
 
-<sup>9</sup> And I lift up mine eyes, and see, and lo, two women are coming forth, and wind in their wings; and they have wings like wings of the stork, and they lift up the ephah between the earth and the heavens.
+**⁹** And I lift up mine eyes, and see, and lo, two women are coming forth, and wind in their wings; and they have wings like wings of the stork, and they lift up the ephah between the earth and the heavens.
 
-<sup>10</sup> And I say unto the messenger who is speaking with me, 'Whither [are] they causing the ephah to go?'
+**¹⁰** And I say unto the messenger who is speaking with me, 'Whither [are] they causing the ephah to go?'
 
-<sup>11</sup> And he saith unto me, 'To build to it a house in the land of Shinar.' And it hath been prepared and hath been placed there on its base.
+**¹¹** And he saith unto me, 'To build to it a house in the land of Shinar.' And it hath been prepared and hath been placed there on its base.

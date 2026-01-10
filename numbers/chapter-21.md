@@ -1,71 +1,71 @@
 # Chapter 21
 
-<sup>1</sup> And the Canaanite — king Arad — dwelling in the south, heareth that Israel hath come the way of the Atharim, and he fighteth against Israel, and taketh [some] of them captive.
+**¹** And the Canaanite — king Arad — dwelling in the south, heareth that Israel hath come the way of the Atharim, and he fighteth against Israel, and taketh [some] of them captive.
 
-<sup>2</sup> And Israel voweth a vow to Jehovah, and saith, 'If Thou dost certainly give this people into my hand, then I have devoted their cities;'
+**²** And Israel voweth a vow to Jehovah, and saith, 'If Thou dost certainly give this people into my hand, then I have devoted their cities;'
 
-<sup>3</sup> and Jehovah hearkeneth to the voice of Israel, and giveth up the Canaanite, and he devoteth them and their cities, and calleth the name of the place Hormah.
+**³** and Jehovah hearkeneth to the voice of Israel, and giveth up the Canaanite, and he devoteth them and their cities, and calleth the name of the place Hormah.
 
-<sup>4</sup> And they journey from mount Hor, the way of the Red Sea, to compass the land of Edom, and the soul of the people is short in the way,
+**⁴** And they journey from mount Hor, the way of the Red Sea, to compass the land of Edom, and the soul of the people is short in the way,
 
-<sup>5</sup> and the people speak against God, and against Moses, 'Why hast thou brought us up out of Egypt to die in a wilderness? for there is no bread, and there is no water, and our soul hath been weary of this light bread.'
+**⁵** and the people speak against God, and against Moses, 'Why hast thou brought us up out of Egypt to die in a wilderness? for there is no bread, and there is no water, and our soul hath been weary of this light bread.'
 
-<sup>6</sup> And Jehovah sendeth among the people the burning serpents, and they bite the people, and much people of Israel die;
+**⁶** And Jehovah sendeth among the people the burning serpents, and they bite the people, and much people of Israel die;
 
-<sup>7</sup> and the people come in unto Moses and say, 'We have sinned, for we have spoken against Jehovah, and against thee; pray unto Jehovah, and He doth turn aside from us the serpent;' and Moses prayeth in behalf of the people.
+**⁷** and the people come in unto Moses and say, 'We have sinned, for we have spoken against Jehovah, and against thee; pray unto Jehovah, and He doth turn aside from us the serpent;' and Moses prayeth in behalf of the people.
 
-<sup>8</sup> And Jehovah saith unto Moses, 'Make for thee a burning [serpent], and set it on an ensign; and it hath been, every one who is bitten and hath seen it — he hath lived.
+**⁸** And Jehovah saith unto Moses, 'Make for thee a burning [serpent], and set it on an ensign; and it hath been, every one who is bitten and hath seen it — he hath lived.
 
-<sup>9</sup> And Moses maketh a serpent of brass, and setteth it on the ensign, and it hath been, if the serpent hath bitten any man, and he hath looked expectingly unto the serpent of brass — he hath lived.
+**⁹** And Moses maketh a serpent of brass, and setteth it on the ensign, and it hath been, if the serpent hath bitten any man, and he hath looked expectingly unto the serpent of brass — he hath lived.
 
-<sup>10</sup> And the sons of Israel journey, and encamp in Oboth.
+**¹⁰** And the sons of Israel journey, and encamp in Oboth.
 
-<sup>11</sup> And they journey from Oboth, and encamp in Ije-Abarim, in the wilderness that [is] on the front of Moab, at the rising of the sun.
+**¹¹** And they journey from Oboth, and encamp in Ije-Abarim, in the wilderness that [is] on the front of Moab, at the rising of the sun.
 
-<sup>12</sup> From thence they have journeyed, and encamp in the valley of Zared.
+**¹²** From thence they have journeyed, and encamp in the valley of Zared.
 
-<sup>13</sup> From thence they have journeyed, and encamp beyond Arnon, which [is] in the wilderness which is coming out of the border of the Amorite, for Arnon [is] the border of Moab, between Moab and the Amorite;
+**¹³** From thence they have journeyed, and encamp beyond Arnon, which [is] in the wilderness which is coming out of the border of the Amorite, for Arnon [is] the border of Moab, between Moab and the Amorite;
 
-<sup>14</sup> therefore it is said in a book, 'The wars of Jehovah,' — 'Waheb in Suphah, And the brooks of Arnon;
+**¹⁴** therefore it is said in a book, 'The wars of Jehovah,' — 'Waheb in Suphah, And the brooks of Arnon;
 
-<sup>15</sup> And the spring of the brooks, Which turned aside to the dwelling of Ar, And hath leaned to the border of Moab.'
+**¹⁵** And the spring of the brooks, Which turned aside to the dwelling of Ar, And hath leaned to the border of Moab.'
 
-<sup>16</sup> And from thence [they journeyed] to Beer; it [is] the well [concerning] which Jehovah said to Moses, 'Gather the people, and I give to them — water.'
+**¹⁶** And from thence [they journeyed] to Beer; it [is] the well [concerning] which Jehovah said to Moses, 'Gather the people, and I give to them — water.'
 
-<sup>17</sup> Then singeth Israel this song, concerning the well — they have answered to it:
+**¹⁷** Then singeth Israel this song, concerning the well — they have answered to it:
 
-<sup>18</sup> 'A well — digged it have princes, Prepared it have nobles of the people, With the lawgiver, with their staves.' And from the wilderness [they journeyed] to Mattanah,
+**¹⁸** 'A well — digged it have princes, Prepared it have nobles of the people, With the lawgiver, with their staves.' And from the wilderness [they journeyed] to Mattanah,
 
-<sup>19</sup> and from Mattanah to Nahaliel, and from Nahaliel to Bamoth,
+**¹⁹** and from Mattanah to Nahaliel, and from Nahaliel to Bamoth,
 
-<sup>20</sup> and from Bamoth in the valley which [is] in the field of Moab [to] the top of Pisgah, which hath looked on the front of the wilderness.
+**²⁰** and from Bamoth in the valley which [is] in the field of Moab [to] the top of Pisgah, which hath looked on the front of the wilderness.
 
-<sup>21</sup> And Israel sendeth messengers unto Sihon king of the Amorite, saying,
+**²¹** And Israel sendeth messengers unto Sihon king of the Amorite, saying,
 
-<sup>22</sup> 'Let me pass through thy land, we do not turn aside into a field, or into a vineyard, we do not drink waters of a well; in the king's way we go, till that we pass over thy border.'
+**²²** 'Let me pass through thy land, we do not turn aside into a field, or into a vineyard, we do not drink waters of a well; in the king's way we go, till that we pass over thy border.'
 
-<sup>23</sup> And Sihon hath not suffered Israel to pass through his border, and Sihon gathereth all his people, and cometh out to meet Israel into the wilderness, and cometh in to Jahaz, and fighteth against Israel.
+**²³** And Sihon hath not suffered Israel to pass through his border, and Sihon gathereth all his people, and cometh out to meet Israel into the wilderness, and cometh in to Jahaz, and fighteth against Israel.
 
-<sup>24</sup> And Israel smiteth him by the mouth of the sword, and possesseth his land from Arnon unto Jabbok — unto the sons of Ammon; for the border of the sons of Ammon [is] strong.
+**²⁴** And Israel smiteth him by the mouth of the sword, and possesseth his land from Arnon unto Jabbok — unto the sons of Ammon; for the border of the sons of Ammon [is] strong.
 
-<sup>25</sup> And Israel taketh all these cities, and Israel dwelleth in all the cities of the Amorite, in Heshbon, and in all its villages;
+**²⁵** And Israel taketh all these cities, and Israel dwelleth in all the cities of the Amorite, in Heshbon, and in all its villages;
 
-<sup>26</sup> for Heshbon is a city of Sihon king of the Amorite, and he hath fought against the former king of Moab, and taketh all his land out of his hand, unto Arnon;
+**²⁶** for Heshbon is a city of Sihon king of the Amorite, and he hath fought against the former king of Moab, and taketh all his land out of his hand, unto Arnon;
 
-<sup>27</sup> therefore those using similes say — 'Enter ye Heshbon, Let the city of Sihon be built and ready,
+**²⁷** therefore those using similes say — 'Enter ye Heshbon, Let the city of Sihon be built and ready,
 
-<sup>28</sup> For fire hath gone out from Heshbon, A flame from the city of Sihon, It hath consumed Ar of Moab, Owners of the high places of Arnon.
+**²⁸** For fire hath gone out from Heshbon, A flame from the city of Sihon, It hath consumed Ar of Moab, Owners of the high places of Arnon.
 
-<sup>29</sup> Woe to thee, O Moab, Thou hast perished, O people of Chemosh, He hath given his sons who escape — Also his daughters — Into captivity, to a king of the Amorite — Sihon!
+**²⁹** Woe to thee, O Moab, Thou hast perished, O people of Chemosh, He hath given his sons who escape — Also his daughters — Into captivity, to a king of the Amorite — Sihon!
 
-<sup>30</sup> And we shoot them, Perished hath Heshbon unto Dibon, And we make desolate unto Nophah, Which [is] unto Medeba.'
+**³⁰** And we shoot them, Perished hath Heshbon unto Dibon, And we make desolate unto Nophah, Which [is] unto Medeba.'
 
-<sup>31</sup> And Israel dwelleth in the land of the Amorite,
+**³¹** And Israel dwelleth in the land of the Amorite,
 
-<sup>32</sup> and Moses sendeth to spy out Jaazer, and they capture its villages, and dispossess the Amorite who [is] there,
+**³²** and Moses sendeth to spy out Jaazer, and they capture its villages, and dispossess the Amorite who [is] there,
 
-<sup>33</sup> and turn and go up the way of Bashan, and Og king of Bashan cometh out to meet them, he and all his people, to battle, [at] Edrei.
+**³³** and turn and go up the way of Bashan, and Og king of Bashan cometh out to meet them, he and all his people, to battle, [at] Edrei.
 
-<sup>34</sup> And Jehovah saith unto Moses, 'Fear him not, for into thy hand I have given him, and all his people, and his land, and thou hast done to him as thou hast done to Sihon king of the Amorite, who is dwelling in Heshbon.'
+**³⁴** And Jehovah saith unto Moses, 'Fear him not, for into thy hand I have given him, and all his people, and his land, and thou hast done to him as thou hast done to Sihon king of the Amorite, who is dwelling in Heshbon.'
 
-<sup>35</sup> And they smite him, and his sons, and all his people, until he hath not left to him a remnant, and they possess his land.
+**³⁵** And they smite him, and his sons, and all his people, until he hath not left to him a remnant, and they possess his land.

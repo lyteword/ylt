@@ -1,65 +1,65 @@
 # Chapter 18
 
-<sup>1</sup> 'And there is a word of Jehovah unto me, saying:
+**¹** 'And there is a word of Jehovah unto me, saying:
 
-<sup>2</sup> 'What — to you, ye — using this simile Concerning the ground of Israel, saying: Fathers do eat unripe fruit, And the sons' teeth are blunted?
+**²** 'What — to you, ye — using this simile Concerning the ground of Israel, saying: Fathers do eat unripe fruit, And the sons' teeth are blunted?
 
-<sup>3</sup> I live — an affirmation of the Lord Jehovah, Ye have no more the use of this simile in Israel.
+**³** I live — an affirmation of the Lord Jehovah, Ye have no more the use of this simile in Israel.
 
-<sup>4</sup> Lo, all the souls are Mine, As the soul of the father, So also the soul of the son — they are Mine, The soul that is sinning — it doth die.
+**⁴** Lo, all the souls are Mine, As the soul of the father, So also the soul of the son — they are Mine, The soul that is sinning — it doth die.
 
-<sup>5</sup> And a man, when he is righteous, And hath done judgment and righteousness,
+**⁵** And a man, when he is righteous, And hath done judgment and righteousness,
 
-<sup>6</sup> On the mountains he hath not eaten, And his eyes he hath not lifted up Unto idols of the house of Israel, And the wife of his neighbour defiled not, And to a separated woman cometh not near,
+**⁶** On the mountains he hath not eaten, And his eyes he hath not lifted up Unto idols of the house of Israel, And the wife of his neighbour defiled not, And to a separated woman cometh not near,
 
-<sup>7</sup> A man — he doth not oppress, His pledge to the debtor he doth return, Plunder he doth not take away, His bread to the hungry he doth give, And the naked doth cover with a garment,
+**⁷** A man — he doth not oppress, His pledge to the debtor he doth return, Plunder he doth not take away, His bread to the hungry he doth give, And the naked doth cover with a garment,
 
-<sup>8</sup> In usury he doth not give, and increase taketh not, From perversity he turneth back his hand, True judgment he doth between man and man.
+**⁸** In usury he doth not give, and increase taketh not, From perversity he turneth back his hand, True judgment he doth between man and man.
 
-<sup>9</sup> In My statutes he doth walk, And My judgments he hath kept — to deal truly, Righteous [is] he, he surely liveth, An affirmation of the Lord Jehovah.
+**⁹** In My statutes he doth walk, And My judgments he hath kept — to deal truly, Righteous [is] he, he surely liveth, An affirmation of the Lord Jehovah.
 
-<sup>10</sup> And — he hath begotten a son, A burglar — a shedder of blood, And he hath made a brother of one of these,
+**¹⁰** And — he hath begotten a son, A burglar — a shedder of blood, And he hath made a brother of one of these,
 
-<sup>11</sup> And he all those hath not done, For even on the mountains he hath eaten, And the wife of his neighbour he hath defiled,
+**¹¹** And he all those hath not done, For even on the mountains he hath eaten, And the wife of his neighbour he hath defiled,
 
-<sup>12</sup> The afflicted and needy he hath oppressed, Plunder he hath taken violently away, A pledge he doth not return, And unto the idols he hath lifted up his eyes, Abomination he hath done!
+**¹²** The afflicted and needy he hath oppressed, Plunder he hath taken violently away, A pledge he doth not return, And unto the idols he hath lifted up his eyes, Abomination he hath done!
 
-<sup>13</sup> In usury he hath given, and increase taken, And he liveth: he doth not live, All these abominations he hath done, He doth surely die, his blood is on him.
+**¹³** In usury he hath given, and increase taken, And he liveth: he doth not live, All these abominations he hath done, He doth surely die, his blood is on him.
 
-<sup>14</sup> And — lo, he hath begotten a son, And he seeth all the sins of his father, That he hath done, and he feareth, And doth not do like them,
+**¹⁴** And — lo, he hath begotten a son, And he seeth all the sins of his father, That he hath done, and he feareth, And doth not do like them,
 
-<sup>15</sup> On the mountains he hath not eaten, And his eyes he hath not lifted up Unto idols of the house of Israel, The wife of his neighbour he hath not defiled,
+**¹⁵** On the mountains he hath not eaten, And his eyes he hath not lifted up Unto idols of the house of Israel, The wife of his neighbour he hath not defiled,
 
-<sup>16</sup> A man — he hath not oppressed, A pledge he hath not bound, And plunder he hath not taken away, His bread to the hungry he hath given, And the naked he covered with a garment,
+**¹⁶** A man — he hath not oppressed, A pledge he hath not bound, And plunder he hath not taken away, His bread to the hungry he hath given, And the naked he covered with a garment,
 
-<sup>17</sup> From the afflicted he hath turned back his hand, Usury and increase he hath not taken, My judgments he hath done, In My statutes he hath walked, He doth not die for the iniquity of his father, He doth surely live.
+**¹⁷** From the afflicted he hath turned back his hand, Usury and increase he hath not taken, My judgments he hath done, In My statutes he hath walked, He doth not die for the iniquity of his father, He doth surely live.
 
-<sup>18</sup> His father — because he used oppression, Did violently Plunder a brother, And that which [is] not good did in the midst of his people, And lo, he is dying in his iniquity.
+**¹⁸** His father — because he used oppression, Did violently Plunder a brother, And that which [is] not good did in the midst of his people, And lo, he is dying in his iniquity.
 
-<sup>19</sup> And ye have said, Wherefore hath not the son, Borne of the iniquity of the father? And — the son judgment and righteousness hath done, All My statutes he hath kept, And he doeth them, he surely liveth.
+**¹⁹** And ye have said, Wherefore hath not the son, Borne of the iniquity of the father? And — the son judgment and righteousness hath done, All My statutes he hath kept, And he doeth them, he surely liveth.
 
-<sup>20</sup> The soul that doth sin — it doth die. A son doth not bear of the iniquity of the father, And a father doth not bear of the iniquity of the son, The righteousness of the righteous is on him, And the wickedness of the wicked is on him.
+**²⁰** The soul that doth sin — it doth die. A son doth not bear of the iniquity of the father, And a father doth not bear of the iniquity of the son, The righteousness of the righteous is on him, And the wickedness of the wicked is on him.
 
-<sup>21</sup> And the wicked — when he turneth back From all his sins that he hath done, And he hath kept all My statutes, And hath done judgment and righteousness, He doth surely live, he doth not die.
+**²¹** And the wicked — when he turneth back From all his sins that he hath done, And he hath kept all My statutes, And hath done judgment and righteousness, He doth surely live, he doth not die.
 
-<sup>22</sup> All his transgressions that he hath done Are not remembered to him, In his righteousness that he hath done he liveth.
+**²²** All his transgressions that he hath done Are not remembered to him, In his righteousness that he hath done he liveth.
 
-<sup>23</sup> Do I at all desire the death of the wicked? An affirmation of the Lord Jehovah, Is it not in his turning back from his way — And he hath lived?
+**²³** Do I at all desire the death of the wicked? An affirmation of the Lord Jehovah, Is it not in his turning back from his way — And he hath lived?
 
-<sup>24</sup> And in the turning back of the righteous from his righteousness, And he hath done perversity, According to all the abominations That the wicked hath done, he doth — thus he liveth, All his righteousnesses that he hath done are not remembered, For his trespass that he hath trespassed, And for his sin that he hath sinned, For them he doth die.
+**²⁴** And in the turning back of the righteous from his righteousness, And he hath done perversity, According to all the abominations That the wicked hath done, he doth — thus he liveth, All his righteousnesses that he hath done are not remembered, For his trespass that he hath trespassed, And for his sin that he hath sinned, For them he doth die.
 
-<sup>25</sup> And ye have said, Not pondered is the way of the Lord. Hear, I pray you, O house of Israel, My way — is it not pondered? Are not your ways unpondered?
+**²⁵** And ye have said, Not pondered is the way of the Lord. Hear, I pray you, O house of Israel, My way — is it not pondered? Are not your ways unpondered?
 
-<sup>26</sup> In the turning back of the righteous from his righteousness, And he hath done perversity, And he is dying by them, for his perversity That he hath done he dieth.
+**²⁶** In the turning back of the righteous from his righteousness, And he hath done perversity, And he is dying by them, for his perversity That he hath done he dieth.
 
-<sup>27</sup> And in the turning back of the wicked From his wickedness that he hath done, And he doth judgment and righteousness, He his soul doth keep alive.
+**²⁷** And in the turning back of the wicked From his wickedness that he hath done, And he doth judgment and righteousness, He his soul doth keep alive.
 
-<sup>28</sup> And he seeth and turneth back, From all his transgressions that he hath done, He doth surely live, he doth not die,
+**²⁸** And he seeth and turneth back, From all his transgressions that he hath done, He doth surely live, he doth not die,
 
-<sup>29</sup> And the house of Israel have said, Not pondered is the way of the Lord, My ways — are they not pondered? O house of Israel — are not your ways unpondered?
+**²⁹** And the house of Israel have said, Not pondered is the way of the Lord, My ways — are they not pondered? O house of Israel — are not your ways unpondered?
 
-<sup>30</sup> Therefore, each according to his ways I judge you, O house of Israel? An affirmation of the Lord Jehovah, Turn ye back, yea, turn yourselves back, From all your transgressions, And iniquity is not to you for a stumbling-block,
+**³⁰** Therefore, each according to his ways I judge you, O house of Israel? An affirmation of the Lord Jehovah, Turn ye back, yea, turn yourselves back, From all your transgressions, And iniquity is not to you for a stumbling-block,
 
-<sup>31</sup> Cast from off you all your transgressions, By which ye have transgressed, And make to you a new heart, and a new spirit, And why do ye die, O house of Israel?
+**³¹** Cast from off you all your transgressions, By which ye have transgressed, And make to you a new heart, and a new spirit, And why do ye die, O house of Israel?
 
-<sup>32</sup> For I have no pleasure in the death of the dying, An affirmation of the Lord Jehovah, And turn ye back and live!
+**³²** For I have no pleasure in the death of the dying, An affirmation of the Lord Jehovah, And turn ye back and live!

@@ -1,33 +1,33 @@
 # Chapter 17
 
-<sup>1</sup> And all the company of the sons of Israel journey from the wilderness of Sin, on their journeyings, by the command of Jehovah, and encamp in Rephidim, and there is no water for the people to drink;
+**¹** And all the company of the sons of Israel journey from the wilderness of Sin, on their journeyings, by the command of Jehovah, and encamp in Rephidim, and there is no water for the people to drink;
 
-<sup>2</sup> and the people strive with Moses, and say, 'Give us water, and we drink.' And Moses saith to them, 'What? — ye strive with me, what? — ye try Jehovah?'
+**²** and the people strive with Moses, and say, 'Give us water, and we drink.' And Moses saith to them, 'What? — ye strive with me, what? — ye try Jehovah?'
 
-<sup>3</sup> and the people thirst there for water, and the people murmur against Moses, and say, 'Why [is] this? — thou hast brought us up out of Egypt, to put us to death, also our sons and our cattle, with thirst.'
+**³** and the people thirst there for water, and the people murmur against Moses, and say, 'Why [is] this? — thou hast brought us up out of Egypt, to put us to death, also our sons and our cattle, with thirst.'
 
-<sup>4</sup> And Moses crieth to Jehovah, saying, 'What do I to this people? yet a little, and they have stoned me.'
+**⁴** And Moses crieth to Jehovah, saying, 'What do I to this people? yet a little, and they have stoned me.'
 
-<sup>5</sup> And Jehovah saith unto Moses, 'Pass over before the people, and take with thee of the elders of Israel, and thy rod with which thou hast smitten the River take in thy hand, and thou hast gone:
+**⁵** And Jehovah saith unto Moses, 'Pass over before the people, and take with thee of the elders of Israel, and thy rod with which thou hast smitten the River take in thy hand, and thou hast gone:
 
-<sup>6</sup> Lo, I am standing before thee there on the rock in Horeb, and thou hast smitten on the rock, and waters have come out from it, and the people have drunk.' And Moses doth so before the eyes of the elders of Israel,
+**⁶** Lo, I am standing before thee there on the rock in Horeb, and thou hast smitten on the rock, and waters have come out from it, and the people have drunk.' And Moses doth so before the eyes of the elders of Israel,
 
-<sup>7</sup> and he calleth the name of the place Massah, and Meribah, because of the 'strife' of the sons of Israel, and because of their 'trying' Jehovah, saying, 'Is Jehovah in our midst or not?'
+**⁷** and he calleth the name of the place Massah, and Meribah, because of the 'strife' of the sons of Israel, and because of their 'trying' Jehovah, saying, 'Is Jehovah in our midst or not?'
 
-<sup>8</sup> And Amalek cometh, and fighteth with Israel in Rephidim,
+**⁸** And Amalek cometh, and fighteth with Israel in Rephidim,
 
-<sup>9</sup> and Moses saith unto Joshua, 'Choose for us men, and go out, fight with Amalek: to-morrow I am standing on the top of the hill, and the rod of God in my hand.'
+**⁹** and Moses saith unto Joshua, 'Choose for us men, and go out, fight with Amalek: to-morrow I am standing on the top of the hill, and the rod of God in my hand.'
 
-<sup>10</sup> And Joshua doth as Moses hath said to him, to fight with Amalek, and Moses, Aaron, and Hur, have gone up [to] the top of the height;
+**¹⁰** And Joshua doth as Moses hath said to him, to fight with Amalek, and Moses, Aaron, and Hur, have gone up [to] the top of the height;
 
-<sup>11</sup> and it hath come to pass, when Moses lifteth up his hand, that Israel hath been mighty, and when he letteth his hands rest, that Amalek hath been mighty.
+**¹¹** and it hath come to pass, when Moses lifteth up his hand, that Israel hath been mighty, and when he letteth his hands rest, that Amalek hath been mighty.
 
-<sup>12</sup> And the hands of Moses [are] heavy, and they take a stone, and set [it] under him, and he sitteth on it: and Aaron and Hur have taken hold on his hands, on this side one, and on that one, and his hands are stedfast till the going in of the sun;
+**¹²** And the hands of Moses [are] heavy, and they take a stone, and set [it] under him, and he sitteth on it: and Aaron and Hur have taken hold on his hands, on this side one, and on that one, and his hands are stedfast till the going in of the sun;
 
-<sup>13</sup> and Joshua weakeneth Amalek and his people by the mouth of the sword.
+**¹³** and Joshua weakeneth Amalek and his people by the mouth of the sword.
 
-<sup>14</sup> And Jehovah saith unto Moses, 'Write this, a memorial in a Book, and set [it] in the ears of Joshua, that I do utterly wipe away the remembrance of Amalek from under the heavens;'
+**¹⁴** And Jehovah saith unto Moses, 'Write this, a memorial in a Book, and set [it] in the ears of Joshua, that I do utterly wipe away the remembrance of Amalek from under the heavens;'
 
-<sup>15</sup> and Moses buildeth an altar, and calleth its name Jehovah-Nissi,
+**¹⁵** and Moses buildeth an altar, and calleth its name Jehovah-Nissi,
 
-<sup>16</sup> and saith, 'Because a hand [is] on the throne of Jah, war [is] to Jehovah with Amalek from generation — generation.'
+**¹⁶** and saith, 'Because a hand [is] on the throne of Jah, war [is] to Jehovah with Amalek from generation — generation.'

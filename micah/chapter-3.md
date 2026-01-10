@@ -1,25 +1,25 @@
 # Chapter 3
 
-<sup>1</sup> And I say, 'Hear, I pray you, heads of Jacob, And ye judges of the house of Israel, Is it not for you to know the judgment?
+**¹** And I say, 'Hear, I pray you, heads of Jacob, And ye judges of the house of Israel, Is it not for you to know the judgment?
 
-<sup>2</sup> Ye who are hating good, and loving evil, Taking violently their skin from off them, And their flesh from off their bones,
+**²** Ye who are hating good, and loving evil, Taking violently their skin from off them, And their flesh from off their bones,
 
-<sup>3</sup> And who have eaten the flesh of My people, And their skin from off them have stript, And their bones they have broken, And they have spread [them] out as in a pot, And as flesh in the midst of a caldron.
+**³** And who have eaten the flesh of My people, And their skin from off them have stript, And their bones they have broken, And they have spread [them] out as in a pot, And as flesh in the midst of a caldron.
 
-<sup>4</sup> Then do they cry unto Jehovah, And He doth not answer them, And hideth His face from them at that time, As they have made evil their doings.
+**⁴** Then do they cry unto Jehovah, And He doth not answer them, And hideth His face from them at that time, As they have made evil their doings.
 
-<sup>5</sup> Thus said Jehovah concerning the prophets Who are causing My people to err, Who are biting with their teeth, And have cried 'Peace,' And he who doth not give unto their mouth, They have sanctified against him war.
+**⁵** Thus said Jehovah concerning the prophets Who are causing My people to err, Who are biting with their teeth, And have cried 'Peace,' And he who doth not give unto their mouth, They have sanctified against him war.
 
-<sup>6</sup> Therefore a night ye have without vision, And darkness ye have without divination, And gone in hath the sun on the prophets, And black over them hath been the day.
+**⁶** Therefore a night ye have without vision, And darkness ye have without divination, And gone in hath the sun on the prophets, And black over them hath been the day.
 
-<sup>7</sup> And ashamed have been the seers, And confounded have been the diviners, And covered their lip have all of them, For their is no answer, O God.
+**⁷** And ashamed have been the seers, And confounded have been the diviners, And covered their lip have all of them, For their is no answer, O God.
 
-<sup>8</sup> And yet I have been full of power by the Spirit of Jehovah, And of judgment, and of might, To declare to Jacob his transgression, And to Israel his sin.
+**⁸** And yet I have been full of power by the Spirit of Jehovah, And of judgment, and of might, To declare to Jacob his transgression, And to Israel his sin.
 
-<sup>9</sup> Hear this, I pray you, heads of the house of Jacob, And ye judges of the house of Israel, Who are making judgment abominable, And all uprightness do pervert.
+**⁹** Hear this, I pray you, heads of the house of Jacob, And ye judges of the house of Israel, Who are making judgment abominable, And all uprightness do pervert.
 
-<sup>10</sup> Building up Zion with blood, And Jerusalem with iniquity.
+**¹⁰** Building up Zion with blood, And Jerusalem with iniquity.
 
-<sup>11</sup> Her heads for a bribe do judge, And her priests for hire do teach, And her prophets for silver divine, And on Jehovah they lean, saying, 'Is not Jehovah in our midst? Evil doth not come in upon us.'
+**¹¹** Her heads for a bribe do judge, And her priests for hire do teach, And her prophets for silver divine, And on Jehovah they lean, saying, 'Is not Jehovah in our midst? Evil doth not come in upon us.'
 
-<sup>12</sup> Therefore, for your sake, Zion is ploughed a field, and Jerusalem is heaps, And the mount of the house [is] for high places of a forest!
+**¹²** Therefore, for your sake, Zion is ploughed a field, and Jerusalem is heaps, And the mount of the house [is] for high places of a forest!

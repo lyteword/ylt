@@ -1,83 +1,83 @@
 # Chapter 22
 
-<sup>1</sup> And the sons of Israel journey and encamp in the plains of Moab, beyond the Jordan, [by] Jericho.
+**¹** And the sons of Israel journey and encamp in the plains of Moab, beyond the Jordan, [by] Jericho.
 
-<sup>2</sup> And Balak son of Zippor seeth all that Israel hath done to the Amorite,
+**²** And Balak son of Zippor seeth all that Israel hath done to the Amorite,
 
-<sup>3</sup> and Moab is exceedingly afraid of the presence of the people, for it [is] numerous; and Moab is vexed by the presence of the sons of Israel,
+**³** and Moab is exceedingly afraid of the presence of the people, for it [is] numerous; and Moab is vexed by the presence of the sons of Israel,
 
-<sup>4</sup> and Moab saith unto the elders of Midian, 'Now doth the assembly lick up all that is round about us, as the ox licketh up the green thing of the field.' And Balak son of Zippor [is] king of Moab at that time,
+**⁴** and Moab saith unto the elders of Midian, 'Now doth the assembly lick up all that is round about us, as the ox licketh up the green thing of the field.' And Balak son of Zippor [is] king of Moab at that time,
 
-<sup>5</sup> and he sendeth messengers unto Balaam son of Beor, to Pethor, which [is] by the River of the land of the sons of his people, to call for him, saying, 'Lo, a people hath come out of Egypt; lo, it hath covered the eye of the land, and it is abiding over-against me;
+**⁵** and he sendeth messengers unto Balaam son of Beor, to Pethor, which [is] by the River of the land of the sons of his people, to call for him, saying, 'Lo, a people hath come out of Egypt; lo, it hath covered the eye of the land, and it is abiding over-against me;
 
-<sup>6</sup> and now, come, I pray thee, curse for me this people, for it [is] mightier than I; it may be I prevail — we smite it — and I cast it out from the land; for I have known — that which thou blessest is blessed, and that which thou cursest is cursed.'
+**⁶** and now, come, I pray thee, curse for me this people, for it [is] mightier than I; it may be I prevail — we smite it — and I cast it out from the land; for I have known — that which thou blessest is blessed, and that which thou cursest is cursed.'
 
-<sup>7</sup> And the elders of Moab and the elders of Midian go, and divinations in their hand, and they come in unto Balaam, and speak unto him the words of Balak,
+**⁷** And the elders of Moab and the elders of Midian go, and divinations in their hand, and they come in unto Balaam, and speak unto him the words of Balak,
 
-<sup>8</sup> and he saith unto them, 'Lodge here to-night, and I have brought you back word, as Jehovah speaketh unto me;' and the princes of Moab abide with Balaam.
+**⁸** and he saith unto them, 'Lodge here to-night, and I have brought you back word, as Jehovah speaketh unto me;' and the princes of Moab abide with Balaam.
 
-<sup>9</sup> And God cometh in unto Balaam, and saith, 'Who [are] these men with thee?'
+**⁹** And God cometh in unto Balaam, and saith, 'Who [are] these men with thee?'
 
-<sup>10</sup> And Balaam saith unto God, 'Balak, son of Zippor, king of Moab, hath sent unto me:
+**¹⁰** And Balaam saith unto God, 'Balak, son of Zippor, king of Moab, hath sent unto me:
 
-<sup>11</sup> Lo, the people that is coming out from Egypt and covereth the eye of the land, — now come, pierce it for me; it may be I am able to fight against it, and have cast it out;'
+**¹¹** Lo, the people that is coming out from Egypt and covereth the eye of the land, — now come, pierce it for me; it may be I am able to fight against it, and have cast it out;'
 
-<sup>12</sup> and God saith unto Balaam, 'Thou dost not go with them; thou dost not curse the people; for it [is] blessed.'
+**¹²** and God saith unto Balaam, 'Thou dost not go with them; thou dost not curse the people; for it [is] blessed.'
 
-<sup>13</sup> And Balaam riseth in the morning, and saith unto the princes of Balak, 'Go unto your land, for Jehovah is refusing to suffer me to go with you;'
+**¹³** And Balaam riseth in the morning, and saith unto the princes of Balak, 'Go unto your land, for Jehovah is refusing to suffer me to go with you;'
 
-<sup>14</sup> and the princes of Moab rise, and come in unto Balak, and say, 'Balaam is refusing to come with us.'
+**¹⁴** and the princes of Moab rise, and come in unto Balak, and say, 'Balaam is refusing to come with us.'
 
-<sup>15</sup> And Balak addeth yet to send princes, more numerous and honoured than these,
+**¹⁵** And Balak addeth yet to send princes, more numerous and honoured than these,
 
-<sup>16</sup> and they come in unto Balaam, and say to him, 'Thus said Balak son of Zippor, Be not, I pray thee, withheld from coming unto me,
+**¹⁶** and they come in unto Balaam, and say to him, 'Thus said Balak son of Zippor, Be not, I pray thee, withheld from coming unto me,
 
-<sup>17</sup> for very greatly I honour thee, and all that thou sayest unto me I do; and come, I pray thee, pierce for me this people.'
+**¹⁷** for very greatly I honour thee, and all that thou sayest unto me I do; and come, I pray thee, pierce for me this people.'
 
-<sup>18</sup> And Balaam answereth and saith unto the servants of Balak, 'If Balak doth give to me the fulness of his house of silver and gold, I am not able to pass over the command of Jehovah my God, to do a little or a great thing;
+**¹⁸** And Balaam answereth and saith unto the servants of Balak, 'If Balak doth give to me the fulness of his house of silver and gold, I am not able to pass over the command of Jehovah my God, to do a little or a great thing;
 
-<sup>19</sup> and, now, abide, I pray you, in this [place], you also, to-night; and I know what Jehovah is adding to speak with me.'
+**¹⁹** and, now, abide, I pray you, in this [place], you also, to-night; and I know what Jehovah is adding to speak with me.'
 
-<sup>20</sup> And God cometh in unto Balaam, by night, and saith to him, 'If to call for thee the men have come, rise, go with them, and only the thing which I speak unto thee — it thou dost do.'
+**²⁰** And God cometh in unto Balaam, by night, and saith to him, 'If to call for thee the men have come, rise, go with them, and only the thing which I speak unto thee — it thou dost do.'
 
-<sup>21</sup> And Balaam riseth in the morning, and saddleth his ass, and goeth with the princes of Moab,
+**²¹** And Balaam riseth in the morning, and saddleth his ass, and goeth with the princes of Moab,
 
-<sup>22</sup> and the anger of God burneth because he is going, and a messenger of Jehovah stationeth himself in the way for an adversary to him, and he is riding on his ass, and two of his servants [are] with him,
+**²²** and the anger of God burneth because he is going, and a messenger of Jehovah stationeth himself in the way for an adversary to him, and he is riding on his ass, and two of his servants [are] with him,
 
-<sup>23</sup> and the ass seeth the messenger of Jehovah standing in the way, and his drawn sword in his hand, and the ass turneth aside out of the way, and goeth into a field, and Balaam smiteth the ass to turn it aside into the way.
+**²³** and the ass seeth the messenger of Jehovah standing in the way, and his drawn sword in his hand, and the ass turneth aside out of the way, and goeth into a field, and Balaam smiteth the ass to turn it aside into the way.
 
-<sup>24</sup> And the messenger of Jehovah standeth in a narrow path of the vineyards — a wall on this [side] and a wall on that —
+**²⁴** And the messenger of Jehovah standeth in a narrow path of the vineyards — a wall on this [side] and a wall on that —
 
-<sup>25</sup> and the ass seeth the messenger of Jehovah, and is pressed unto the wall, and presseth Balaam's foot unto the wall, and he addeth to smite her;
+**²⁵** and the ass seeth the messenger of Jehovah, and is pressed unto the wall, and presseth Balaam's foot unto the wall, and he addeth to smite her;
 
-<sup>26</sup> and the messenger of Jehovah addeth to pass over, and standeth in a strait place where there is no way to turn aside — right or left —
+**²⁶** and the messenger of Jehovah addeth to pass over, and standeth in a strait place where there is no way to turn aside — right or left —
 
-<sup>27</sup> and the ass seeth the messenger of Jehovah, and croucheth under Balaam, and the anger of Balaam burneth, and he smiteth the ass with a staff.
+**²⁷** and the ass seeth the messenger of Jehovah, and croucheth under Balaam, and the anger of Balaam burneth, and he smiteth the ass with a staff.
 
-<sup>28</sup> And Jehovah openeth the mouth of the ass, and she saith to Balaam, 'What have I done to thee that thou hast smitten me these three times?'
+**²⁸** And Jehovah openeth the mouth of the ass, and she saith to Balaam, 'What have I done to thee that thou hast smitten me these three times?'
 
-<sup>29</sup> and Balaam saith to the ass, 'Because thou hast rolled thyself against me; oh that there were a sword in my hand, for now I had slain thee;'
+**²⁹** and Balaam saith to the ass, 'Because thou hast rolled thyself against me; oh that there were a sword in my hand, for now I had slain thee;'
 
-<sup>30</sup> and the ass saith unto Balaam, 'Am not I thine ass, upon which thou hast ridden since [I was] thine unto this day? have I at all been accustomed to do to thee thus?' and he saith, 'No.'
+**³⁰** and the ass saith unto Balaam, 'Am not I thine ass, upon which thou hast ridden since [I was] thine unto this day? have I at all been accustomed to do to thee thus?' and he saith, 'No.'
 
-<sup>31</sup> And Jehovah uncovereth the eyes of Balaam, and he seeth the messenger of Jehovah standing in the way, and his drawn sword in his hand, and he boweth and doth obeisance, to his face;
+**³¹** And Jehovah uncovereth the eyes of Balaam, and he seeth the messenger of Jehovah standing in the way, and his drawn sword in his hand, and he boweth and doth obeisance, to his face;
 
-<sup>32</sup> and the messenger of Jehovah saith unto him, 'Wherefore hast thou smitten thine ass these three times? lo, I — I have come out for an adversary, for [thy] way hath been perverse before me,
+**³²** and the messenger of Jehovah saith unto him, 'Wherefore hast thou smitten thine ass these three times? lo, I — I have come out for an adversary, for [thy] way hath been perverse before me,
 
-<sup>33</sup> and the ass seeth me, and turneth aside at my presence these three times; unless she had turned aside from my presence, surely now also, thee I had slain, and her kept alive.'
+**³³** and the ass seeth me, and turneth aside at my presence these three times; unless she had turned aside from my presence, surely now also, thee I had slain, and her kept alive.'
 
-<sup>34</sup> And Balaam saith unto the messenger of Jehovah, 'I have sinned, for I did not know that thou [art] standing to meet me in the way; and now, if evil in thine eyes — I turn back by myself.'
+**³⁴** And Balaam saith unto the messenger of Jehovah, 'I have sinned, for I did not know that thou [art] standing to meet me in the way; and now, if evil in thine eyes — I turn back by myself.'
 
-<sup>35</sup> And the messenger of Jehovah saith unto Balaam, 'Go with the men; and only the word which I speak unto thee — it thou dost speak;' and Balaam goeth with the princes of Balak.
+**³⁵** And the messenger of Jehovah saith unto Balaam, 'Go with the men; and only the word which I speak unto thee — it thou dost speak;' and Balaam goeth with the princes of Balak.
 
-<sup>36</sup> And Balak heareth that Balaam hath come, and goeth out to meet him, unto a city of Moab, which [is] on the border of Arnon, which [is] in the extremity of the border;
+**³⁶** And Balak heareth that Balaam hath come, and goeth out to meet him, unto a city of Moab, which [is] on the border of Arnon, which [is] in the extremity of the border;
 
-<sup>37</sup> and Balak saith unto Balaam, 'Did I not diligently sent unto thee to call for thee? why didst thou not come unto me? am I not truly able to honour thee?'
+**³⁷** and Balak saith unto Balaam, 'Did I not diligently sent unto thee to call for thee? why didst thou not come unto me? am I not truly able to honour thee?'
 
-<sup>38</sup> And Balaam saith unto Balak, 'Lo, I have come unto thee; now — am I at all able to speak anything? the word which God setteth in my mouth — it I do speak.'
+**³⁸** And Balaam saith unto Balak, 'Lo, I have come unto thee; now — am I at all able to speak anything? the word which God setteth in my mouth — it I do speak.'
 
-<sup>39</sup> And Balaam goeth with Balak, and they come to Kirjath-Huzoth,
+**³⁹** And Balaam goeth with Balak, and they come to Kirjath-Huzoth,
 
-<sup>40</sup> and Balak sacrificeth oxen and sheep, and sendeth to Balaam, and to the princes who [are] with him;
+**⁴⁰** and Balak sacrificeth oxen and sheep, and sendeth to Balaam, and to the princes who [are] with him;
 
-<sup>41</sup> and it cometh to pass in the morning, that Balak taketh Balaam, and causeth him to go up the high places of Baal, and he seeth from thence the extremity of the people.
+**⁴¹** and it cometh to pass in the morning, that Balak taketh Balaam, and causeth him to go up the high places of Baal, and he seeth from thence the extremity of the people.

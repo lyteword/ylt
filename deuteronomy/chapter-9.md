@@ -1,59 +1,59 @@
 # Chapter 9
 
-<sup>1</sup> 'Hear, Israel, thou art passing over to-day the Jordan, to go in to possess nations greater and mightier than thyself; cities great and fenced in the heavens;
+**¹** 'Hear, Israel, thou art passing over to-day the Jordan, to go in to possess nations greater and mightier than thyself; cities great and fenced in the heavens;
 
-<sup>2</sup> a people great and tall, sons of Anakim, whom thou — thou hast known, (and thou — thou hast heard: Who doth station himself before sons of Anak?)
+**²** a people great and tall, sons of Anakim, whom thou — thou hast known, (and thou — thou hast heard: Who doth station himself before sons of Anak?)
 
-<sup>3</sup> and thou hast known to-day, that Jehovah thy God [is] He who is passing over before thee — a fire consuming; He doth destroy them, and He doth humble them before thee, and thou hast dispossessed them, and destroyed them hastily, as Jehovah hath spoken to thee.
+**³** and thou hast known to-day, that Jehovah thy God [is] He who is passing over before thee — a fire consuming; He doth destroy them, and He doth humble them before thee, and thou hast dispossessed them, and destroyed them hastily, as Jehovah hath spoken to thee.
 
-<sup>4</sup> 'Thou dost not speak in thy heart (in Jehovah thy God's driving them away from before thee), saying, For my righteousness hath Jehovah brought me in to possess this land, seeing for the wickedness of these nations is Jehovah dispossessing them from thy presence;
+**⁴** 'Thou dost not speak in thy heart (in Jehovah thy God's driving them away from before thee), saying, For my righteousness hath Jehovah brought me in to possess this land, seeing for the wickedness of these nations is Jehovah dispossessing them from thy presence;
 
-<sup>5</sup> not for thy righteousness, and for the uprightness of thy heart, art thou going in to possess their land; but for the wickedness of these nations is Jehovah thy God dispossessing them from before thee; and in order to establish the word which Jehovah hath sworn to thy fathers, to Abraham, to Isaac, and to Jacob;
+**⁵** not for thy righteousness, and for the uprightness of thy heart, art thou going in to possess their land; but for the wickedness of these nations is Jehovah thy God dispossessing them from before thee; and in order to establish the word which Jehovah hath sworn to thy fathers, to Abraham, to Isaac, and to Jacob;
 
-<sup>6</sup> and thou hast known, that not for thy righteousness is Jehovah thy God giving to thee this good land to possess it, for a people stiff of neck thou [art].
+**⁶** and thou hast known, that not for thy righteousness is Jehovah thy God giving to thee this good land to possess it, for a people stiff of neck thou [art].
 
-<sup>7</sup> 'Remember — do not forget — that [with] which thou hast made Jehovah thy God wroth in the wilderness; even from the day that thou hast come out of the land of Egypt till your coming in unto this place rebels ye have been with Jehovah;
+**⁷** 'Remember — do not forget — that [with] which thou hast made Jehovah thy God wroth in the wilderness; even from the day that thou hast come out of the land of Egypt till your coming in unto this place rebels ye have been with Jehovah;
 
-<sup>8</sup> even in Horeb ye have made Jehovah wroth, and Jehovah sheweth Himself angry against you — to destroy you.
+**⁸** even in Horeb ye have made Jehovah wroth, and Jehovah sheweth Himself angry against you — to destroy you.
 
-<sup>9</sup> 'In my going up into the mount to receive the tables of stone (tables of the covenant which Jehovah hath made with you), and I abide in the mount forty days and forty nights; bread I have not eaten, and water I have not drunk;
+**⁹** 'In my going up into the mount to receive the tables of stone (tables of the covenant which Jehovah hath made with you), and I abide in the mount forty days and forty nights; bread I have not eaten, and water I have not drunk;
 
-<sup>10</sup> and Jehovah giveth unto me the two tables of stone written with the finger of God, and on them according to all the words which Jehovah hath spoken with you in the mount, out of the midst of the fire, in the day of the assembly.
+**¹⁰** and Jehovah giveth unto me the two tables of stone written with the finger of God, and on them according to all the words which Jehovah hath spoken with you in the mount, out of the midst of the fire, in the day of the assembly.
 
-<sup>11</sup> 'And it cometh to pass, at the end of forty days and forty nights, Jehovah hath given unto me the two tables of stone — tables of the covenant,
+**¹¹** 'And it cometh to pass, at the end of forty days and forty nights, Jehovah hath given unto me the two tables of stone — tables of the covenant,
 
-<sup>12</sup> and Jehovah saith unto me, Rise, go down, hasten from this, for thy people hath done corruptly, whom thou hast brought out of Egypt; they have turned aside hastily out of the way which I have commanded them — they have made to themselves a molten thing!
+**¹²** and Jehovah saith unto me, Rise, go down, hasten from this, for thy people hath done corruptly, whom thou hast brought out of Egypt; they have turned aside hastily out of the way which I have commanded them — they have made to themselves a molten thing!
 
-<sup>13</sup> 'And Jehovah speaketh unto me, saying, I have seen this people, and lo, a people stiff of neck it [is];
+**¹³** 'And Jehovah speaketh unto me, saying, I have seen this people, and lo, a people stiff of neck it [is];
 
-<sup>14</sup> desist from Me, and I destroy them, and blot out their name from under the heavens, and I make thee become a nation more mighty and numerous than it.
+**¹⁴** desist from Me, and I destroy them, and blot out their name from under the heavens, and I make thee become a nation more mighty and numerous than it.
 
-<sup>15</sup> 'And I turn, and come down from the mount, and the mount is burning with fire, and the two tables of the covenant on my two hands,
+**¹⁵** 'And I turn, and come down from the mount, and the mount is burning with fire, and the two tables of the covenant on my two hands,
 
-<sup>16</sup> and I see, and lo, ye have sinned against Jehovah your God; ye have made to yourselves a molten calf; ye have turned aside hastily out of the way which Jehovah hath commanded you.
+**¹⁶** and I see, and lo, ye have sinned against Jehovah your God; ye have made to yourselves a molten calf; ye have turned aside hastily out of the way which Jehovah hath commanded you.
 
-<sup>17</sup> 'And I lay hold on the two tables, and cast them out of my two hands, and break them before your eyes,
+**¹⁷** 'And I lay hold on the two tables, and cast them out of my two hands, and break them before your eyes,
 
-<sup>18</sup> and I throw myself before Jehovah, as at first, forty days and forty nights; bread I have not eaten, and water I have not drunk, because of all your sins which ye have sinned, by doing the evil thing in the eyes of Jehovah, to make Him angry.
+**¹⁸** and I throw myself before Jehovah, as at first, forty days and forty nights; bread I have not eaten, and water I have not drunk, because of all your sins which ye have sinned, by doing the evil thing in the eyes of Jehovah, to make Him angry.
 
-<sup>19</sup> 'For I have been afraid because of the anger and the fury with which Jehovah hath been wroth against you, to destroy you; and Jehovah doth hearken unto me also at this time.
+**¹⁹** 'For I have been afraid because of the anger and the fury with which Jehovah hath been wroth against you, to destroy you; and Jehovah doth hearken unto me also at this time.
 
-<sup>20</sup> 'And with Aaron hath Jehovah shewed himself very angry, to destroy him, and I pray also for Aaron at that time;
+**²⁰** 'And with Aaron hath Jehovah shewed himself very angry, to destroy him, and I pray also for Aaron at that time;
 
-<sup>21</sup> and your sin, which ye have made — the calf — I have taken, and I burn it with fire, and beat it, grinding well till that it [is] small as dust, and I cast its dust unto the brook which is going down out of the mount.
+**²¹** and your sin, which ye have made — the calf — I have taken, and I burn it with fire, and beat it, grinding well till that it [is] small as dust, and I cast its dust unto the brook which is going down out of the mount.
 
-<sup>22</sup> 'And in Taberah, and in Massah, and in Kibroth-Hattaavah, ye have been making Jehovah wroth:
+**²²** 'And in Taberah, and in Massah, and in Kibroth-Hattaavah, ye have been making Jehovah wroth:
 
-<sup>23</sup> and in Jehovah's sending you from Kadesh-Barnea, saying, Go up, and possess the land which I have given to you, then ye provoke the mouth of Jehovah your God, and have not given credence to Him, nor hearkened to His voice;
+**²³** and in Jehovah's sending you from Kadesh-Barnea, saying, Go up, and possess the land which I have given to you, then ye provoke the mouth of Jehovah your God, and have not given credence to Him, nor hearkened to His voice;
 
-<sup>24</sup> rebels ye have been with Jehovah from the day of my knowing you.
+**²⁴** rebels ye have been with Jehovah from the day of my knowing you.
 
-<sup>25</sup> 'And I throw myself before Jehovah, the forty days and the forty nights, as I had thrown myself, for Jehovah hath said — to destroy you;
+**²⁵** 'And I throw myself before Jehovah, the forty days and the forty nights, as I had thrown myself, for Jehovah hath said — to destroy you;
 
-<sup>26</sup> and I pray unto Jehovah, and say, Lord Jehovah, destroy not Thy people, and Thine inheritance, whom Thou hast ransomed in Thy greatness; whom Thou hast brought out of Egypt with a strong hand;
+**²⁶** and I pray unto Jehovah, and say, Lord Jehovah, destroy not Thy people, and Thine inheritance, whom Thou hast ransomed in Thy greatness; whom Thou hast brought out of Egypt with a strong hand;
 
-<sup>27</sup> be mindful of Thy servants, of Abraham, of Isaac, and of Jacob, turn not unto the stiffness of this people, and unto its wickedness, and unto its sin;
+**²⁷** be mindful of Thy servants, of Abraham, of Isaac, and of Jacob, turn not unto the stiffness of this people, and unto its wickedness, and unto its sin;
 
-<sup>28</sup> lest the land say from which Thou hast brought us out, Because of Jehovah's want of ability to bring them in unto the land of which He hath spoken to them, and because of His hating them, He brought them out to put them to death in the wilderness;
+**²⁸** lest the land say from which Thou hast brought us out, Because of Jehovah's want of ability to bring them in unto the land of which He hath spoken to them, and because of His hating them, He brought them out to put them to death in the wilderness;
 
-<sup>29</sup> and they [are] Thy people, and Thine inheritance, whom Thou hast brought out by Thy great power, and by Thy stretched-out arm!
+**²⁹** and they [are] Thy people, and Thine inheritance, whom Thou hast brought out by Thy great power, and by Thy stretched-out arm!

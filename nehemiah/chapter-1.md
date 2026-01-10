@@ -1,23 +1,23 @@
 # Chapter 1
 
-<sup>1</sup> Words of Nehemiah son of Hachaliah. And it cometh to pass, in the month of Chisleu, the twentieth year, and I have been in Shushan the palace,
+**¹** Words of Nehemiah son of Hachaliah. And it cometh to pass, in the month of Chisleu, the twentieth year, and I have been in Shushan the palace,
 
-<sup>2</sup> and come in doth Hanani, one of my brethren, he and men of Judah, and I ask them concerning the Jews, the escaped part that have been left of the captivity, and concerning Jerusalem;
+**²** and come in doth Hanani, one of my brethren, he and men of Judah, and I ask them concerning the Jews, the escaped part that have been left of the captivity, and concerning Jerusalem;
 
-<sup>3</sup> and they say to me, 'Those left, who have been left of the captivity there in the province, [are] in great evil, and in reproach, and the wall of Jerusalem is broken down, and its gates have been burnt with fire.'
+**³** and they say to me, 'Those left, who have been left of the captivity there in the province, [are] in great evil, and in reproach, and the wall of Jerusalem is broken down, and its gates have been burnt with fire.'
 
-<sup>4</sup> And it cometh to pass, at my hearing these words, I have sat down, and I weep and mourn [for] days, and I am fasting and praying before the God of the heavens.
+**⁴** And it cometh to pass, at my hearing these words, I have sat down, and I weep and mourn [for] days, and I am fasting and praying before the God of the heavens.
 
-<sup>5</sup> And I say, 'I beseech thee, O Jehovah, God of the heavens, God, the great and the fearful, keeping the covenant and kindness for those loving Him, and for those keeping His commands,
+**⁵** And I say, 'I beseech thee, O Jehovah, God of the heavens, God, the great and the fearful, keeping the covenant and kindness for those loving Him, and for those keeping His commands,
 
-<sup>6</sup> let Thine ear be, I pray Thee, attentive, and Thine eyes open, to hearken unto the prayer of Thy servant, that I am praying before Thee to-day, by day and by night, concerning the sons of Israel Thy servants, and confessing concerning the sins of the sons of Israel, that we have sinned against Thee; yea, I and the house of my father have sinned;
+**⁶** let Thine ear be, I pray Thee, attentive, and Thine eyes open, to hearken unto the prayer of Thy servant, that I am praying before Thee to-day, by day and by night, concerning the sons of Israel Thy servants, and confessing concerning the sins of the sons of Israel, that we have sinned against Thee; yea, I and the house of my father have sinned;
 
-<sup>7</sup> we have acted very corruptly against Thee, and have not kept the commands, and the statutes, and the judgments, that Thou didst command Moses Thy servant.
+**⁷** we have acted very corruptly against Thee, and have not kept the commands, and the statutes, and the judgments, that Thou didst command Moses Thy servant.
 
-<sup>8</sup> 'Remember, I pray Thee, the word that Thou didst command Moses Thy servant, saying, Ye — ye trespass — I scatter you among peoples;
+**⁸** 'Remember, I pray Thee, the word that Thou didst command Moses Thy servant, saying, Ye — ye trespass — I scatter you among peoples;
 
-<sup>9</sup> and ye have turned back unto Me, and kept My commands, and done them — if your outcast is in the end of the heavens, thence I gather them, and have brought them in unto the place that I have chosen to cause My name to tabernacle there.
+**⁹** and ye have turned back unto Me, and kept My commands, and done them — if your outcast is in the end of the heavens, thence I gather them, and have brought them in unto the place that I have chosen to cause My name to tabernacle there.
 
-<sup>10</sup> And they [are] Thy servants, and Thy people, whom Thou hast ransomed by Thy great power, and by Thy strong hand.
+**¹⁰** And they [are] Thy servants, and Thy people, whom Thou hast ransomed by Thy great power, and by Thy strong hand.
 
-<sup>11</sup> 'I beseech Thee, O Lord, let, I pray Thee, Thine ear be attentive unto the prayer of Thy servant, and unto the prayer of Thy servants, those delighting to fear Thy Name; and give prosperity, I pray Thee, to Thy servant to-day, and give him for mercies before this man;' and I have been butler to the king.
+**¹¹** 'I beseech Thee, O Lord, let, I pray Thee, Thine ear be attentive unto the prayer of Thy servant, and unto the prayer of Thy servants, those delighting to fear Thy Name; and give prosperity, I pray Thee, to Thy servant to-day, and give him for mercies before this man;' and I have been butler to the king.

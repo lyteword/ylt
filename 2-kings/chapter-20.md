@@ -1,43 +1,43 @@
 # Chapter 20
 
-<sup>1</sup> In those days hath Hezekiah been sick unto death, and come unto him doth Isaiah son of Amoz the prophet, and saith unto him, 'Thus said Jehovah: Give a charge to thy house, for thou art dying, and dost not live.'
+**¹** In those days hath Hezekiah been sick unto death, and come unto him doth Isaiah son of Amoz the prophet, and saith unto him, 'Thus said Jehovah: Give a charge to thy house, for thou art dying, and dost not live.'
 
-<sup>2</sup> And he turneth round his face unto the wall, and prayeth unto Jehovah, saying,
+**²** And he turneth round his face unto the wall, and prayeth unto Jehovah, saying,
 
-<sup>3</sup> 'I pray Thee, O Jehovah, remember, I pray Thee, how I have walked habitually before Thee in truth, and with a perfect heart, and that which [is] good in Thine eyes I have done;' and Hezekiah weepeth — a great weeping.
+**³** 'I pray Thee, O Jehovah, remember, I pray Thee, how I have walked habitually before Thee in truth, and with a perfect heart, and that which [is] good in Thine eyes I have done;' and Hezekiah weepeth — a great weeping.
 
-<sup>4</sup> And it cometh to pass — Isaiah hath not gone out to the middle court — that the word of Jehovah hath been unto him, saying,
+**⁴** And it cometh to pass — Isaiah hath not gone out to the middle court — that the word of Jehovah hath been unto him, saying,
 
-<sup>5</sup> 'Turn back, and thou hast said unto Hezekiah, leader of My people: Thus said Jehovah, God of David thy father, I have heard thy prayer, I have seen thy tear, lo, I give healing to thee, on the third day thou dost go up to the house of Jehovah;
+**⁵** 'Turn back, and thou hast said unto Hezekiah, leader of My people: Thus said Jehovah, God of David thy father, I have heard thy prayer, I have seen thy tear, lo, I give healing to thee, on the third day thou dost go up to the house of Jehovah;
 
-<sup>6</sup> and I have added to thy days fifteen years, and out of the hand of the king of Asshur I deliver thee and this city, and have covered over this city for Mine own sake, and for the sake of David My servant.'
+**⁶** and I have added to thy days fifteen years, and out of the hand of the king of Asshur I deliver thee and this city, and have covered over this city for Mine own sake, and for the sake of David My servant.'
 
-<sup>7</sup> And Isaiah saith, 'Take ye a cake of figs;' and they take and lay [it] on the boil, and he reviveth.
+**⁷** And Isaiah saith, 'Take ye a cake of figs;' and they take and lay [it] on the boil, and he reviveth.
 
-<sup>8</sup> And Hezekiah saith unto Isaiah, 'What [is] the sign that Jehovah doth give healing to me, that I have gone up on the third day to the house of Jehovah?'
+**⁸** And Hezekiah saith unto Isaiah, 'What [is] the sign that Jehovah doth give healing to me, that I have gone up on the third day to the house of Jehovah?'
 
-<sup>9</sup> And Isaiah saith, 'This [is] to thee the sign from Jehovah, that Jehovah doth the thing that He hath spoken — The shadow hath gone on ten degrees, or it doth turn back ten degrees?'
+**⁹** And Isaiah saith, 'This [is] to thee the sign from Jehovah, that Jehovah doth the thing that He hath spoken — The shadow hath gone on ten degrees, or it doth turn back ten degrees?'
 
-<sup>10</sup> And Hezekiah saith, 'It hath been light for the shadow to incline ten degrees: nay, but let the shadow turn backward ten degrees.'
+**¹⁰** And Hezekiah saith, 'It hath been light for the shadow to incline ten degrees: nay, but let the shadow turn backward ten degrees.'
 
-<sup>11</sup> And Isaiah the prophet calleth unto Jehovah, and He bringeth back the shadow by the degrees that it had gone down in the degrees of Ahaz — backward ten degrees.
+**¹¹** And Isaiah the prophet calleth unto Jehovah, and He bringeth back the shadow by the degrees that it had gone down in the degrees of Ahaz — backward ten degrees.
 
-<sup>12</sup> At that time hath Berodach-Baladan son of Baladan king of Babylon sent letters and a present unto Hezekiah, for he heard that Hezekiah had been sick;
+**¹²** At that time hath Berodach-Baladan son of Baladan king of Babylon sent letters and a present unto Hezekiah, for he heard that Hezekiah had been sick;
 
-<sup>13</sup> and Hezekiah hearkeneth unto them, and sheweth them all the house of his treasury, the silver, and the gold, and the spices, and the good ointment, and all the house of his vessels, and all that hath been found in his treasuries; there hath not been a thing that Hezekiah hath not shewed them, in his house, and in all his dominion.
+**¹³** and Hezekiah hearkeneth unto them, and sheweth them all the house of his treasury, the silver, and the gold, and the spices, and the good ointment, and all the house of his vessels, and all that hath been found in his treasuries; there hath not been a thing that Hezekiah hath not shewed them, in his house, and in all his dominion.
 
-<sup>14</sup> And Isaiah the prophet cometh in unto king Hezekiah, and saith unto him, 'What said these men? and whence come they unto thee?' And Hezekiah saith, 'From a land afar off they have come — from Babylon.'
+**¹⁴** And Isaiah the prophet cometh in unto king Hezekiah, and saith unto him, 'What said these men? and whence come they unto thee?' And Hezekiah saith, 'From a land afar off they have come — from Babylon.'
 
-<sup>15</sup> And he saith, 'What saw they in thy house?' and Hezekiah saith, 'All that [is] in my house they saw; there hath not been a thing that I have not shewed them among my treasures.'
+**¹⁵** And he saith, 'What saw they in thy house?' and Hezekiah saith, 'All that [is] in my house they saw; there hath not been a thing that I have not shewed them among my treasures.'
 
-<sup>16</sup> And Isaiah saith unto Hezekiah, 'Hear a word of Jehovah:
+**¹⁶** And Isaiah saith unto Hezekiah, 'Hear a word of Jehovah:
 
-<sup>17</sup> Lo, days are coming, and borne hath been all that [is] in thy house, and that thy father have treasured up till this day, to Babylon; there is not left a thing, said Jehovah;
+**¹⁷** Lo, days are coming, and borne hath been all that [is] in thy house, and that thy father have treasured up till this day, to Babylon; there is not left a thing, said Jehovah;
 
-<sup>18</sup> and of thy sons who go out from thee, whom thou begettest, they take away, and they have been eunuchs in the palace of the king of Babylon.'
+**¹⁸** and of thy sons who go out from thee, whom thou begettest, they take away, and they have been eunuchs in the palace of the king of Babylon.'
 
-<sup>19</sup> And Hezekiah saith unto Isaiah, 'Good [is] the word of Jehovah that thou hast spoken;' and he saith, 'Is it not — if peace and truth are in my days?'
+**¹⁹** And Hezekiah saith unto Isaiah, 'Good [is] the word of Jehovah that thou hast spoken;' and he saith, 'Is it not — if peace and truth are in my days?'
 
-<sup>20</sup> And the rest of the matters of Hezekiah, and all his might, and how he made the pool, and the conduit, and bringeth in the waters to the city, are they not written on the book of the Chronicles of the kings of Judah?
+**²⁰** And the rest of the matters of Hezekiah, and all his might, and how he made the pool, and the conduit, and bringeth in the waters to the city, are they not written on the book of the Chronicles of the kings of Judah?
 
-<sup>21</sup> And Hezekiah lieth with his fathers, and reign doth Manasseh his son in his stead.
+**²¹** And Hezekiah lieth with his fathers, and reign doth Manasseh his son in his stead.

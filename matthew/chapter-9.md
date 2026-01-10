@@ -1,77 +1,77 @@
 # Chapter 9
 
-<sup>1</sup> And having gone to the boat, he passed over, and came to his own city,
+**¹** And having gone to the boat, he passed over, and came to his own city,
 
-<sup>2</sup> and lo, they were bringing to him a paralytic, laid upon a couch, and Jesus having seen their faith, said to the paralytic, 'Be of good courage, child, thy sins have been forgiven thee.'
+**²** and lo, they were bringing to him a paralytic, laid upon a couch, and Jesus having seen their faith, said to the paralytic, 'Be of good courage, child, thy sins have been forgiven thee.'
 
-<sup>3</sup> And lo, certain of the scribes said within themselves, 'This one doth speak evil.'
+**³** And lo, certain of the scribes said within themselves, 'This one doth speak evil.'
 
-<sup>4</sup> And Jesus, having known their thoughts, said, 'Why think ye evil in your hearts?
+**⁴** And Jesus, having known their thoughts, said, 'Why think ye evil in your hearts?
 
-<sup>5</sup> for which is easier? to say, The sins have been forgiven to thee; or to say, Rise, and walk?
+**⁵** for which is easier? to say, The sins have been forgiven to thee; or to say, Rise, and walk?
 
-<sup>6</sup> 'But, that ye may know that the Son of Man hath power upon the earth to forgive sins — (then saith he to the paralytic) — having risen, take up thy couch, and go to thy house.'
+**⁶** 'But, that ye may know that the Son of Man hath power upon the earth to forgive sins — (then saith he to the paralytic) — having risen, take up thy couch, and go to thy house.'
 
-<sup>7</sup> And he, having risen, went to his house,
+**⁷** And he, having risen, went to his house,
 
-<sup>8</sup> and the multitudes having seen, wondered, and glorified God, who did give such power to men.
+**⁸** and the multitudes having seen, wondered, and glorified God, who did give such power to men.
 
-<sup>9</sup> And Jesus passing by thence, saw a man sitting at the tax-office, named Matthew, and saith to him, 'Be following me,' and he, having risen, did follow him.
+**⁹** And Jesus passing by thence, saw a man sitting at the tax-office, named Matthew, and saith to him, 'Be following me,' and he, having risen, did follow him.
 
-<sup>10</sup> And it came to pass, he reclining (at meat) in the house, that lo, many tax-gatherers and sinners having come, were lying (at meat) with Jesus and his disciples,
+**¹⁰** And it came to pass, he reclining (at meat) in the house, that lo, many tax-gatherers and sinners having come, were lying (at meat) with Jesus and his disciples,
 
-<sup>11</sup> and the Pharisees having seen, said to his disciples, 'Wherefore with the tax-gatherers and sinners doth your teacher eat?'
+**¹¹** and the Pharisees having seen, said to his disciples, 'Wherefore with the tax-gatherers and sinners doth your teacher eat?'
 
-<sup>12</sup> And Jesus having heard, said to them, 'They who are whole have no need of a physician, but they who are ill;
+**¹²** And Jesus having heard, said to them, 'They who are whole have no need of a physician, but they who are ill;
 
-<sup>13</sup> but having gone, learn ye what is, Kindness I will, and not sacrifice, for I did not come to call righteous men, but sinners, to reformation.'
+**¹³** but having gone, learn ye what is, Kindness I will, and not sacrifice, for I did not come to call righteous men, but sinners, to reformation.'
 
-<sup>14</sup> Then come to him do the disciples of John, saying, 'Wherefore do we and the Pharisees fast much, and thy disciples fast not?'
+**¹⁴** Then come to him do the disciples of John, saying, 'Wherefore do we and the Pharisees fast much, and thy disciples fast not?'
 
-<sup>15</sup> And Jesus said to them, 'Can the sons of the bride-chamber mourn, so long as the bridegroom is with them? but days shall come when the bridegroom may be taken from them, and then they shall fast.
+**¹⁵** And Jesus said to them, 'Can the sons of the bride-chamber mourn, so long as the bridegroom is with them? but days shall come when the bridegroom may be taken from them, and then they shall fast.
 
-<sup>16</sup> 'And no one doth put a patch of undressed cloth on an old garment, for its filling up doth take from the garment, and a worse rent is made.
+**¹⁶** 'And no one doth put a patch of undressed cloth on an old garment, for its filling up doth take from the garment, and a worse rent is made.
 
-<sup>17</sup> 'Nor do they put new wine into old skins, and if not — the skins burst, and the wine doth run out, and the skins are destroyed, but they put new wine into new skins, and both are preserved together.'
+**¹⁷** 'Nor do they put new wine into old skins, and if not — the skins burst, and the wine doth run out, and the skins are destroyed, but they put new wine into new skins, and both are preserved together.'
 
-<sup>18</sup> While he is speaking these things to them, lo, a ruler having come, was bowing to him, saying that 'My daughter just now died, but, having come, lay thy hand upon her, and she shall live.'
+**¹⁸** While he is speaking these things to them, lo, a ruler having come, was bowing to him, saying that 'My daughter just now died, but, having come, lay thy hand upon her, and she shall live.'
 
-<sup>19</sup> And Jesus having risen, did follow him, also his disciples,
+**¹⁹** And Jesus having risen, did follow him, also his disciples,
 
-<sup>20</sup> and lo, a woman having an issue of blood twelve years, having come to him behind, did touch the fringe of his garments,
+**²⁰** and lo, a woman having an issue of blood twelve years, having come to him behind, did touch the fringe of his garments,
 
-<sup>21</sup> for she said within herself, 'If only I may touch his garment, I shall be saved.'
+**²¹** for she said within herself, 'If only I may touch his garment, I shall be saved.'
 
-<sup>22</sup> And Jesus having turned about, and having seen her, said, 'Be of good courage, daughter, thy faith hath saved thee,' and the woman was saved from that hour.
+**²²** And Jesus having turned about, and having seen her, said, 'Be of good courage, daughter, thy faith hath saved thee,' and the woman was saved from that hour.
 
-<sup>23</sup> And Jesus having come to the house of the ruler, and having seen the minstrels and the multitude making tumult,
+**²³** And Jesus having come to the house of the ruler, and having seen the minstrels and the multitude making tumult,
 
-<sup>24</sup> he saith to them, 'Withdraw, for the damsel did not die, but doth sleep,' and they were deriding him;
+**²⁴** he saith to them, 'Withdraw, for the damsel did not die, but doth sleep,' and they were deriding him;
 
-<sup>25</sup> but, when the multitude was put forth, having gone in, he took hold of her hand, and the damsel arose,
+**²⁵** but, when the multitude was put forth, having gone in, he took hold of her hand, and the damsel arose,
 
-<sup>26</sup> and the fame of this went forth to all the land.
+**²⁶** and the fame of this went forth to all the land.
 
-<sup>27</sup> And Jesus passing on thence, two blind men followed him, calling and saying, 'Deal kindly with us, Son of David.'
+**²⁷** And Jesus passing on thence, two blind men followed him, calling and saying, 'Deal kindly with us, Son of David.'
 
-<sup>28</sup> And he having come to the house, the blind men came to him, and Jesus saith to them, 'Believe ye that I am able to do this?' They say to him, 'Yes, sir.'
+**²⁸** And he having come to the house, the blind men came to him, and Jesus saith to them, 'Believe ye that I am able to do this?' They say to him, 'Yes, sir.'
 
-<sup>29</sup> Then touched he their eyes, saying, 'According to your faith let it be to you,'
+**²⁹** Then touched he their eyes, saying, 'According to your faith let it be to you,'
 
-<sup>30</sup> and their eyes were opened, and Jesus strictly charged them, saying, 'See, let no one know;'
+**³⁰** and their eyes were opened, and Jesus strictly charged them, saying, 'See, let no one know;'
 
-<sup>31</sup> but they, having gone forth, did spread his fame in all that land.
+**³¹** but they, having gone forth, did spread his fame in all that land.
 
-<sup>32</sup> And as they are coming forth, lo, they brought to him a man dumb, a demoniac,
+**³²** And as they are coming forth, lo, they brought to him a man dumb, a demoniac,
 
-<sup>33</sup> and the demon having been cast out, the dumb spake, and the multitude did wonder, saying that 'It was never so seen in Israel:'
+**³³** and the demon having been cast out, the dumb spake, and the multitude did wonder, saying that 'It was never so seen in Israel:'
 
-<sup>34</sup> but the Pharisees said, 'By the ruler of the demons he doth cast out the demons.'
+**³⁴** but the Pharisees said, 'By the ruler of the demons he doth cast out the demons.'
 
-<sup>35</sup> And Jesus was going up and down all the cities and the villages, teaching in their synagogues, and proclaiming the good news of the reign, and healing every sickness and every malady among the people.
+**³⁵** And Jesus was going up and down all the cities and the villages, teaching in their synagogues, and proclaiming the good news of the reign, and healing every sickness and every malady among the people.
 
-<sup>36</sup> And having seen the multitudes, he was moved with compassion for them, that they were faint and cast aside, as sheep not having a shepherd,
+**³⁶** And having seen the multitudes, he was moved with compassion for them, that they were faint and cast aside, as sheep not having a shepherd,
 
-<sup>37</sup> then saith he to his disciples, 'The harvest indeed [is] abundant, but the workmen few;
+**³⁷** then saith he to his disciples, 'The harvest indeed [is] abundant, but the workmen few;
 
-<sup>38</sup> beseech ye therefore the Lord of the harvest, that he may put forth workmen to His harvest.'
+**³⁸** beseech ye therefore the Lord of the harvest, that he may put forth workmen to His harvest.'

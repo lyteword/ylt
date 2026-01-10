@@ -1,57 +1,57 @@
 # Chapter 2
 
-<sup>1</sup> And again he entered into Capernaum, after [some] days, and it was heard that he is in the house,
+**¹** And again he entered into Capernaum, after [some] days, and it was heard that he is in the house,
 
-<sup>2</sup> and immediately many were gathered together, so that there was no more room, not even at the door, and he was speaking to them the word.
+**²** and immediately many were gathered together, so that there was no more room, not even at the door, and he was speaking to them the word.
 
-<sup>3</sup> And they come unto him, bringing a paralytic, borne by four,
+**³** And they come unto him, bringing a paralytic, borne by four,
 
-<sup>4</sup> and not being able to come near to him because of the multitude, they uncovered the roof where he was, and, having broken [it] up, they let down the couch on which the paralytic was lying,
+**⁴** and not being able to come near to him because of the multitude, they uncovered the roof where he was, and, having broken [it] up, they let down the couch on which the paralytic was lying,
 
-<sup>5</sup> and Jesus having seen their faith, saith to the paralytic, 'Child, thy sins have been forgiven thee.'
+**⁵** and Jesus having seen their faith, saith to the paralytic, 'Child, thy sins have been forgiven thee.'
 
-<sup>6</sup> And there were certain of the scribes there sitting, and reasoning in their hearts,
+**⁶** And there were certain of the scribes there sitting, and reasoning in their hearts,
 
-<sup>7</sup> 'Why doth this one thus speak evil words? who is able to forgive sins except one — God?'
+**⁷** 'Why doth this one thus speak evil words? who is able to forgive sins except one — God?'
 
-<sup>8</sup> And immediately Jesus, having known in his spirit that they thus reason in themselves, said to them, 'Why these things reason ye in your hearts?
+**⁸** And immediately Jesus, having known in his spirit that they thus reason in themselves, said to them, 'Why these things reason ye in your hearts?
 
-<sup>9</sup> which is easier, to say to the paralytic, The sins have been forgiven to thee? or to say, Rise, and take up thy couch, and walk?
+**⁹** which is easier, to say to the paralytic, The sins have been forgiven to thee? or to say, Rise, and take up thy couch, and walk?
 
-<sup>10</sup> 'And, that ye may know that the Son of Man hath authority on the earth to forgive sins — (he saith to the paralytic) —
+**¹⁰** 'And, that ye may know that the Son of Man hath authority on the earth to forgive sins — (he saith to the paralytic) —
 
-<sup>11</sup> I say to thee, Rise, and take up thy couch, and go away to thy house;'
+**¹¹** I say to thee, Rise, and take up thy couch, and go away to thy house;'
 
-<sup>12</sup> and he rose immediately, and having taken up the couch, he went forth before all, so that all were astonished, and do glorify God, saying — 'Never thus did we see.'
+**¹²** and he rose immediately, and having taken up the couch, he went forth before all, so that all were astonished, and do glorify God, saying — 'Never thus did we see.'
 
-<sup>13</sup> And he went forth again by the sea, and all the multitude was coming unto him, and he was teaching them,
+**¹³** And he went forth again by the sea, and all the multitude was coming unto him, and he was teaching them,
 
-<sup>14</sup> and passing by, he saw Levi of Alpheus sitting at the tax-office, and saith to him, 'Be following me,' and he, having risen, did follow him.
+**¹⁴** and passing by, he saw Levi of Alpheus sitting at the tax-office, and saith to him, 'Be following me,' and he, having risen, did follow him.
 
-<sup>15</sup> And it came to pass, in his reclining (at meat) in his house, that many tax-gatherers and sinners were reclining (at meat) with Jesus and his disciples, for there were many, and they followed him.
+**¹⁵** And it came to pass, in his reclining (at meat) in his house, that many tax-gatherers and sinners were reclining (at meat) with Jesus and his disciples, for there were many, and they followed him.
 
-<sup>16</sup> And the scribes and the Pharisees, having seen him eating with the tax-gatherers and sinners, said to his disciples, 'Why — that with the tax-gatherers and sinners he doth eat and drink?'
+**¹⁶** And the scribes and the Pharisees, having seen him eating with the tax-gatherers and sinners, said to his disciples, 'Why — that with the tax-gatherers and sinners he doth eat and drink?'
 
-<sup>17</sup> And Jesus, having heard, saith to them, 'They who are strong have no need of a physician, but they who are ill; I came not to call righteous men, but sinners to reformation.'
+**¹⁷** And Jesus, having heard, saith to them, 'They who are strong have no need of a physician, but they who are ill; I came not to call righteous men, but sinners to reformation.'
 
-<sup>18</sup> And the disciples of John and those of the Pharisees were fasting, and they come and say to him, 'Wherefore do the disciples of John and those of the Pharisees fast, and thy disciples do not fast?'
+**¹⁸** And the disciples of John and those of the Pharisees were fasting, and they come and say to him, 'Wherefore do the disciples of John and those of the Pharisees fast, and thy disciples do not fast?'
 
-<sup>19</sup> And Jesus said to them, 'Are the sons of the bride-chamber able, while the bridegroom is with them, to fast? so long time as they have the bridegroom with them they are not able to fast;
+**¹⁹** And Jesus said to them, 'Are the sons of the bride-chamber able, while the bridegroom is with them, to fast? so long time as they have the bridegroom with them they are not able to fast;
 
-<sup>20</sup> but days shall come when the bridegroom may be taken from them, and then they shall fast — in those days.
+**²⁰** but days shall come when the bridegroom may be taken from them, and then they shall fast — in those days.
 
-<sup>21</sup> 'And no one a patch of undressed cloth doth sew on an old garment, and if not — the new filling it up doth take from the old and the rent doth become worse;
+**²¹** 'And no one a patch of undressed cloth doth sew on an old garment, and if not — the new filling it up doth take from the old and the rent doth become worse;
 
-<sup>22</sup> and no one doth put new wine into old skins, and if not — the new wine doth burst the skins, and the wine is poured out, and the skins will be destroyed; but new wine into new skins is to be put.'
+**²²** and no one doth put new wine into old skins, and if not — the new wine doth burst the skins, and the wine is poured out, and the skins will be destroyed; but new wine into new skins is to be put.'
 
-<sup>23</sup> And it came to pass — he is going along on the sabbaths through the corn-fields — and his disciples began to make a way, plucking the ears,
+**²³** And it came to pass — he is going along on the sabbaths through the corn-fields — and his disciples began to make a way, plucking the ears,
 
-<sup>24</sup> and the Pharisees said to him, 'Lo, why do they on the sabbaths that which is not lawful?'
+**²⁴** and the Pharisees said to him, 'Lo, why do they on the sabbaths that which is not lawful?'
 
-<sup>25</sup> And he said to them, 'Did ye never read what David did, when he had need and was hungry, he and those with him?
+**²⁵** And he said to them, 'Did ye never read what David did, when he had need and was hungry, he and those with him?
 
-<sup>26</sup> how he went into the house of God, (at 'Abiathar the chief priest,') and the loaves of the presentation did eat, which it is not lawful to eat, except to the priests, and he gave also to those who were with him?'
+**²⁶** how he went into the house of God, (at 'Abiathar the chief priest,') and the loaves of the presentation did eat, which it is not lawful to eat, except to the priests, and he gave also to those who were with him?'
 
-<sup>27</sup> And he said to them, 'The sabbath for man was made, not man for the sabbath,
+**²⁷** And he said to them, 'The sabbath for man was made, not man for the sabbath,
 
-<sup>28</sup> so that the son of man is lord also of the sabbath.'
+**²⁸** so that the son of man is lord also of the sabbath.'

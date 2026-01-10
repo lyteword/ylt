@@ -1,91 +1,91 @@
 # Chapter 1
 
-<sup>1</sup> A beginning of the good news of Jesus Christ, Son of God.
+**¹** A beginning of the good news of Jesus Christ, Son of God.
 
-<sup>2</sup> As it hath been written in the prophets, 'Lo, I send My messenger before thy face, who shall prepare thy way before thee,' —
+**²** As it hath been written in the prophets, 'Lo, I send My messenger before thy face, who shall prepare thy way before thee,' —
 
-<sup>3</sup> 'A voice of one calling in the wilderness, Prepare ye the way of the Lord, straight make ye his paths,' —
+**³** 'A voice of one calling in the wilderness, Prepare ye the way of the Lord, straight make ye his paths,' —
 
-<sup>4</sup> John came baptizing in the wilderness, and proclaiming a baptism of reformation — to remission of sins,
+**⁴** John came baptizing in the wilderness, and proclaiming a baptism of reformation — to remission of sins,
 
-<sup>5</sup> and there were going forth to him all the region of Judea, and they of Jerusalem, and they were all baptized by him in the river Jordan, confessing their sins.
+**⁵** and there were going forth to him all the region of Judea, and they of Jerusalem, and they were all baptized by him in the river Jordan, confessing their sins.
 
-<sup>6</sup> And John was clothed with camel's hair, and a girdle of skin around his loins, and eating locusts and honey of the field,
+**⁶** And John was clothed with camel's hair, and a girdle of skin around his loins, and eating locusts and honey of the field,
 
-<sup>7</sup> and he proclaimed, saying, 'He doth come — who is mightier than I — after me, of whom I am not worthy — having stooped down — to loose the latchet of his sandals;
+**⁷** and he proclaimed, saying, 'He doth come — who is mightier than I — after me, of whom I am not worthy — having stooped down — to loose the latchet of his sandals;
 
-<sup>8</sup> I indeed did baptize you with water, but he shall baptize you with the Holy Spirit.'
+**⁸** I indeed did baptize you with water, but he shall baptize you with the Holy Spirit.'
 
-<sup>9</sup> And it came to pass in those days, Jesus came from Nazareth of Galilee, and was baptized by John at the Jordan;
+**⁹** And it came to pass in those days, Jesus came from Nazareth of Galilee, and was baptized by John at the Jordan;
 
-<sup>10</sup> and immediately coming up from the water, he saw the heavens dividing, and the Spirit as a dove coming down upon him;
+**¹⁰** and immediately coming up from the water, he saw the heavens dividing, and the Spirit as a dove coming down upon him;
 
-<sup>11</sup> and a voice came out of the heavens, 'Thou art My Son — the Beloved, in whom I did delight.'
+**¹¹** and a voice came out of the heavens, 'Thou art My Son — the Beloved, in whom I did delight.'
 
-<sup>12</sup> And immediately doth the Spirit put him forth to the wilderness,
+**¹²** And immediately doth the Spirit put him forth to the wilderness,
 
-<sup>13</sup> and he was there in the wilderness forty days, being tempted by the Adversary, and he was with the beasts, and the messengers were ministering to him.
+**¹³** and he was there in the wilderness forty days, being tempted by the Adversary, and he was with the beasts, and the messengers were ministering to him.
 
-<sup>14</sup> And after the delivering up of John, Jesus came to Galilee, proclaiming the good news of the reign of God,
+**¹⁴** And after the delivering up of John, Jesus came to Galilee, proclaiming the good news of the reign of God,
 
-<sup>15</sup> and saying — 'Fulfilled hath been the time, and the reign of God hath come nigh, reform ye, and believe in the good news.'
+**¹⁵** and saying — 'Fulfilled hath been the time, and the reign of God hath come nigh, reform ye, and believe in the good news.'
 
-<sup>16</sup> And, walking by the sea of Galilee, he saw Simon, and Andrew his brother, casting a drag into the sea, for they were fishers,
+**¹⁶** And, walking by the sea of Galilee, he saw Simon, and Andrew his brother, casting a drag into the sea, for they were fishers,
 
-<sup>17</sup> and Jesus said to them, 'Come ye after me, and I shall make you to become fishers of men;'
+**¹⁷** and Jesus said to them, 'Come ye after me, and I shall make you to become fishers of men;'
 
-<sup>18</sup> and immediately, having left their nets, they followed him.
+**¹⁸** and immediately, having left their nets, they followed him.
 
-<sup>19</sup> And having gone on thence a little, he saw James of Zebedee, and John his brother, and they were in the boat refitting the nets,
+**¹⁹** And having gone on thence a little, he saw James of Zebedee, and John his brother, and they were in the boat refitting the nets,
 
-<sup>20</sup> and immediately he called them, and, having left their father Zebedee in the boat with the hired servants, they went away after him.
+**²⁰** and immediately he called them, and, having left their father Zebedee in the boat with the hired servants, they went away after him.
 
-<sup>21</sup> And they go on to Capernaum, and immediately, on the sabbaths, having gone into the synagogue, he was teaching,
+**²¹** And they go on to Capernaum, and immediately, on the sabbaths, having gone into the synagogue, he was teaching,
 
-<sup>22</sup> and they were astonished at his teaching, for he was teaching them as having authority, and not as the scribes.
+**²²** and they were astonished at his teaching, for he was teaching them as having authority, and not as the scribes.
 
-<sup>23</sup> And there was in their synagogue a man with an unclean spirit, and he cried out,
+**²³** And there was in their synagogue a man with an unclean spirit, and he cried out,
 
-<sup>24</sup> saying, 'Away! what — to us and to thee, Jesus the Nazarene? thou didst come to destroy us; I have known thee who thou art — the Holy One of God.'
+**²⁴** saying, 'Away! what — to us and to thee, Jesus the Nazarene? thou didst come to destroy us; I have known thee who thou art — the Holy One of God.'
 
-<sup>25</sup> And Jesus rebuked him, saying, 'Be silenced, and come forth out of him,'
+**²⁵** And Jesus rebuked him, saying, 'Be silenced, and come forth out of him,'
 
-<sup>26</sup> and the unclean spirit having torn him, and having cried with a great voice, came forth out of him,
+**²⁶** and the unclean spirit having torn him, and having cried with a great voice, came forth out of him,
 
-<sup>27</sup> and they were all amazed, so as to reason among themselves, saying, 'What is this? what new teaching [is] this? that with authority also the unclean spirits he commandeth, and they obey him!'
+**²⁷** and they were all amazed, so as to reason among themselves, saying, 'What is this? what new teaching [is] this? that with authority also the unclean spirits he commandeth, and they obey him!'
 
-<sup>28</sup> And the fame of him went forth immediately to all the region, round about, of Galilee.
+**²⁸** And the fame of him went forth immediately to all the region, round about, of Galilee.
 
-<sup>29</sup> And immediately, having come forth out of the synagogue, they went to the house of Simon and Andrew, with James and John,
+**²⁹** And immediately, having come forth out of the synagogue, they went to the house of Simon and Andrew, with James and John,
 
-<sup>30</sup> and the mother-in-law of Simon was lying fevered, and immediately they tell him about her,
+**³⁰** and the mother-in-law of Simon was lying fevered, and immediately they tell him about her,
 
-<sup>31</sup> and having come near, he raised her up, having laid hold of her hand, and the fever left her immediately, and she was ministering to them.
+**³¹** and having come near, he raised her up, having laid hold of her hand, and the fever left her immediately, and she was ministering to them.
 
-<sup>32</sup> And evening having come, when the sun did set, they brought unto him all who were ill, and who were demoniacs,
+**³²** And evening having come, when the sun did set, they brought unto him all who were ill, and who were demoniacs,
 
-<sup>33</sup> and the whole city was gathered together near the door,
+**³³** and the whole city was gathered together near the door,
 
-<sup>34</sup> and he healed many who were ill of manifold diseases, and many demons he cast forth, and was not suffering the demons to speak, because they knew him.
+**³⁴** and he healed many who were ill of manifold diseases, and many demons he cast forth, and was not suffering the demons to speak, because they knew him.
 
-<sup>35</sup> And very early, it being yet night, having risen, he went forth, and went away to a desert place, and was there praying;
+**³⁵** And very early, it being yet night, having risen, he went forth, and went away to a desert place, and was there praying;
 
-<sup>36</sup> and Simon and those with him went in quest of him,
+**³⁶** and Simon and those with him went in quest of him,
 
-<sup>37</sup> and having found him, they say to him, — 'All do seek thee;'
+**³⁷** and having found him, they say to him, — 'All do seek thee;'
 
-<sup>38</sup> and he saith to them, 'We may go to the next towns, that there also I may preach, for for this I came forth.'
+**³⁸** and he saith to them, 'We may go to the next towns, that there also I may preach, for for this I came forth.'
 
-<sup>39</sup> And he was preaching in their synagogues, in all Galilee, and is casting out the demons,
+**³⁹** And he was preaching in their synagogues, in all Galilee, and is casting out the demons,
 
-<sup>40</sup> and there doth come to him a leper, calling on him, and kneeling to him, and saying to him — 'If thou mayest will, thou art able to cleanse me.'
+**⁴⁰** and there doth come to him a leper, calling on him, and kneeling to him, and saying to him — 'If thou mayest will, thou art able to cleanse me.'
 
-<sup>41</sup> And Jesus having been moved with compassion, having stretched forth the hand, touched him, and saith to him, 'I will; be thou cleansed;'
+**⁴¹** And Jesus having been moved with compassion, having stretched forth the hand, touched him, and saith to him, 'I will; be thou cleansed;'
 
-<sup>42</sup> and he having spoken, immediately the leprosy went away from him, and he was cleansed.
+**⁴²** and he having spoken, immediately the leprosy went away from him, and he was cleansed.
 
-<sup>43</sup> And having sternly charged him, immediately he put him forth,
+**⁴³** And having sternly charged him, immediately he put him forth,
 
-<sup>44</sup> and saith to him, 'See thou mayest say nothing to any one, but go away, thyself shew to the priest, and bring near for thy cleansing the things Moses directed, for a testimony to them.'
+**⁴⁴** and saith to him, 'See thou mayest say nothing to any one, but go away, thyself shew to the priest, and bring near for thy cleansing the things Moses directed, for a testimony to them.'
 
-<sup>45</sup> And he, having gone forth, began to proclaim much, and to spread abroad the thing, so that no more he was able openly to enter into the city, but he was without in desert places, and they were coming unto him from every quarter.
+**⁴⁵** And he, having gone forth, began to proclaim much, and to spread abroad the thing, so that no more he was able openly to enter into the city, but he was without in desert places, and they were coming unto him from every quarter.

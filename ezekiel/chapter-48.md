@@ -1,71 +1,71 @@
 # Chapter 48
 
-<sup>1</sup> And these [are] the names of the tribes: From the north end unto the side of the way of Hethlon, at the coming in to Hamath, Hazar-Enan, the border of Damascus northward, unto the side of Hamath, and they have been his — side east and west, Dan one,
+**¹** And these [are] the names of the tribes: From the north end unto the side of the way of Hethlon, at the coming in to Hamath, Hazar-Enan, the border of Damascus northward, unto the side of Hamath, and they have been his — side east and west, Dan one,
 
-<sup>2</sup> and by the border of Dan, from the east side unto the west side, Asher one,
+**²** and by the border of Dan, from the east side unto the west side, Asher one,
 
-<sup>3</sup> and by the border of Asher, from the east side even unto the west side, Naphtali one,
+**³** and by the border of Asher, from the east side even unto the west side, Naphtali one,
 
-<sup>4</sup> and by the border of Naphtali, from the east side unto the west side, Manasseh one,
+**⁴** and by the border of Naphtali, from the east side unto the west side, Manasseh one,
 
-<sup>5</sup> and by the border of Manasseh, from the east side unto the west side, Ephraim one,
+**⁵** and by the border of Manasseh, from the east side unto the west side, Ephraim one,
 
-<sup>6</sup> and by the border of Ephraim, from the east side even unto the west side, Reuben one,
+**⁶** and by the border of Ephraim, from the east side even unto the west side, Reuben one,
 
-<sup>7</sup> and by the border of Reuben, from the east side unto the west side, Judah one,
+**⁷** and by the border of Reuben, from the east side unto the west side, Judah one,
 
-<sup>8</sup> and by the border of Judah, from the east side unto the west side is the heave-offering that ye lift up, five and twenty thousand broad and long, as one of the parts, from the east side unto the west side: and the sanctuary hath been in its midst.
+**⁸** and by the border of Judah, from the east side unto the west side is the heave-offering that ye lift up, five and twenty thousand broad and long, as one of the parts, from the east side unto the west side: and the sanctuary hath been in its midst.
 
-<sup>9</sup> The heave-offering that ye lift up to Jehovah [is] five and twenty thousand long, and broad ten thousand.
+**⁹** The heave-offering that ye lift up to Jehovah [is] five and twenty thousand long, and broad ten thousand.
 
-<sup>10</sup> And of these is the holy heave-offering for the priests, northward five and twenty thousand, and westward [in] breadth ten thousand, and eastward [in] breadth ten thousand, and southward [in] length five and twenty thousand: and the sanctuary of Jehovah hath been in its midst.
+**¹⁰** And of these is the holy heave-offering for the priests, northward five and twenty thousand, and westward [in] breadth ten thousand, and eastward [in] breadth ten thousand, and southward [in] length five and twenty thousand: and the sanctuary of Jehovah hath been in its midst.
 
-<sup>11</sup> For the priests who are sanctified of the sons of Zadok, who have kept My charge, who erred not in the erring of the sons of Israel, as the Levites erred,
+**¹¹** For the priests who are sanctified of the sons of Zadok, who have kept My charge, who erred not in the erring of the sons of Israel, as the Levites erred,
 
-<sup>12</sup> even the heave-offering hath been to them, out of the heave-offering of the land, most holy, by the border of the Levites.
+**¹²** even the heave-offering hath been to them, out of the heave-offering of the land, most holy, by the border of the Levites.
 
-<sup>13</sup> 'And [to] the Levites over-against the border of the priests [are] five and twenty thousand [in] length, and [in] breadth ten thousand, all the length [is] five and twenty thousand, and the breadth ten thousand.
+**¹³** 'And [to] the Levites over-against the border of the priests [are] five and twenty thousand [in] length, and [in] breadth ten thousand, all the length [is] five and twenty thousand, and the breadth ten thousand.
 
-<sup>14</sup> And they do not sell of it, nor exchange, nor cause to pass away the first-fruit of the land: for [it is] holy to Jehovah.
+**¹⁴** And they do not sell of it, nor exchange, nor cause to pass away the first-fruit of the land: for [it is] holy to Jehovah.
 
-<sup>15</sup> And the five thousand that is left in the breadth, on the front of the five and twenty thousand, is common — for the city, for dwelling, and for suburb, and the city hath been in its midst.
+**¹⁵** And the five thousand that is left in the breadth, on the front of the five and twenty thousand, is common — for the city, for dwelling, and for suburb, and the city hath been in its midst.
 
-<sup>16</sup> And these [are] its measures: the north side five hundred, and four thousand, and the south side five hundred, and four thousand, and on the east side five hundred, and four thousand, and the west side five hundred, and four thousand.
+**¹⁶** And these [are] its measures: the north side five hundred, and four thousand, and the south side five hundred, and four thousand, and on the east side five hundred, and four thousand, and the west side five hundred, and four thousand.
 
-<sup>17</sup> And the suburb to the city hath been northward, fifty and two hundred, and southward, fifty and two hundred, and eastward, fifty and two hundred, and westward, fifty and two hundred.
+**¹⁷** And the suburb to the city hath been northward, fifty and two hundred, and southward, fifty and two hundred, and eastward, fifty and two hundred, and westward, fifty and two hundred.
 
-<sup>18</sup> 'And the residue in length over-against the heave-offering of the holy [portion is] ten thousand eastward, and ten thousand westward, and it hath been over-against the heave-offering of the holy [portion], and its increase hath been for food to the servants of the city,
+**¹⁸** 'And the residue in length over-against the heave-offering of the holy [portion is] ten thousand eastward, and ten thousand westward, and it hath been over-against the heave-offering of the holy [portion], and its increase hath been for food to the servants of the city,
 
-<sup>19</sup> even [to] him who is serving the city, they serve it out of all the tribes of Israel.
+**¹⁹** even [to] him who is serving the city, they serve it out of all the tribes of Israel.
 
-<sup>20</sup> All the heave-offering [is] five and twenty thousand by five and twenty thousand, square do ye lift up the heave-offering of the holy [portion] with the possession of the city.
+**²⁰** All the heave-offering [is] five and twenty thousand by five and twenty thousand, square do ye lift up the heave-offering of the holy [portion] with the possession of the city.
 
-<sup>21</sup> 'And the residue [is] for the prince, on this side and on that side of the heave-offering of the holy [portion], and of the possession of the city, on the front of the five and twenty thousand of the heave-offering unto the east border, and westward, on the front of the five and twenty thousand on the west border, over-against the portions of the prince; and the heave-offering of the holy [portion], and the sanctuary of the house, hath been in its midst.
+**²¹** 'And the residue [is] for the prince, on this side and on that side of the heave-offering of the holy [portion], and of the possession of the city, on the front of the five and twenty thousand of the heave-offering unto the east border, and westward, on the front of the five and twenty thousand on the west border, over-against the portions of the prince; and the heave-offering of the holy [portion], and the sanctuary of the house, hath been in its midst.
 
-<sup>22</sup> And from the possession of the Levites, from the possession of the city, in the midst of that which is to the prince, between the border of Judah and the border of Benjamin, there is to the prince.
+**²²** And from the possession of the Levites, from the possession of the city, in the midst of that which is to the prince, between the border of Judah and the border of Benjamin, there is to the prince.
 
-<sup>23</sup> 'As to the rest of the tribes, from the east side unto the west side, Benjamin one,
+**²³** 'As to the rest of the tribes, from the east side unto the west side, Benjamin one,
 
-<sup>24</sup> and by the border of Benjamin, from the east side unto the west side, Simeon one,
+**²⁴** and by the border of Benjamin, from the east side unto the west side, Simeon one,
 
-<sup>25</sup> and by the border of Simeon, from the east side unto the west side, Issachar one,
+**²⁵** and by the border of Simeon, from the east side unto the west side, Issachar one,
 
-<sup>26</sup> and by the border of Issachar, from the east side unto the west side, Zebulun one,
+**²⁶** and by the border of Issachar, from the east side unto the west side, Zebulun one,
 
-<sup>27</sup> and by the border of Zebulun, from the east side unto the west side, Gad one,
+**²⁷** and by the border of Zebulun, from the east side unto the west side, Gad one,
 
-<sup>28</sup> and by the border of Gad, at the south side southward, the border hath been from Tamar [to] the waters of Meriboth-Kadesh, the stream by the great sea.
+**²⁸** and by the border of Gad, at the south side southward, the border hath been from Tamar [to] the waters of Meriboth-Kadesh, the stream by the great sea.
 
-<sup>29</sup> This [is] the land that ye separate by inheritance to the tribes of Israel, and these [are] their portions — an affirmation of the Lord Jehovah.
+**²⁹** This [is] the land that ye separate by inheritance to the tribes of Israel, and these [are] their portions — an affirmation of the Lord Jehovah.
 
-<sup>30</sup> 'And these [are] the outgoings of the city on the north side, five hundred, and four thousand measures.
+**³⁰** 'And these [are] the outgoings of the city on the north side, five hundred, and four thousand measures.
 
-<sup>31</sup> And the gates of the city [are] according to the names of the tribes of Israel; three gates northward: the gate of Reuben one, the gate of Judah one, the gate of Levi one.
+**³¹** And the gates of the city [are] according to the names of the tribes of Israel; three gates northward: the gate of Reuben one, the gate of Judah one, the gate of Levi one.
 
-<sup>32</sup> And on the east side five hundred, and four thousand, and three gates: the gate of Joseph one, the gate of Benjamin one, the gate of Dan one.
+**³²** And on the east side five hundred, and four thousand, and three gates: the gate of Joseph one, the gate of Benjamin one, the gate of Dan one.
 
-<sup>33</sup> And the south side five hundred, and four thousand measures, and three gates: the gate of Simeon one, the gate of Issachar one, the gate of Zebulun one.
+**³³** And the south side five hundred, and four thousand measures, and three gates: the gate of Simeon one, the gate of Issachar one, the gate of Zebulun one.
 
-<sup>34</sup> The west side five hundred, and four thousand, their gates three: the gate of Gad one, the gate of Asher one, the gate of Naphtali one.
+**³⁴** The west side five hundred, and four thousand, their gates three: the gate of Gad one, the gate of Asher one, the gate of Naphtali one.
 
-<sup>35</sup> Round about [is] eighteen thousand, and the renown of the city [is] from the day Jehovah [is] there.'
+**³⁵** Round about [is] eighteen thousand, and the renown of the city [is] from the day Jehovah [is] there.'

@@ -1,67 +1,67 @@
 # Chapter 14
 
-<sup>1</sup> And Joab son of Zeruial knoweth that the heart of the king [is] on Absalom,
+**¹** And Joab son of Zeruial knoweth that the heart of the king [is] on Absalom,
 
-<sup>2</sup> and Joab sendeth to Tekoah, and taketh thence a wise woman, and saith unto her, 'Feign thyself a mourner, I pray thee, and put on, I pray thee, garments of mourning, and anoint not thyself with oil, and thou hast been as a woman these many days mourning for the dead,
+**²** and Joab sendeth to Tekoah, and taketh thence a wise woman, and saith unto her, 'Feign thyself a mourner, I pray thee, and put on, I pray thee, garments of mourning, and anoint not thyself with oil, and thou hast been as a woman these many days mourning for the dead,
 
-<sup>3</sup> and thou hast gone unto the king, and spoken unto him, according to this word;' and Joab putteth the words into her mouth.
+**³** and thou hast gone unto the king, and spoken unto him, according to this word;' and Joab putteth the words into her mouth.
 
-<sup>4</sup> And the woman of Tekoah speaketh unto the king, and falleth on her face to the earth, and doth obeisance, and saith, 'Save, O king.'
+**⁴** And the woman of Tekoah speaketh unto the king, and falleth on her face to the earth, and doth obeisance, and saith, 'Save, O king.'
 
-<sup>5</sup> And the king saith to her, 'What — to thee?' and she saith, 'Truly a widow woman [am] I, and my husband dieth,
+**⁵** And the king saith to her, 'What — to thee?' and she saith, 'Truly a widow woman [am] I, and my husband dieth,
 
-<sup>6</sup> and thy maid-servant hath two sons; and they strive both of them in a field, and there is no deliverer between them, and the one smiteth the other, and putteth him to death;
+**⁶** and thy maid-servant hath two sons; and they strive both of them in a field, and there is no deliverer between them, and the one smiteth the other, and putteth him to death;
 
-<sup>7</sup> and lo, the whole family hath risen against thy maid-servant, and say, Give up him who smiteth his brother, and we put him to death for the life of his brother whom he hath slain, and we destroy also the heir; and they have quenched my coal which is left — so as not to set to my husband a name and remnant on the face of the ground.'
+**⁷** and lo, the whole family hath risen against thy maid-servant, and say, Give up him who smiteth his brother, and we put him to death for the life of his brother whom he hath slain, and we destroy also the heir; and they have quenched my coal which is left — so as not to set to my husband a name and remnant on the face of the ground.'
 
-<sup>8</sup> And the king saith unto the woman, 'Go to thine house, and I give charge concerning thee.'
+**⁸** And the king saith unto the woman, 'Go to thine house, and I give charge concerning thee.'
 
-<sup>9</sup> And the woman of Tekoah saith unto the king, 'On me, my lord, O king, [is] the iniquity, and on the house of my father; and the king and his throne [are] innocent.'
+**⁹** And the woman of Tekoah saith unto the king, 'On me, my lord, O king, [is] the iniquity, and on the house of my father; and the king and his throne [are] innocent.'
 
-<sup>10</sup> And the king saith, 'He who speaketh [aught] unto thee, and thou hast brought him unto me, then he doth not add any more to come against thee.'
+**¹⁰** And the king saith, 'He who speaketh [aught] unto thee, and thou hast brought him unto me, then he doth not add any more to come against thee.'
 
-<sup>11</sup> And she saith, 'Let, I pray thee, the king remember by Jehovah thy God, that the redeemer of blood add not to destroy, and they destroy not my son;' and he saith, 'Jehovah liveth; if there doth fall of the hair of thy son to the earth.'
+**¹¹** And she saith, 'Let, I pray thee, the king remember by Jehovah thy God, that the redeemer of blood add not to destroy, and they destroy not my son;' and he saith, 'Jehovah liveth; if there doth fall of the hair of thy son to the earth.'
 
-<sup>12</sup> And the woman saith, 'Let, I pray thee, thy maid-servant speak unto my lord the king a word;' and he saith, 'Speak.'
+**¹²** And the woman saith, 'Let, I pray thee, thy maid-servant speak unto my lord the king a word;' and he saith, 'Speak.'
 
-<sup>13</sup> And the woman saith, 'And why hast thou thought thus concerning the people of God? yea, the king is speaking this thing as a guilty one, in that the king hath not brought back his outcast;
+**¹³** And the woman saith, 'And why hast thou thought thus concerning the people of God? yea, the king is speaking this thing as a guilty one, in that the king hath not brought back his outcast;
 
-<sup>14</sup> for we do surely die, and [are] as water which is running down to the earth, which is not gathered, and God doth not accept a person, and hath devised devices in that the outcast is not outcast by Him.
+**¹⁴** for we do surely die, and [are] as water which is running down to the earth, which is not gathered, and God doth not accept a person, and hath devised devices in that the outcast is not outcast by Him.
 
-<sup>15</sup> 'And now that I have come to speak unto the king my lord this word, [it is] because the people made me afraid, and thy maid-servant saith, Let me speak, I pray thee, unto the king; it may be the king doth do the word of his handmaid,
+**¹⁵** 'And now that I have come to speak unto the king my lord this word, [it is] because the people made me afraid, and thy maid-servant saith, Let me speak, I pray thee, unto the king; it may be the king doth do the word of his handmaid,
 
-<sup>16</sup> for the king doth hearken to deliver his handmaid out of the paw of the man [seeking] to destroy me and my son together out of the inheritance of God,
+**¹⁶** for the king doth hearken to deliver his handmaid out of the paw of the man [seeking] to destroy me and my son together out of the inheritance of God,
 
-<sup>17</sup> and thy maid-servant saith, Let, I pray thee, the word of my lord the king be for ease; for as a messenger of God so [is] my lord the king, to understand the good and the evil; and Jehovah thy God is with thee.'
+**¹⁷** and thy maid-servant saith, Let, I pray thee, the word of my lord the king be for ease; for as a messenger of God so [is] my lord the king, to understand the good and the evil; and Jehovah thy God is with thee.'
 
-<sup>18</sup> And the king answereth and saith unto the woman, 'Do not, I pray thee, hide from me the thing that I am asking thee;' and the woman saith, 'Let, I pray thee, my lord the king speak.'
+**¹⁸** And the king answereth and saith unto the woman, 'Do not, I pray thee, hide from me the thing that I am asking thee;' and the woman saith, 'Let, I pray thee, my lord the king speak.'
 
-<sup>19</sup> And the king saith, 'Is the hand of Joab with thee in all this?' And the woman answereth and saith, 'Thy soul liveth, my lord, O king, none [doth turn] to the right or to the left from all that my lord the king hath spoken; for thy servant Joab he commanded me, and he put in the mouth of thy maid-servant all these words;
+**¹⁹** And the king saith, 'Is the hand of Joab with thee in all this?' And the woman answereth and saith, 'Thy soul liveth, my lord, O king, none [doth turn] to the right or to the left from all that my lord the king hath spoken; for thy servant Joab he commanded me, and he put in the mouth of thy maid-servant all these words;
 
-<sup>20</sup> in order to bring round the appearance of the thing hath thy servant Joab done this thing, and my lord [is] wise, according to the wisdom of a messenger of God, to know all that [is] in the land.'
+**²⁰** in order to bring round the appearance of the thing hath thy servant Joab done this thing, and my lord [is] wise, according to the wisdom of a messenger of God, to know all that [is] in the land.'
 
-<sup>21</sup> And the king saith unto Joab, 'Lo, I pray thee, thou hast done this thing; and go, bring back the young man Absalom.'
+**²¹** And the king saith unto Joab, 'Lo, I pray thee, thou hast done this thing; and go, bring back the young man Absalom.'
 
-<sup>22</sup> And Joab falleth on his face to the earth, and doth obeisance, and blesseth the king, and Joab saith, 'To-day hath thy servant known that I have found grace in thine eyes, my lord, O king, in that the king hath done the word of his servant.'
+**²²** And Joab falleth on his face to the earth, and doth obeisance, and blesseth the king, and Joab saith, 'To-day hath thy servant known that I have found grace in thine eyes, my lord, O king, in that the king hath done the word of his servant.'
 
-<sup>23</sup> And Joab riseth and goeth to Geshur, and bringeth in Absalom to Jerusalem,
+**²³** And Joab riseth and goeth to Geshur, and bringeth in Absalom to Jerusalem,
 
-<sup>24</sup> and the king saith, 'Let him turn round unto his house, and my face he doth not see.' And Absalom turneth round unto his house, and the face of the king he hath not seen.
+**²⁴** and the king saith, 'Let him turn round unto his house, and my face he doth not see.' And Absalom turneth round unto his house, and the face of the king he hath not seen.
 
-<sup>25</sup> And like Absalom there was no man [so] fair in all Israel, to praise greatly; from the sole of his foot even unto his crown there was no blemish in him;
+**²⁵** And like Absalom there was no man [so] fair in all Israel, to praise greatly; from the sole of his foot even unto his crown there was no blemish in him;
 
-<sup>26</sup> and in his polling his head — and it hath been at the end of year by year that he polleth [it], for it [is] heavy on him, and he hath polled it — he hath even weighed out the hair of his head — two hundred shekels by the king's weight.
+**²⁶** and in his polling his head — and it hath been at the end of year by year that he polleth [it], for it [is] heavy on him, and he hath polled it — he hath even weighed out the hair of his head — two hundred shekels by the king's weight.
 
-<sup>27</sup> And there are born to Absalom three sons, and one daughter, and her name [is] Tamar; she was a woman of a fair appearance.
+**²⁷** And there are born to Absalom three sons, and one daughter, and her name [is] Tamar; she was a woman of a fair appearance.
 
-<sup>28</sup> And Absalom dwelleth in Jerusalem two years of days, and the face of the king he hath not seen;
+**²⁸** And Absalom dwelleth in Jerusalem two years of days, and the face of the king he hath not seen;
 
-<sup>29</sup> and Absalom sendeth unto Joab, to send him unto the king, and he hath not been willing to come unto him; and he sendeth again a second time, and he hath not been willing to come.
+**²⁹** and Absalom sendeth unto Joab, to send him unto the king, and he hath not been willing to come unto him; and he sendeth again a second time, and he hath not been willing to come.
 
-<sup>30</sup> And he saith unto his servants, 'See, the portion of Joab [is] by the side of mine, and he hath barley there; go, and burn it with fire;' and the servants of Absalom burn the portion with fire.
+**³⁰** And he saith unto his servants, 'See, the portion of Joab [is] by the side of mine, and he hath barley there; go, and burn it with fire;' and the servants of Absalom burn the portion with fire.
 
-<sup>31</sup> And Joab riseth and cometh unto Absalom in the house, and saith unto him, 'Why have thy servants burned the portion that I have with fire?'
+**³¹** And Joab riseth and cometh unto Absalom in the house, and saith unto him, 'Why have thy servants burned the portion that I have with fire?'
 
-<sup>32</sup> And Absalom saith unto Joab, 'Lo, I sent unto thee, saying, Come hither, and I send thee unto the king to say, Why have I come in from Geshur? — good for me while I [am] there — and now, let me see the king's face, and if there is in me iniquity then thou hast put me to death.'
+**³²** And Absalom saith unto Joab, 'Lo, I sent unto thee, saying, Come hither, and I send thee unto the king to say, Why have I come in from Geshur? — good for me while I [am] there — and now, let me see the king's face, and if there is in me iniquity then thou hast put me to death.'
 
-<sup>33</sup> And Joab cometh unto the king, and declareth [it] to him, and he calleth unto Absalom, and he cometh unto the king, and boweth himself to him, on his face, to the earth, before the king, and the king giveth a kiss to Absalom.
+**³³** And Joab cometh unto the king, and declareth [it] to him, and he calleth unto Absalom, and he cometh unto the king, and boweth himself to him, on his face, to the earth, before the king, and the king giveth a kiss to Absalom.

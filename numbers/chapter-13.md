@@ -1,67 +1,67 @@
 # Chapter 13
 
-<sup>1</sup> And Jehovah speaketh unto Moses, saying,
+**¹** And Jehovah speaketh unto Moses, saying,
 
-<sup>2</sup> 'Send for thee men, and they spy the land of Canaan, which I am giving to the sons of Israel; one man, one man for the tribe of his fathers ye do send, every one a prince among them.'
+**²** 'Send for thee men, and they spy the land of Canaan, which I am giving to the sons of Israel; one man, one man for the tribe of his fathers ye do send, every one a prince among them.'
 
-<sup>3</sup> And Moses sendeth them from the wilderness of Paran by the command of Jehovah; all of them [are] men, heads of the sons of Israel they are,
+**³** And Moses sendeth them from the wilderness of Paran by the command of Jehovah; all of them [are] men, heads of the sons of Israel they are,
 
-<sup>4</sup> and these their names: For the tribe of Reuben, Shammua son of Zaccur.
+**⁴** and these their names: For the tribe of Reuben, Shammua son of Zaccur.
 
-<sup>5</sup> For the tribe of Simeon, Shaphat son of Hori.
+**⁵** For the tribe of Simeon, Shaphat son of Hori.
 
-<sup>6</sup> For the tribe of Judah, Caleb son of Jephunneh.
+**⁶** For the tribe of Judah, Caleb son of Jephunneh.
 
-<sup>7</sup> For the tribe of Issachar, Igal son of Joseph.
+**⁷** For the tribe of Issachar, Igal son of Joseph.
 
-<sup>8</sup> For the tribe of Ephraim, Oshea, son of Nun.
+**⁸** For the tribe of Ephraim, Oshea, son of Nun.
 
-<sup>9</sup> For the tribe of Benjamin, Palti son of Raphu.
+**⁹** For the tribe of Benjamin, Palti son of Raphu.
 
-<sup>10</sup> For the tribe of Zebulun, Gaddiel son of Sodi.
+**¹⁰** For the tribe of Zebulun, Gaddiel son of Sodi.
 
-<sup>11</sup> For the tribe of Joseph, (for the tribe of Manasseh,) Gaddi son of Susi.
+**¹¹** For the tribe of Joseph, (for the tribe of Manasseh,) Gaddi son of Susi.
 
-<sup>12</sup> For the tribe of Dan, Ammiel son of Gemalli.
+**¹²** For the tribe of Dan, Ammiel son of Gemalli.
 
-<sup>13</sup> For the tribe of Asher, Sethur son of Michael.
+**¹³** For the tribe of Asher, Sethur son of Michael.
 
-<sup>14</sup> For the tribe of Naphtali, Nahbi son of Vopshi.
+**¹⁴** For the tribe of Naphtali, Nahbi son of Vopshi.
 
-<sup>15</sup> For the tribe of Gad, Geuel son of Machi.
+**¹⁵** For the tribe of Gad, Geuel son of Machi.
 
-<sup>16</sup> These [are] the names of the men whom Moses hath sent to spy the land; and Moses calleth Hoshea son of Nun, Jehoshua.
+**¹⁶** These [are] the names of the men whom Moses hath sent to spy the land; and Moses calleth Hoshea son of Nun, Jehoshua.
 
-<sup>17</sup> And Moses sendeth them to spy the land of Canaan, and saith unto them, 'Go ye up this [way] into the south, and ye have gone up the mountain,
+**¹⁷** And Moses sendeth them to spy the land of Canaan, and saith unto them, 'Go ye up this [way] into the south, and ye have gone up the mountain,
 
-<sup>18</sup> and have seen the land what it [is], and the people which is dwelling on it, whether it [is] strong or feeble; whether it [is] few or many;
+**¹⁸** and have seen the land what it [is], and the people which is dwelling on it, whether it [is] strong or feeble; whether it [is] few or many;
 
-<sup>19</sup> and what the land [is] in which it is dwelling, whether it [is] good or bad; and what [are] the cities in which it is dwelling, whether in camps or in fortresses;
+**¹⁹** and what the land [is] in which it is dwelling, whether it [is] good or bad; and what [are] the cities in which it is dwelling, whether in camps or in fortresses;
 
-<sup>20</sup> And what the land [is], whether it [is] fat or lean; whether there is wood in it or not; and ye have strengthened yourselves, and have taken of the fruit of the land;' and the days [are] days of the first-fruits of grapes.
+**²⁰** And what the land [is], whether it [is] fat or lean; whether there is wood in it or not; and ye have strengthened yourselves, and have taken of the fruit of the land;' and the days [are] days of the first-fruits of grapes.
 
-<sup>21</sup> And they go up and spy the land, from the wilderness of Zin unto Rehob at the going in to Hamath;
+**²¹** And they go up and spy the land, from the wilderness of Zin unto Rehob at the going in to Hamath;
 
-<sup>22</sup> and they go up by the south, and come in unto Hebron, and there [are] Ahiman, Sheshai, and Talmai, children of Anak (and Hebron was built seven years before Zoan in Egypt),
+**²²** and they go up by the south, and come in unto Hebron, and there [are] Ahiman, Sheshai, and Talmai, children of Anak (and Hebron was built seven years before Zoan in Egypt),
 
-<sup>23</sup> and they come in unto the brook of Eshcol, and cut down thence a branch and one cluster of grapes, and they bear it on a staff by two, also [some] of the pomegranates, and of the figs.
+**²³** and they come in unto the brook of Eshcol, and cut down thence a branch and one cluster of grapes, and they bear it on a staff by two, also [some] of the pomegranates, and of the figs.
 
-<sup>24</sup> That place hath [one] called Brook of Eshcol, because of the cluster which the sons of Israel cut from thence.
+**²⁴** That place hath [one] called Brook of Eshcol, because of the cluster which the sons of Israel cut from thence.
 
-<sup>25</sup> And they turn back from spying the land at the end of forty days.
+**²⁵** And they turn back from spying the land at the end of forty days.
 
-<sup>26</sup> And they go and come in unto Moses, and unto Aaron, and unto all the company of the sons of Israel, unto the wilderness of Paran, to Kadesh; and they bring them and all the company back word, and shew them the fruit of the land.
+**²⁶** And they go and come in unto Moses, and unto Aaron, and unto all the company of the sons of Israel, unto the wilderness of Paran, to Kadesh; and they bring them and all the company back word, and shew them the fruit of the land.
 
-<sup>27</sup> And they recount to him, and say, 'We came in unto the land whither thou hast sent us, and also it [is] flowing with milk and honey — and this [is] its fruit;
+**²⁷** And they recount to him, and say, 'We came in unto the land whither thou hast sent us, and also it [is] flowing with milk and honey — and this [is] its fruit;
 
-<sup>28</sup> only, surely the people which is dwelling in the land [is] strong; and the cities are fenced, very great; and also children of Anak we have seen there.
+**²⁸** only, surely the people which is dwelling in the land [is] strong; and the cities are fenced, very great; and also children of Anak we have seen there.
 
-<sup>29</sup> Amalek is dwelling in the land of the south, and the Hittite, and the Jebusite, and the Amorite is dwelling in the hill country, and the Canaanite is dwelling by the sea, and by the side of the Jordan.'
+**²⁹** Amalek is dwelling in the land of the south, and the Hittite, and the Jebusite, and the Amorite is dwelling in the hill country, and the Canaanite is dwelling by the sea, and by the side of the Jordan.'
 
-<sup>30</sup> And Caleb stilleth the people concerning Moses, and saith, 'Let us certainly go up — and we have possessed it; for we are thoroughly able for it.'
+**³⁰** And Caleb stilleth the people concerning Moses, and saith, 'Let us certainly go up — and we have possessed it; for we are thoroughly able for it.'
 
-<sup>31</sup> And the men who have gone up with him said, 'We are not able to go up against the people, for it [is] stronger than we;'
+**³¹** And the men who have gone up with him said, 'We are not able to go up against the people, for it [is] stronger than we;'
 
-<sup>32</sup> and they bring out an evil account of the land which they have spied unto the sons of Israel, saying, 'The land into which we passed over to spy it, is a land eating up its inhabitants; and all the people whom we saw in its midst [are] men of stature;
+**³²** and they bring out an evil account of the land which they have spied unto the sons of Israel, saying, 'The land into which we passed over to spy it, is a land eating up its inhabitants; and all the people whom we saw in its midst [are] men of stature;
 
-<sup>33</sup> and there we saw the Nephilim, sons of Anak, of the Nephilim; and we are in our own eyes as grasshoppers; and so we were in their eyes.'
+**³³** and there we saw the Nephilim, sons of Anak, of the Nephilim; and we are in our own eyes as grasshoppers; and so we were in their eyes.'

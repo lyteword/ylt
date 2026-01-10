@@ -1,61 +1,61 @@
 # Chapter 18
 
-<sup>1</sup> And it cometh to pass, when he finisheth to speak unto Saul, that the soul of Jonathan hath been bound to the soul of David, and Jonathan loveth him as his own soul.
+**¹** And it cometh to pass, when he finisheth to speak unto Saul, that the soul of Jonathan hath been bound to the soul of David, and Jonathan loveth him as his own soul.
 
-<sup>2</sup> And Saul taketh him on that day, and hath not permitted him to turn back to the house of his father.
+**²** And Saul taketh him on that day, and hath not permitted him to turn back to the house of his father.
 
-<sup>3</sup> And Jonathan maketh — also David — a covenant, because he loveth him as his own soul,
+**³** And Jonathan maketh — also David — a covenant, because he loveth him as his own soul,
 
-<sup>4</sup> and Jonathan strippeth himself of the upper robe which [is] upon him, and giveth it to David, and his long robe, even unto his sword, and unto his bow, and unto his girdle.
+**⁴** and Jonathan strippeth himself of the upper robe which [is] upon him, and giveth it to David, and his long robe, even unto his sword, and unto his bow, and unto his girdle.
 
-<sup>5</sup> And David goeth out whithersoever Saul doth send him; he acted wisely, and Saul setteth him over the men of war, and it is good in the eyes of all the people, and also in the eyes of the servants of Saul.
+**⁵** And David goeth out whithersoever Saul doth send him; he acted wisely, and Saul setteth him over the men of war, and it is good in the eyes of all the people, and also in the eyes of the servants of Saul.
 
-<sup>6</sup> And it cometh to pass, in their coming in, in David's returning from smiting the Philistine, that the women come out from all the cities of Israel to sing — also the dancers — to meet Saul the king, with tabrets, with joy, and with three-stringed instruments;
+**⁶** And it cometh to pass, in their coming in, in David's returning from smiting the Philistine, that the women come out from all the cities of Israel to sing — also the dancers — to meet Saul the king, with tabrets, with joy, and with three-stringed instruments;
 
-<sup>7</sup> and the women answer — those playing, and say, 'Saul hath smitten among his thousands, And David among his myriads.'
+**⁷** and the women answer — those playing, and say, 'Saul hath smitten among his thousands, And David among his myriads.'
 
-<sup>8</sup> And it is displeasing to Saul exceedingly, and this thing is evil in his eyes, and he saith, 'They have given to David myriads, and to me they have given the thousands, and more to him [is] only the kingdom;'
+**⁸** And it is displeasing to Saul exceedingly, and this thing is evil in his eyes, and he saith, 'They have given to David myriads, and to me they have given the thousands, and more to him [is] only the kingdom;'
 
-<sup>9</sup> and Saul is eyeing David from that day and thenceforth.
+**⁹** and Saul is eyeing David from that day and thenceforth.
 
-<sup>10</sup> And it cometh to pass, on the morrow, that the spirit of sadness [from] God prospereth over Saul, and he prophesieth in the midst of the house, and David is playing with his hand, as day by day, and the javelin [is] in the hand of Saul,
+**¹⁰** And it cometh to pass, on the morrow, that the spirit of sadness [from] God prospereth over Saul, and he prophesieth in the midst of the house, and David is playing with his hand, as day by day, and the javelin [is] in the hand of Saul,
 
-<sup>11</sup> and Saul casteth the javelin, and saith, 'I smite through David, even through the wall;' and David turneth round out of his presence twice.
+**¹¹** and Saul casteth the javelin, and saith, 'I smite through David, even through the wall;' and David turneth round out of his presence twice.
 
-<sup>12</sup> And Saul is afraid of the presence of David, for Jehovah hath been with him, and from Saul He hath turned aside;
+**¹²** And Saul is afraid of the presence of David, for Jehovah hath been with him, and from Saul He hath turned aside;
 
-<sup>13</sup> and Saul turneth him aside from him, and appointeth him to himself head of a thousand, and he goeth out an cometh in, before the people.
+**¹³** and Saul turneth him aside from him, and appointeth him to himself head of a thousand, and he goeth out an cometh in, before the people.
 
-<sup>14</sup> And David is in all his ways acting wisely, and Jehovah [is] with him,
+**¹⁴** And David is in all his ways acting wisely, and Jehovah [is] with him,
 
-<sup>15</sup> and Saul seeth that he is acting very wisely, and is afraid of him,
+**¹⁵** and Saul seeth that he is acting very wisely, and is afraid of him,
 
-<sup>16</sup> and all Israel and Judah love David when he is going out and coming in before them.
+**¹⁶** and all Israel and Judah love David when he is going out and coming in before them.
 
-<sup>17</sup> And Saul saith unto David, 'Lo, my elder daughter Merab — her I give to thee for a wife; only, be to me for a son of valour, and fight the battles of Jehovah;' and Saul said, 'Let not my hand be on him, but let the hand of the Philistines be upon him.'
+**¹⁷** And Saul saith unto David, 'Lo, my elder daughter Merab — her I give to thee for a wife; only, be to me for a son of valour, and fight the battles of Jehovah;' and Saul said, 'Let not my hand be on him, but let the hand of the Philistines be upon him.'
 
-<sup>18</sup> And David saith unto Saul, 'Who [am] I? and what my life — the family of my father in Israel — that I am son-in-law to the king?'
+**¹⁸** And David saith unto Saul, 'Who [am] I? and what my life — the family of my father in Israel — that I am son-in-law to the king?'
 
-<sup>19</sup> And it cometh to pass, at the time of the giving of Merab daughter of Saul to David, that she hath been given to Adriel the Meholathite for a wife.
+**¹⁹** And it cometh to pass, at the time of the giving of Merab daughter of Saul to David, that she hath been given to Adriel the Meholathite for a wife.
 
-<sup>20</sup> And Michal daughter of Saul loveth David, and they declare to Saul, and the thing is right in his eyes,
+**²⁰** And Michal daughter of Saul loveth David, and they declare to Saul, and the thing is right in his eyes,
 
-<sup>21</sup> and Saul saith, 'I give her to him, and she is to him for a snare, and the hand of the Philistines is on him;' and Saul saith unto David, 'By the second — thou dost become my son-in-law to-day.'
+**²¹** and Saul saith, 'I give her to him, and she is to him for a snare, and the hand of the Philistines is on him;' and Saul saith unto David, 'By the second — thou dost become my son-in-law to-day.'
 
-<sup>22</sup> And Saul commandeth his servants, 'Speak unto David gently, saying, Lo, the king hath delighted in thee, and all his servants have loved thee, and now, be son-in-law to the king.'
+**²²** And Saul commandeth his servants, 'Speak unto David gently, saying, Lo, the king hath delighted in thee, and all his servants have loved thee, and now, be son-in-law to the king.'
 
-<sup>23</sup> And the servants of Saul speak in the ears of David these words, and David saith, 'Is it a light thing in your eyes to be son-in-law to the king — and I a poor man, and lightly esteemed?'
+**²³** And the servants of Saul speak in the ears of David these words, and David saith, 'Is it a light thing in your eyes to be son-in-law to the king — and I a poor man, and lightly esteemed?'
 
-<sup>24</sup> And the servants of Saul declare to him, saying, 'According to these words hath David spoken.'
+**²⁴** And the servants of Saul declare to him, saying, 'According to these words hath David spoken.'
 
-<sup>25</sup> And Saul saith, 'Thus do ye say to David, There is no delight to the king in dowry, but in a hundred foreskins of the Philistines — to be avenged on the enemies of the king;' and Saul thought to cause David to fall by the hand of the Philistines.
+**²⁵** And Saul saith, 'Thus do ye say to David, There is no delight to the king in dowry, but in a hundred foreskins of the Philistines — to be avenged on the enemies of the king;' and Saul thought to cause David to fall by the hand of the Philistines.
 
-<sup>26</sup> And his servants declare to David these words, and the thing is right in the eyes of David, to be son-in-law to the king; and the days have not been full,
+**²⁶** And his servants declare to David these words, and the thing is right in the eyes of David, to be son-in-law to the king; and the days have not been full,
 
-<sup>27</sup> and David riseth and goeth, he and his men, and smiteth among the Philistines two hundred men, and David bringeth in their foreskins, and they set them before the king, to be son-in-law to the king; and Saul giveth to him Michal his daughter for a wife.
+**²⁷** and David riseth and goeth, he and his men, and smiteth among the Philistines two hundred men, and David bringeth in their foreskins, and they set them before the king, to be son-in-law to the king; and Saul giveth to him Michal his daughter for a wife.
 
-<sup>28</sup> And Saul seeth and knoweth that Jehovah [is] with David, and Michal daughter of Saul hath loved him,
+**²⁸** And Saul seeth and knoweth that Jehovah [is] with David, and Michal daughter of Saul hath loved him,
 
-<sup>29</sup> and Saul addeth to be afraid of the presence of David yet; and Saul is an enemy with David all the days.
+**²⁹** and Saul addeth to be afraid of the presence of David yet; and Saul is an enemy with David all the days.
 
-<sup>30</sup> And the princes of the Philistines come out, and it cometh to pass from the time of their coming out, David hath acted more wisely than any of the servants of Saul, and his name is very precious.
+**³⁰** And the princes of the Philistines come out, and it cometh to pass from the time of their coming out, David hath acted more wisely than any of the servants of Saul, and his name is very precious.

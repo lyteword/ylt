@@ -1,23 +1,23 @@
 # Chapter 19
 
-<sup>1</sup> And Jehoshaphat king of Judah turneth back unto his house in peace to Jerusalem,
+**¹** And Jehoshaphat king of Judah turneth back unto his house in peace to Jerusalem,
 
-<sup>2</sup> and go out unto his presence doth Jehu son of Hanani, the seer, and saith unto king Jehoshaphat, 'To give help to the wicked, and to those hating Jehovah, dost thou love? and for this against thee [is] wrath from before Jehovah,
+**²** and go out unto his presence doth Jehu son of Hanani, the seer, and saith unto king Jehoshaphat, 'To give help to the wicked, and to those hating Jehovah, dost thou love? and for this against thee [is] wrath from before Jehovah,
 
-<sup>3</sup> but good things have been found with thee, for thou hast put away the shrines out of the land, and hast prepared thy heart to seek God.'
+**³** but good things have been found with thee, for thou hast put away the shrines out of the land, and hast prepared thy heart to seek God.'
 
-<sup>4</sup> And Jehoshaphat dwelleth in Jerusalem, and he turneth back and goeth out among the people from Beer-Sheba unto the hill-country of Ephraim, and bringeth them back unto Jehovah, God of their fathers.
+**⁴** And Jehoshaphat dwelleth in Jerusalem, and he turneth back and goeth out among the people from Beer-Sheba unto the hill-country of Ephraim, and bringeth them back unto Jehovah, God of their fathers.
 
-<sup>5</sup> And he establisheth judges in the land, in all the fenced cities of Judah, for every city,
+**⁵** And he establisheth judges in the land, in all the fenced cities of Judah, for every city,
 
-<sup>6</sup> and saith unto the judges, 'See what ye are doing — for not for man do ye judge, but for Jehovah, who [is] with you in the matter of judgment;
+**⁶** and saith unto the judges, 'See what ye are doing — for not for man do ye judge, but for Jehovah, who [is] with you in the matter of judgment;
 
-<sup>7</sup> and now, let fear of Jehovah be upon you, observe and do, for there is not with Jehovah our God perverseness, and acceptance of faces, and taking of a bribe.'
+**⁷** and now, let fear of Jehovah be upon you, observe and do, for there is not with Jehovah our God perverseness, and acceptance of faces, and taking of a bribe.'
 
-<sup>8</sup> And also in Jerusalem hath Jehoshaphat appointed of the Levites, and of the priests, and of the heads of the fathers of Israel, for the judgment of Jehovah, and for strife; and they turn back to Jerusalem,
+**⁸** And also in Jerusalem hath Jehoshaphat appointed of the Levites, and of the priests, and of the heads of the fathers of Israel, for the judgment of Jehovah, and for strife; and they turn back to Jerusalem,
 
-<sup>9</sup> and he layeth a charge upon them, saying, 'Thus do ye do in the fear of Jehovah, in faithfulness, and with a perfect heart,
+**⁹** and he layeth a charge upon them, saying, 'Thus do ye do in the fear of Jehovah, in faithfulness, and with a perfect heart,
 
-<sup>10</sup> and any strife that cometh in unto you of your brethren who are dwelling in their cities, between blood and blood, between law and command, statutes, and judgments, then ye have warned them and they become not guilty before Jehovah, and wrath hath not been on you and on your brethren; thus do ye do, and ye are not guilty.
+**¹⁰** and any strife that cometh in unto you of your brethren who are dwelling in their cities, between blood and blood, between law and command, statutes, and judgments, then ye have warned them and they become not guilty before Jehovah, and wrath hath not been on you and on your brethren; thus do ye do, and ye are not guilty.
 
-<sup>11</sup> 'And, lo, Amariah the head priest [is] over you for every matter of Jehovah, and Zebadiah son of Ishmael, the leader of the house of Judah, [is] for every matter of the king, and officers the Levites [are] before you; be strong and do, and Jehovah is with the good.'
+**¹¹** 'And, lo, Amariah the head priest [is] over you for every matter of Jehovah, and Zebadiah son of Ishmael, the leader of the house of Judah, [is] for every matter of the king, and officers the Levites [are] before you; be strong and do, and Jehovah is with the good.'

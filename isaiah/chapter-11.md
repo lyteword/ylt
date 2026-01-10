@@ -1,33 +1,33 @@
 # Chapter 11
 
-<sup>1</sup> And a rod hath come out from the stock of Jesse, And a branch from his roots is fruitful.
+**¹** And a rod hath come out from the stock of Jesse, And a branch from his roots is fruitful.
 
-<sup>2</sup> Rested on him hath the Spirit of Jehovah, The spirit of wisdom and understanding, The spirit of counsel and might, The spirit of knowledge and fear of Jehovah.
+**²** Rested on him hath the Spirit of Jehovah, The spirit of wisdom and understanding, The spirit of counsel and might, The spirit of knowledge and fear of Jehovah.
 
-<sup>3</sup> To refresh him in the fear of Jehovah, And by the sight of his eyes he judgeth not, Nor by the hearing of his ears decideth.
+**³** To refresh him in the fear of Jehovah, And by the sight of his eyes he judgeth not, Nor by the hearing of his ears decideth.
 
-<sup>4</sup> And he hath judged in righteousness the poor, And decided in uprightness for the humble of earth, And hath smitten earth with the rod of his mouth, And with the breath of his lips he putteth the wicked to death.
+**⁴** And he hath judged in righteousness the poor, And decided in uprightness for the humble of earth, And hath smitten earth with the rod of his mouth, And with the breath of his lips he putteth the wicked to death.
 
-<sup>5</sup> And righteousness hath been the girdle of his loins, And faithfulness — the girdle of his reins.
+**⁵** And righteousness hath been the girdle of his loins, And faithfulness — the girdle of his reins.
 
-<sup>6</sup> And a wolf hath sojourned with a lamb, And a leopard with a kid doth lie down, And calf, and young lion, and fatling [are] together, And a little youth is leader over them.
+**⁶** And a wolf hath sojourned with a lamb, And a leopard with a kid doth lie down, And calf, and young lion, and fatling [are] together, And a little youth is leader over them.
 
-<sup>7</sup> And cow and bear do feed, Together lie down their young ones, And a lion as an ox eateth straw.
+**⁷** And cow and bear do feed, Together lie down their young ones, And a lion as an ox eateth straw.
 
-<sup>8</sup> And played hath a suckling by the hole of an asp, And on the den of a cockatrice Hath the weaned one put his hand.
+**⁸** And played hath a suckling by the hole of an asp, And on the den of a cockatrice Hath the weaned one put his hand.
 
-<sup>9</sup> Evil they do not, nor destroy in all My holy mountain, For full hath been the earth with the knowledge of Jehovah, As the waters are covering the sea.
+**⁹** Evil they do not, nor destroy in all My holy mountain, For full hath been the earth with the knowledge of Jehovah, As the waters are covering the sea.
 
-<sup>10</sup> And there hath been, in that day, A root of Jesse that is standing for an ensign of peoples, Unto him do nations seek, And his rest hath been — honour!
+**¹⁰** And there hath been, in that day, A root of Jesse that is standing for an ensign of peoples, Unto him do nations seek, And his rest hath been — honour!
 
-<sup>11</sup> And it hath come to pass, in that day, The Lord addeth a second time his power, To get the remnant of His people that is left, From Asshur, and from Egypt, And from Pathros, and from Cush, And from Elam, and from Shinar, And from Hamath, and from isles of the sea,
+**¹¹** And it hath come to pass, in that day, The Lord addeth a second time his power, To get the remnant of His people that is left, From Asshur, and from Egypt, And from Pathros, and from Cush, And from Elam, and from Shinar, And from Hamath, and from isles of the sea,
 
-<sup>12</sup> And He hath lifted up an ensign to nations, And gathereth the driven away of Israel, And the scattered of Judah He assembleth, From the four wings of the earth.
+**¹²** And He hath lifted up an ensign to nations, And gathereth the driven away of Israel, And the scattered of Judah He assembleth, From the four wings of the earth.
 
-<sup>13</sup> And turned aside hath the envy of Ephraim, And the adversaries of Judah are cut off, Ephraim doth not envy Judah, And Judah doth not distress Ephraim.
+**¹³** And turned aside hath the envy of Ephraim, And the adversaries of Judah are cut off, Ephraim doth not envy Judah, And Judah doth not distress Ephraim.
 
-<sup>14</sup> And they have flown on the shoulder of the Philistines westward, Together they spoil the sons of the east, Edom and Moab sending forth their hand, And sons of Ammon obeying them.
+**¹⁴** And they have flown on the shoulder of the Philistines westward, Together they spoil the sons of the east, Edom and Moab sending forth their hand, And sons of Ammon obeying them.
 
-<sup>15</sup> And Jehovah hath devoted to destruction The tongue of the sea of Egypt, And hath waved His hand over the river, In the terror of his wind, And hath smitten it at the seven streams, And hath caused [men] to tread [it] with shoes.
+**¹⁵** And Jehovah hath devoted to destruction The tongue of the sea of Egypt, And hath waved His hand over the river, In the terror of his wind, And hath smitten it at the seven streams, And hath caused [men] to tread [it] with shoes.
 
-<sup>16</sup> And there hath been a highway, For the remnant of His people that is left, from Asshur, As there was for Israel in the day of his coming up out of the land of Egypt!
+**¹⁶** And there hath been a highway, For the remnant of His people that is left, from Asshur, As there was for Israel in the day of his coming up out of the land of Egypt!

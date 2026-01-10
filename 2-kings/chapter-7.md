@@ -1,41 +1,41 @@
 # Chapter 7
 
-<sup>1</sup> And Elisha saith, 'Hear ye a word of Jehovah: thus said Jehovah, About this time to-morrow, a measure of fine flour [is] at a shekel, and two measures of barley at a shekel, in the gate of Samaria.'
+**¹** And Elisha saith, 'Hear ye a word of Jehovah: thus said Jehovah, About this time to-morrow, a measure of fine flour [is] at a shekel, and two measures of barley at a shekel, in the gate of Samaria.'
 
-<sup>2</sup> And the captain whom the king hath, by whose hand he hath been supported, answereth the man of God and saith, 'Lo, Jehovah is making windows in the heavens — shall this thing be?' and he saith, 'Lo, thou art seeing it with thine eyes, and thereof thou dost not eat.'
+**²** And the captain whom the king hath, by whose hand he hath been supported, answereth the man of God and saith, 'Lo, Jehovah is making windows in the heavens — shall this thing be?' and he saith, 'Lo, thou art seeing it with thine eyes, and thereof thou dost not eat.'
 
-<sup>3</sup> And four men have been leprous, at the opening of the gate, and they say one unto another, 'What — we are sitting here till we have died;
+**³** And four men have been leprous, at the opening of the gate, and they say one unto another, 'What — we are sitting here till we have died;
 
-<sup>4</sup> if we have said, We go in to the city, then the famine [is] in the city, and we have died there; and if we have sat here, then we have died; and now, come and we fall unto the camp of Aram; if they keep us alive, we live, and if they put us to death — we have died.'
+**⁴** if we have said, We go in to the city, then the famine [is] in the city, and we have died there; and if we have sat here, then we have died; and now, come and we fall unto the camp of Aram; if they keep us alive, we live, and if they put us to death — we have died.'
 
-<sup>5</sup> And they rise in the twilight, to go in unto the camp of Aram, and they come in unto the extremity of the camp of Aram, and lo, there is not a man there,
+**⁵** And they rise in the twilight, to go in unto the camp of Aram, and they come in unto the extremity of the camp of Aram, and lo, there is not a man there,
 
-<sup>6</sup> seeing Jehovah hath caused the camp of Aram to hear a noise of chariot and a noise of horse — a noise of great force, and they say one unto another, 'Lo, the king of Israel hath hired against us the kings of the Hittites, and the kings of Egypt, to come against us.'
+**⁶** seeing Jehovah hath caused the camp of Aram to hear a noise of chariot and a noise of horse — a noise of great force, and they say one unto another, 'Lo, the king of Israel hath hired against us the kings of the Hittites, and the kings of Egypt, to come against us.'
 
-<sup>7</sup> And they rise and flee in the twilight, and forsake their tents, and their horses, and their asses — the camp as it [is] — and flee for their life.
+**⁷** And they rise and flee in the twilight, and forsake their tents, and their horses, and their asses — the camp as it [is] — and flee for their life.
 
-<sup>8</sup> And these lepers come in unto the extremity of the camp, and come in unto one tent, and eat, and drink, and lift up thence silver, and gold, and garments, and go and hide; and they turn back and go in unto another tent, and lift up thence, and go and hide.
+**⁸** And these lepers come in unto the extremity of the camp, and come in unto one tent, and eat, and drink, and lift up thence silver, and gold, and garments, and go and hide; and they turn back and go in unto another tent, and lift up thence, and go and hide.
 
-<sup>9</sup> And they say one unto another, 'We are not doing right this day; a day of tidings it [is], and we are keeping silent; and — we have waited till the light of the morning, then hath punishment found us; and now, come and we go in and declare to the house of the king.'
+**⁹** And they say one unto another, 'We are not doing right this day; a day of tidings it [is], and we are keeping silent; and — we have waited till the light of the morning, then hath punishment found us; and now, come and we go in and declare to the house of the king.'
 
-<sup>10</sup> And they come in, and call unto the gatekeeper of the city, and declare for themselves, saying, 'We have come in unto the camp of Aram, and lo, there is not there a man, or sound of man, but the bound horse, and the bound ass, and tents as they [are].'
+**¹⁰** And they come in, and call unto the gatekeeper of the city, and declare for themselves, saying, 'We have come in unto the camp of Aram, and lo, there is not there a man, or sound of man, but the bound horse, and the bound ass, and tents as they [are].'
 
-<sup>11</sup> and he calleth the gatekeepers, and they declare to the house of the king within.
+**¹¹** and he calleth the gatekeepers, and they declare to the house of the king within.
 
-<sup>12</sup> And the king riseth by night, and saith unto his servants, 'Let me declare, I pray you, to you that which the Aramaeans have done to us; they have known that we are famished, and they are gone out from the camp to be hidden in the field, saying, When they come out from the city, then we catch them alive, and unto the city we enter.'
+**¹²** And the king riseth by night, and saith unto his servants, 'Let me declare, I pray you, to you that which the Aramaeans have done to us; they have known that we are famished, and they are gone out from the camp to be hidden in the field, saying, When they come out from the city, then we catch them alive, and unto the city we enter.'
 
-<sup>13</sup> And one of his servants answereth and saith, 'Then let them take, I pray thee, five of the horses that are left, that have been left in it — lo, they [are] as all the multitude of Israel who have been left in it; lo, they are as all the multitude of Israel who have been consumed — and we send and see.'
+**¹³** And one of his servants answereth and saith, 'Then let them take, I pray thee, five of the horses that are left, that have been left in it — lo, they [are] as all the multitude of Israel who have been left in it; lo, they are as all the multitude of Israel who have been consumed — and we send and see.'
 
-<sup>14</sup> And they take two chariot-horses, and the king sendeth after the camp of Aram, saying, 'Go, and see.'
+**¹⁴** And they take two chariot-horses, and the king sendeth after the camp of Aram, saying, 'Go, and see.'
 
-<sup>15</sup> And they go after them unto the Jordan, and lo, all the way is full of garments and vessels that the Aramaeans have cast away in their haste, and the messengers turn back and declare to the king.
+**¹⁵** And they go after them unto the Jordan, and lo, all the way is full of garments and vessels that the Aramaeans have cast away in their haste, and the messengers turn back and declare to the king.
 
-<sup>16</sup> And the people go out and spoil the camp of Aram, and there is a measure of fine flour at a shekel, and two measures of barley at a shekel, according to the word of Jehovah.
+**¹⁶** And the people go out and spoil the camp of Aram, and there is a measure of fine flour at a shekel, and two measures of barley at a shekel, according to the word of Jehovah.
 
-<sup>17</sup> And the king hath appointed the captain, by whose hand he is supported, over the gate, and the people tread him down in the gate, and he dieth, as the man of God spake, which he spake in the coming down of the king unto him,
+**¹⁷** And the king hath appointed the captain, by whose hand he is supported, over the gate, and the people tread him down in the gate, and he dieth, as the man of God spake, which he spake in the coming down of the king unto him,
 
-<sup>18</sup> yea, it cometh to pass, according to the speaking of the man of God unto the king, saying, 'Two measures of barley at a shekel, and a measure of fine flour at a shekel are, at this time to-morrow, in the gate of Samaria;'
+**¹⁸** yea, it cometh to pass, according to the speaking of the man of God unto the king, saying, 'Two measures of barley at a shekel, and a measure of fine flour at a shekel are, at this time to-morrow, in the gate of Samaria;'
 
-<sup>19</sup> and the captain answereth the man of God, and saith, 'And lo, Jehovah is making windows in the heavens — it is according to this word?' and he saith, 'Lo, thou art seeing with thine eyes, and thereof thou dost not eat;'
+**¹⁹** and the captain answereth the man of God, and saith, 'And lo, Jehovah is making windows in the heavens — it is according to this word?' and he saith, 'Lo, thou art seeing with thine eyes, and thereof thou dost not eat;'
 
-<sup>20</sup> and it cometh to him so, and the people tread him down in the gate, and he dieth.
+**²⁰** and it cometh to him so, and the people tread him down in the gate, and he dieth.

@@ -1,45 +1,45 @@
 # Chapter 6
 
-<sup>1</sup> Then Darius the king made a decree, and they sought in the house of the books of the treasuries placed there in Babylon,
+**¹** Then Darius the king made a decree, and they sought in the house of the books of the treasuries placed there in Babylon,
 
-<sup>2</sup> and there hath been found at Achmetha, in a palace that [is] in the province of Media, a roll, and a record thus written within it [is]:
+**²** and there hath been found at Achmetha, in a palace that [is] in the province of Media, a roll, and a record thus written within it [is]:
 
-<sup>3</sup> 'In the first year of Cyrus the king, Cyrus the king hath made a decree concerning the house of God in Jerusalem: the house let be builded in the place where they are sacrificing sacrifices, and its foundations strongly laid; its height sixty cubits, its breadth sixty cubits;
+**³** 'In the first year of Cyrus the king, Cyrus the king hath made a decree concerning the house of God in Jerusalem: the house let be builded in the place where they are sacrificing sacrifices, and its foundations strongly laid; its height sixty cubits, its breadth sixty cubits;
 
-<sup>4</sup> three rows of rolled stones, and a row of new wood, and the outlay let be given out of the king's house.
+**⁴** three rows of rolled stones, and a row of new wood, and the outlay let be given out of the king's house.
 
-<sup>5</sup> 'And also, the vessels of the house of God, of gold and silver, that Nebuchadnezzar took forth out of the temple that [is] in Jerusalem, and brought to Babylon, let be given back, and go to the temple that [is] in Jerusalem, [each] to its place, and put [them] down in the house of God.
+**⁵** 'And also, the vessels of the house of God, of gold and silver, that Nebuchadnezzar took forth out of the temple that [is] in Jerusalem, and brought to Babylon, let be given back, and go to the temple that [is] in Jerusalem, [each] to its place, and put [them] down in the house of God.
 
-<sup>6</sup> 'Now, Tatnai, governor beyond the river, Shethar-Boznai, and their companions, the Apharsachites, who [are] beyond the river, be ye far from hence;
+**⁶** 'Now, Tatnai, governor beyond the river, Shethar-Boznai, and their companions, the Apharsachites, who [are] beyond the river, be ye far from hence;
 
-<sup>7</sup> let alone the work of this house of God, let the governor of the Jews, and the elders of the Jews, build this house of God on its place.
+**⁷** let alone the work of this house of God, let the governor of the Jews, and the elders of the Jews, build this house of God on its place.
 
-<sup>8</sup> 'And by me is made a decree concerning that which ye do with the elders of these Jews to build this house of God, that of the riches of the king, that [are] of the tribute beyond the river, speedily let the outlay be given to these men, that they cease not;
+**⁸** 'And by me is made a decree concerning that which ye do with the elders of these Jews to build this house of God, that of the riches of the king, that [are] of the tribute beyond the river, speedily let the outlay be given to these men, that they cease not;
 
-<sup>9</sup> and what they are needing — both young bullocks, and rams, and lambs for burnt-offerings to the God of heaven, wheat, salt, wine, and oil according to the saying of the priests who [are] in Jerusalem — let be given to them day by day without fail,
+**⁹** and what they are needing — both young bullocks, and rams, and lambs for burnt-offerings to the God of heaven, wheat, salt, wine, and oil according to the saying of the priests who [are] in Jerusalem — let be given to them day by day without fail,
 
-<sup>10</sup> that they be bringing near sweet savours to the God of heaven, and praying for the life of the king, and of his sons.
+**¹⁰** that they be bringing near sweet savours to the God of heaven, and praying for the life of the king, and of his sons.
 
-<sup>11</sup> 'And by me is made a decree, that any one who changeth this thing, let wood be pulled down from his house, and being raised up, let him be smitten on it, and his house let be made a dunghill for this.
+**¹¹** 'And by me is made a decree, that any one who changeth this thing, let wood be pulled down from his house, and being raised up, let him be smitten on it, and his house let be made a dunghill for this.
 
-<sup>12</sup> And God, who caused His name to dwell there, doth cast down any king and people that putteth forth his hand to change, to destroy this house of God that [is] in Jerusalem; I Darius have made a decree; speedily let it be done.'
+**¹²** And God, who caused His name to dwell there, doth cast down any king and people that putteth forth his hand to change, to destroy this house of God that [is] in Jerusalem; I Darius have made a decree; speedily let it be done.'
 
-<sup>13</sup> Then Tatnai, governor beyond the river, Shethar-Boznai, and their companions, according to that which Darius the king hath sent, so they have done speedily;
+**¹³** Then Tatnai, governor beyond the river, Shethar-Boznai, and their companions, according to that which Darius the king hath sent, so they have done speedily;
 
-<sup>14</sup> and the elders of the Jews are building and prospering through the prophecy of Haggai the prophet, and Zechariah son of Iddo, and they have built and finished by the decree of the God of Israel, and by the decree of Cyrus, and Darius, and Artaxerxes king of Persia.
+**¹⁴** and the elders of the Jews are building and prospering through the prophecy of Haggai the prophet, and Zechariah son of Iddo, and they have built and finished by the decree of the God of Israel, and by the decree of Cyrus, and Darius, and Artaxerxes king of Persia.
 
-<sup>15</sup> And this house hath gone out till the third day of the month Adar, that is [in] the sixth year of the reign of Darius the king.
+**¹⁵** And this house hath gone out till the third day of the month Adar, that is [in] the sixth year of the reign of Darius the king.
 
-<sup>16</sup> And the sons of Israel have made, [and] the priests, and the Levites, and the rest of the sons of the captivity, a dedication of this house of God with joy,
+**¹⁶** And the sons of Israel have made, [and] the priests, and the Levites, and the rest of the sons of the captivity, a dedication of this house of God with joy,
 
-<sup>17</sup> and have brought near for the dedication of this house of God, bullocks a hundred, rams two hundred, lambs four hundred; and young he-goats for a sin-offering for all Israel, twelve, according to the number of the tribes of Israel;
+**¹⁷** and have brought near for the dedication of this house of God, bullocks a hundred, rams two hundred, lambs four hundred; and young he-goats for a sin-offering for all Israel, twelve, according to the number of the tribes of Israel;
 
-<sup>18</sup> and they have established the priests in their divisions, and the Levites in their courses, over the service of God that [is] in Jerusalem, as it is written in the book of Moses.
+**¹⁸** and they have established the priests in their divisions, and the Levites in their courses, over the service of God that [is] in Jerusalem, as it is written in the book of Moses.
 
-<sup>19</sup> And the sons of the captivity make the passover on the fourteenth of the first month,
+**¹⁹** And the sons of the captivity make the passover on the fourteenth of the first month,
 
-<sup>20</sup> for the priests and the Levites have been purified together — all of them [are] pure — and they slaughter the passover for all the sons of the captivity, and for their brethren the priests, and for themselves.
+**²⁰** for the priests and the Levites have been purified together — all of them [are] pure — and they slaughter the passover for all the sons of the captivity, and for their brethren the priests, and for themselves.
 
-<sup>21</sup> And the sons of Israel, those returning from the captivity, and every one who is separated from the uncleanness of the nations of the land unto them, to seek to Jehovah, God of Israel, do eat,
+**²¹** And the sons of Israel, those returning from the captivity, and every one who is separated from the uncleanness of the nations of the land unto them, to seek to Jehovah, God of Israel, do eat,
 
-<sup>22</sup> and they make the feast of unleavened things seven days with joy, for Jehovah made them to rejoice, and turned round the heart of the king of Asshur unto them, to strengthen their hands in the work of the house of God, the God of Israel.
+**²²** and they make the feast of unleavened things seven days with joy, for Jehovah made them to rejoice, and turned round the heart of the king of Asshur unto them, to strengthen their hands in the work of the house of God, the God of Israel.

@@ -1,35 +1,35 @@
 # Chapter 11
 
-<sup>1</sup> Open, O Lebanon, thy doors, And fire doth devour among thy cedars.
+**¹** Open, O Lebanon, thy doors, And fire doth devour among thy cedars.
 
-<sup>2</sup> Howl, O fir, for fallen hath the cedar, For their honourable ones were destroyed, Howl, ye oaks of Bashan, For come down hath the fenced forest,
+**²** Howl, O fir, for fallen hath the cedar, For their honourable ones were destroyed, Howl, ye oaks of Bashan, For come down hath the fenced forest,
 
-<sup>3</sup> A voice of the howling of the shepherds! For destroyed was their robe of honour, A voice of the roaring of young lions! For destroyed was the excellency of Jordan.
+**³** A voice of the howling of the shepherds! For destroyed was their robe of honour, A voice of the roaring of young lions! For destroyed was the excellency of Jordan.
 
-<sup>4</sup> Thus said Jehovah my God: 'Feed the flock of the slaughter,
+**⁴** Thus said Jehovah my God: 'Feed the flock of the slaughter,
 
-<sup>5</sup> Whose buyers slay them, and are not guilty, And their sellers say, Blessed [is] Jehovah, And I am rich, And their shepherds have no pity on them.
+**⁵** Whose buyers slay them, and are not guilty, And their sellers say, Blessed [is] Jehovah, And I am rich, And their shepherds have no pity on them.
 
-<sup>6</sup> For I have pity no more on inhabitants of the land, An affirmation of Jehovah, And lo, I am causing man to come forth, Each into the hand of his neighbour, And into the hand of his king, And they have beaten down the land, And I do not deliver out of their hand.'
+**⁶** For I have pity no more on inhabitants of the land, An affirmation of Jehovah, And lo, I am causing man to come forth, Each into the hand of his neighbour, And into the hand of his king, And they have beaten down the land, And I do not deliver out of their hand.'
 
-<sup>7</sup> And I feed the flock of slaughter, even you, ye afflicted of the flock; and I take to me two staves, the one I have called Pleasantness, and the other I have called Bands, and I feed the flock.
+**⁷** And I feed the flock of slaughter, even you, ye afflicted of the flock; and I take to me two staves, the one I have called Pleasantness, and the other I have called Bands, and I feed the flock.
 
-<sup>8</sup> And I cut off the three shepherds in one month, and my soul is grieved with them, and also their soul hath abhorred me.
+**⁸** And I cut off the three shepherds in one month, and my soul is grieved with them, and also their soul hath abhorred me.
 
-<sup>9</sup> And I say, 'I do not feed you, the dying, let die; and the cut off, let be cut off; and the remaining ones, let each eat the flesh of its neighbour.'
+**⁹** And I say, 'I do not feed you, the dying, let die; and the cut off, let be cut off; and the remaining ones, let each eat the flesh of its neighbour.'
 
-<sup>10</sup> And I take My staff Pleasantness, and cut it asunder, to make void My covenant that I had made with all the peoples:
+**¹⁰** And I take My staff Pleasantness, and cut it asunder, to make void My covenant that I had made with all the peoples:
 
-<sup>11</sup> and it is broken in that day, and know well do the afflicted of the flock who are observing me, that it [is] a word of Jehovah.
+**¹¹** and it is broken in that day, and know well do the afflicted of the flock who are observing me, that it [is] a word of Jehovah.
 
-<sup>12</sup> And I say unto them: 'If good in your eyes, give my hire, and if not, forbear;' and they weigh out my hire — thirty silverlings.
+**¹²** And I say unto them: 'If good in your eyes, give my hire, and if not, forbear;' and they weigh out my hire — thirty silverlings.
 
-<sup>13</sup> And Jehovah saith unto me, 'Cast it unto the potter;' the goodly price that I have been prized at by them, and I take the thirty silverlings, and cast them [to] the house of Jehovah, unto the potter.
+**¹³** And Jehovah saith unto me, 'Cast it unto the potter;' the goodly price that I have been prized at by them, and I take the thirty silverlings, and cast them [to] the house of Jehovah, unto the potter.
 
-<sup>14</sup> And I cut asunder my second staff, Bands, to break the unity between Judah and Israel.
+**¹⁴** And I cut asunder my second staff, Bands, to break the unity between Judah and Israel.
 
-<sup>15</sup> And Jehovah saith unto me, 'Again take to thee the instrument of a foolish shepherd.
+**¹⁵** And Jehovah saith unto me, 'Again take to thee the instrument of a foolish shepherd.
 
-<sup>16</sup> For lo, I am raising up a shepherd in the land, The cut off he doth not inspect, The shaken off he doth not seek, And the broken he doth not heal, The standing he doth not sustain, And the flesh of the fat he doth eat, And their hoofs he doth break off.
+**¹⁶** For lo, I am raising up a shepherd in the land, The cut off he doth not inspect, The shaken off he doth not seek, And the broken he doth not heal, The standing he doth not sustain, And the flesh of the fat he doth eat, And their hoofs he doth break off.
 
-<sup>17</sup> Woe [to] the worthless shepherd, forsaking the flock, A sword [is] on his arm, and on his right eye, His arm is utterly dried up, And his right eye is very dim!'
+**¹⁷** Woe [to] the worthless shepherd, forsaking the flock, A sword [is] on his arm, and on his right eye, His arm is utterly dried up, And his right eye is very dim!'

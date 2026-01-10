@@ -1,77 +1,77 @@
 # Chapter 8
 
-<sup>1</sup> In those days the multitude being very great, and not having what they may eat, Jesus having called near his disciples, saith to them,
+**¹** In those days the multitude being very great, and not having what they may eat, Jesus having called near his disciples, saith to them,
 
-<sup>2</sup> 'I have compassion upon the multitude, because now three days they do continue with me, and they have not what they may eat;
+**²** 'I have compassion upon the multitude, because now three days they do continue with me, and they have not what they may eat;
 
-<sup>3</sup> and if I shall let them away fasting to their home, they will faint in the way, for certain of them are come from far.'
+**³** and if I shall let them away fasting to their home, they will faint in the way, for certain of them are come from far.'
 
-<sup>4</sup> And his disciples answered him, 'Whence shall any one be able these here to feed with bread in a wilderness?'
+**⁴** And his disciples answered him, 'Whence shall any one be able these here to feed with bread in a wilderness?'
 
-<sup>5</sup> And he was questioning them, 'How many loaves have ye?' and they said, 'Seven.'
+**⁵** And he was questioning them, 'How many loaves have ye?' and they said, 'Seven.'
 
-<sup>6</sup> And he commanded the multitude to sit down upon the ground, and having taken the seven loaves, having given thanks, he brake, and was giving to his disciples that they may set before [them]; and they did set before the multitude.
+**⁶** And he commanded the multitude to sit down upon the ground, and having taken the seven loaves, having given thanks, he brake, and was giving to his disciples that they may set before [them]; and they did set before the multitude.
 
-<sup>7</sup> And they had a few small fishes, and having blessed, he said to set them also before [them];
+**⁷** And they had a few small fishes, and having blessed, he said to set them also before [them];
 
-<sup>8</sup> and they did eat and were filled, and they took up that which was over of broken pieces — seven baskets;
+**⁸** and they did eat and were filled, and they took up that which was over of broken pieces — seven baskets;
 
-<sup>9</sup> and those eating were about four thousand. And he let them away,
+**⁹** and those eating were about four thousand. And he let them away,
 
-<sup>10</sup> and immediately having entered into the boat with his disciples, he came to the parts of Dalmanutha,
+**¹⁰** and immediately having entered into the boat with his disciples, he came to the parts of Dalmanutha,
 
-<sup>11</sup> and the Pharisees came forth, and began to dispute with him, seeking from him a sign from the heaven, tempting him;
+**¹¹** and the Pharisees came forth, and began to dispute with him, seeking from him a sign from the heaven, tempting him;
 
-<sup>12</sup> and having sighed deeply in his spirit, he saith, 'Why doth this generation seek after a sign? Verily I say to you, no sign shall be given to this generation.'
+**¹²** and having sighed deeply in his spirit, he saith, 'Why doth this generation seek after a sign? Verily I say to you, no sign shall be given to this generation.'
 
-<sup>13</sup> And having left them, having entered again into the boat, he went away to the other side;
+**¹³** And having left them, having entered again into the boat, he went away to the other side;
 
-<sup>14</sup> and they forgot to take loaves, and except one loaf they had nothing with them in the boat,
+**¹⁴** and they forgot to take loaves, and except one loaf they had nothing with them in the boat,
 
-<sup>15</sup> and he was charging them, saying, 'Take heed, beware of the leaven of the Pharisees, and of the leaven of Herod,'
+**¹⁵** and he was charging them, saying, 'Take heed, beware of the leaven of the Pharisees, and of the leaven of Herod,'
 
-<sup>16</sup> and they were reasoning with one another, saying — 'Because we have no loaves.'
+**¹⁶** and they were reasoning with one another, saying — 'Because we have no loaves.'
 
-<sup>17</sup> And Jesus having known, saith to them, 'Why do ye reason, because ye have no loaves? do ye not yet perceive, nor understand, yet have ye your heart hardened?
+**¹⁷** And Jesus having known, saith to them, 'Why do ye reason, because ye have no loaves? do ye not yet perceive, nor understand, yet have ye your heart hardened?
 
-<sup>18</sup> Having eyes, do ye not see? and having ears, do ye not hear? and do ye not remember?
+**¹⁸** Having eyes, do ye not see? and having ears, do ye not hear? and do ye not remember?
 
-<sup>19</sup> When the five loaves I did brake to the five thousand, how many hand-baskets full of broken pieces took ye up?' they say to him, 'Twelve.'
+**¹⁹** When the five loaves I did brake to the five thousand, how many hand-baskets full of broken pieces took ye up?' they say to him, 'Twelve.'
 
-<sup>20</sup> 'And when the seven to the four thousand, how many hand-baskets full of broken pieces took ye up?' and they said, 'Seven.'
+**²⁰** 'And when the seven to the four thousand, how many hand-baskets full of broken pieces took ye up?' and they said, 'Seven.'
 
-<sup>21</sup> And he said to them, 'How do ye not understand?'
+**²¹** And he said to them, 'How do ye not understand?'
 
-<sup>22</sup> And he cometh to Bethsaida, and they bring to him one blind, and call upon him that he may touch him,
+**²²** And he cometh to Bethsaida, and they bring to him one blind, and call upon him that he may touch him,
 
-<sup>23</sup> and having taken the hand of the blind man, he led him forth without the village, and having spit on his eyes, having put [his] hands on him, he was questioning him if he doth behold anything:
+**²³** and having taken the hand of the blind man, he led him forth without the village, and having spit on his eyes, having put [his] hands on him, he was questioning him if he doth behold anything:
 
-<sup>24</sup> and he, having looked up, said, 'I behold men, as I see trees, walking.'
+**²⁴** and he, having looked up, said, 'I behold men, as I see trees, walking.'
 
-<sup>25</sup> Afterwards again he put [his] hands on his eyes, and made him look up, and he was restored, and discerned all things clearly,
+**²⁵** Afterwards again he put [his] hands on his eyes, and made him look up, and he was restored, and discerned all things clearly,
 
-<sup>26</sup> and he sent him away to his house, saying, 'Neither to the village mayest thou go, nor tell [it] to any in the village.'
+**²⁶** and he sent him away to his house, saying, 'Neither to the village mayest thou go, nor tell [it] to any in the village.'
 
-<sup>27</sup> And Jesus went forth, and his disciples, to the villages of Caesarea Philippi, and in the way he was questioning his disciples, saying to them, 'Who do men say me to be?'
+**²⁷** And Jesus went forth, and his disciples, to the villages of Caesarea Philippi, and in the way he was questioning his disciples, saying to them, 'Who do men say me to be?'
 
-<sup>28</sup> And they answered, 'John the Baptist, and others Elijah, but others one of the prophets.'
+**²⁸** And they answered, 'John the Baptist, and others Elijah, but others one of the prophets.'
 
-<sup>29</sup> And he saith to them, 'And ye — who do ye say me to be?' and Peter answering saith to him, 'Thou art the Christ.'
+**²⁹** And he saith to them, 'And ye — who do ye say me to be?' and Peter answering saith to him, 'Thou art the Christ.'
 
-<sup>30</sup> And he strictly charged them that they may tell no one about it,
+**³⁰** And he strictly charged them that they may tell no one about it,
 
-<sup>31</sup> and began to teach them, that it behoveth the Son of Man to suffer many things, and to be rejected by the elders, and chief priests, and scribes, and to be killed, and after three days to rise again;
+**³¹** and began to teach them, that it behoveth the Son of Man to suffer many things, and to be rejected by the elders, and chief priests, and scribes, and to be killed, and after three days to rise again;
 
-<sup>32</sup> and openly he was speaking the word. And Peter having taken him aside, began to rebuke him,
+**³²** and openly he was speaking the word. And Peter having taken him aside, began to rebuke him,
 
-<sup>33</sup> and he, having turned, and having looked on his disciples, rebuked Peter, saying, 'Get behind me, Adversary, because thou dost not mind the things of God, but the things of men.'
+**³³** and he, having turned, and having looked on his disciples, rebuked Peter, saying, 'Get behind me, Adversary, because thou dost not mind the things of God, but the things of men.'
 
-<sup>34</sup> And having called near the multitude, with his disciples, he said to them, 'Whoever doth will to come after me — let him disown himself, and take up his cross, and follow me;
+**³⁴** And having called near the multitude, with his disciples, he said to them, 'Whoever doth will to come after me — let him disown himself, and take up his cross, and follow me;
 
-<sup>35</sup> for whoever may will to save his life shall lose it; and whoever may lose his life for my sake and for the good news' sake, he shall save it;
+**³⁵** for whoever may will to save his life shall lose it; and whoever may lose his life for my sake and for the good news' sake, he shall save it;
 
-<sup>36</sup> for what shall it profit a man, if he may gain the whole world, and forfeit his life?
+**³⁶** for what shall it profit a man, if he may gain the whole world, and forfeit his life?
 
-<sup>37</sup> Or what shall a man give as an exchange for his life?
+**³⁷** Or what shall a man give as an exchange for his life?
 
-<sup>38</sup> for whoever may be ashamed of me, and of my words, in this adulterous and sinful generation, the Son of Man also shall be ashamed of him, when he may come in the glory of his Father, with the holy messengers.'
+**³⁸** for whoever may be ashamed of me, and of my words, in this adulterous and sinful generation, the Son of Man also shall be ashamed of him, when he may come in the glory of his Father, with the holy messengers.'

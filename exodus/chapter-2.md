@@ -1,51 +1,51 @@
 # Chapter 2
 
-<sup>1</sup> And there goeth a man of the house of Levi, and he taketh the daughter of Levi,
+**¹** And there goeth a man of the house of Levi, and he taketh the daughter of Levi,
 
-<sup>2</sup> and the woman conceiveth, and beareth a son, and she seeth him that he [is] fair, and she hideth him three months,
+**²** and the woman conceiveth, and beareth a son, and she seeth him that he [is] fair, and she hideth him three months,
 
-<sup>3</sup> and she hath not been able any more to hide him, and she taketh for him an ark of rushes, and daubeth it with bitumen and with pitch, and putteth the lad in it, and putteth [it] in the weeds by the edge of the River;
+**³** and she hath not been able any more to hide him, and she taketh for him an ark of rushes, and daubeth it with bitumen and with pitch, and putteth the lad in it, and putteth [it] in the weeds by the edge of the River;
 
-<sup>4</sup> and his sister stationeth herself afar off, to know what is done to him.
+**⁴** and his sister stationeth herself afar off, to know what is done to him.
 
-<sup>5</sup> And a daughter of Pharaoh cometh down to bathe at the River, and her damsels are walking by the side of the River, and she seeth the ark in the midst of the weeds, and sendeth her handmaid, and she taketh it,
+**⁵** And a daughter of Pharaoh cometh down to bathe at the River, and her damsels are walking by the side of the River, and she seeth the ark in the midst of the weeds, and sendeth her handmaid, and she taketh it,
 
-<sup>6</sup> and openeth, and seeth him — the lad, and lo, a child weeping! and she hath pity on him, and saith, 'This is [one] of the Hebrews' children.'
+**⁶** and openeth, and seeth him — the lad, and lo, a child weeping! and she hath pity on him, and saith, 'This is [one] of the Hebrews' children.'
 
-<sup>7</sup> And his sister saith unto the daughter of Pharaoh, 'Do I go? when I have called for thee a suckling woman of the Hebrews, then she doth suckle the lad for thee;'
+**⁷** And his sister saith unto the daughter of Pharaoh, 'Do I go? when I have called for thee a suckling woman of the Hebrews, then she doth suckle the lad for thee;'
 
-<sup>8</sup> and the daughter of Pharaoh saith to her, 'Go;' and the virgin goeth, and calleth the mother of the lad,
+**⁸** and the daughter of Pharaoh saith to her, 'Go;' and the virgin goeth, and calleth the mother of the lad,
 
-<sup>9</sup> and the daughter of Pharaoh saith to her, 'Take this lad away, and suckle him for me, and I — I give thy hire;' and the woman taketh the lad, and suckleth him.
+**⁹** and the daughter of Pharaoh saith to her, 'Take this lad away, and suckle him for me, and I — I give thy hire;' and the woman taketh the lad, and suckleth him.
 
-<sup>10</sup> And the lad groweth, and she bringeth him in to the daughter of Pharaoh, and he is to her for a son, and she calleth his name Moses, and saith, 'Because — from the water I have drawn him.'
+**¹⁰** And the lad groweth, and she bringeth him in to the daughter of Pharaoh, and he is to her for a son, and she calleth his name Moses, and saith, 'Because — from the water I have drawn him.'
 
-<sup>11</sup> And it cometh to pass, in those days, that Moses is grown, and he goeth out unto his brethren, and looketh on their burdens, and seeth a man, an Egyptian, smiting a man, a Hebrew, [one] of his brethren,
+**¹¹** And it cometh to pass, in those days, that Moses is grown, and he goeth out unto his brethren, and looketh on their burdens, and seeth a man, an Egyptian, smiting a man, a Hebrew, [one] of his brethren,
 
-<sup>12</sup> and he turneth hither and thither, and seeth that there is no man, and smiteth the Egyptian, and hideth him in the sand.
+**¹²** and he turneth hither and thither, and seeth that there is no man, and smiteth the Egyptian, and hideth him in the sand.
 
-<sup>13</sup> And he goeth out on the second day, and lo, two men, Hebrews, striving! and he saith to the wrong-doer, 'Why dost thou smite thy neighbour?'
+**¹³** And he goeth out on the second day, and lo, two men, Hebrews, striving! and he saith to the wrong-doer, 'Why dost thou smite thy neighbour?'
 
-<sup>14</sup> and he saith, 'Who set thee for a head and a judge over us? to slay me art thou saying [it], as thou hast slain the Egyptian?' and Moses feareth, and saith, 'Surely the thing hath been known.'
+**¹⁴** and he saith, 'Who set thee for a head and a judge over us? to slay me art thou saying [it], as thou hast slain the Egyptian?' and Moses feareth, and saith, 'Surely the thing hath been known.'
 
-<sup>15</sup> And Pharaoh heareth of this thing, and seeketh to slay Moses, and Moses fleeth from the face of Pharaoh, and dwelleth in the land of Midian, and dwelleth by the well.
+**¹⁵** And Pharaoh heareth of this thing, and seeketh to slay Moses, and Moses fleeth from the face of Pharaoh, and dwelleth in the land of Midian, and dwelleth by the well.
 
-<sup>16</sup> And to a priest of Midian [are] seven daughters, and they come and draw, and fill the troughs, to water the flock of their father,
+**¹⁶** And to a priest of Midian [are] seven daughters, and they come and draw, and fill the troughs, to water the flock of their father,
 
-<sup>17</sup> and the shepherds come and drive them away, and Moses ariseth, and saveth them, and watereth their flock.
+**¹⁷** and the shepherds come and drive them away, and Moses ariseth, and saveth them, and watereth their flock.
 
-<sup>18</sup> And they come in to Reuel their father, and he saith, 'Wherefore have ye hastened to come in to-day?'
+**¹⁸** And they come in to Reuel their father, and he saith, 'Wherefore have ye hastened to come in to-day?'
 
-<sup>19</sup> and they say, 'A man, an Egyptian, hath delivered us out of the hand of the shepherds, and also hath diligently drawn for us, and watereth the flock;'
+**¹⁹** and they say, 'A man, an Egyptian, hath delivered us out of the hand of the shepherds, and also hath diligently drawn for us, and watereth the flock;'
 
-<sup>20</sup> and he saith unto his daughters, 'And where [is] he? why [is] this? — ye left the man! call for him, and he doth eat bread.'
+**²⁰** and he saith unto his daughters, 'And where [is] he? why [is] this? — ye left the man! call for him, and he doth eat bread.'
 
-<sup>21</sup> And Moses is willing to dwell with the man, and he giveth Zipporah his daughter to Moses,
+**²¹** And Moses is willing to dwell with the man, and he giveth Zipporah his daughter to Moses,
 
-<sup>22</sup> and she beareth a son, and he calleth his name Gershom, for he said, 'A sojourner I have been in a strange land.'
+**²²** and she beareth a son, and he calleth his name Gershom, for he said, 'A sojourner I have been in a strange land.'
 
-<sup>23</sup> And it cometh to pass during these many days, that the king of Egypt dieth, and the sons of Israel sigh because of the service, and cry, and their cry goeth up unto God, because of the service;
+**²³** And it cometh to pass during these many days, that the king of Egypt dieth, and the sons of Israel sigh because of the service, and cry, and their cry goeth up unto God, because of the service;
 
-<sup>24</sup> and God heareth their groaning, and God remembereth His covenant with Abraham, with Isaac, and with Jacob;
+**²⁴** and God heareth their groaning, and God remembereth His covenant with Abraham, with Isaac, and with Jacob;
 
-<sup>25</sup> and God seeth the sons of Israel, and God knoweth.
+**²⁵** and God seeth the sons of Israel, and God knoweth.

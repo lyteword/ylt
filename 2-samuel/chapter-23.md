@@ -1,79 +1,79 @@
 # Chapter 23
 
-<sup>1</sup> And these [are] the last words of David: — 'The affirmation of David son of Jesse — And the affirmation of the man raised up — Concerning the Anointed of the God of Jacob, And the Sweetness of the Songs of Israel:
+**¹** And these [are] the last words of David: — 'The affirmation of David son of Jesse — And the affirmation of the man raised up — Concerning the Anointed of the God of Jacob, And the Sweetness of the Songs of Israel:
 
-<sup>2</sup> The Spirit of Jehovah hath spoken by me, And His word [is] on my tongue.
+**²** The Spirit of Jehovah hath spoken by me, And His word [is] on my tongue.
 
-<sup>3</sup> He said — the God of Israel — to me, He spake — the Rock of Israel: He who is ruling over man [is] righteous, He is ruling in the fear of God.
+**³** He said — the God of Israel — to me, He spake — the Rock of Israel: He who is ruling over man [is] righteous, He is ruling in the fear of God.
 
-<sup>4</sup> And as the light of morning he riseth, A morning sun — no clouds! By the shining, by the rain, Tender grass of the earth!
+**⁴** And as the light of morning he riseth, A morning sun — no clouds! By the shining, by the rain, Tender grass of the earth!
 
-<sup>5</sup> For — not so [is] my house with God; For — a covenant age-during He made with me, Arranged in all things, and kept; For — all my salvation, and all desire, For — He hath not caused [it] to spring up.
+**⁵** For — not so [is] my house with God; For — a covenant age-during He made with me, Arranged in all things, and kept; For — all my salvation, and all desire, For — He hath not caused [it] to spring up.
 
-<sup>6</sup> As to the worthless — As a thorn driven away [are] all of them, For — not by hand are they taken;
+**⁶** As to the worthless — As a thorn driven away [are] all of them, For — not by hand are they taken;
 
-<sup>7</sup> And the man who cometh against them Is filled with iron and the staff of a spear, And with fire they are utterly burnt In the cessation.'
+**⁷** And the man who cometh against them Is filled with iron and the staff of a spear, And with fire they are utterly burnt In the cessation.'
 
-<sup>8</sup> These [are] the names of the mighty ones whom David hath: sitting in the seat [is] the Tachmonite, head of the captains — he [is] Adino, who hardened himself against eight hundred — wounded at one time.
+**⁸** These [are] the names of the mighty ones whom David hath: sitting in the seat [is] the Tachmonite, head of the captains — he [is] Adino, who hardened himself against eight hundred — wounded at one time.
 
-<sup>9</sup> And after him [is] Eleazar son of Dodo, son of Ahohi, of the three mighty men with David; in their exposing themselves among the Philistines — they have been gathered there to battle, and the men of Israel go up —
+**⁹** And after him [is] Eleazar son of Dodo, son of Ahohi, of the three mighty men with David; in their exposing themselves among the Philistines — they have been gathered there to battle, and the men of Israel go up —
 
-<sup>10</sup> he hath arisen, and smiteth among the Philistines till that his hand hath been weary, and his hand cleaveth unto the sword, and Jehovah worketh a great salvation on that day, and the people turn back after him only to strip off.
+**¹⁰** he hath arisen, and smiteth among the Philistines till that his hand hath been weary, and his hand cleaveth unto the sword, and Jehovah worketh a great salvation on that day, and the people turn back after him only to strip off.
 
-<sup>11</sup> And after him [is] Shammah son of Agee the Hararite, and the Philistines are gathered into a company, and there is there a portion of the field full of lentiles, and the people hath fled from the presence of the Philistines,
+**¹¹** And after him [is] Shammah son of Agee the Hararite, and the Philistines are gathered into a company, and there is there a portion of the field full of lentiles, and the people hath fled from the presence of the Philistines,
 
-<sup>12</sup> and he stationeth himself in the midst of the portion, and delivereth it, and smiteth the Philistines, and Jehovah worketh a great salvation.
+**¹²** and he stationeth himself in the midst of the portion, and delivereth it, and smiteth the Philistines, and Jehovah worketh a great salvation.
 
-<sup>13</sup> And three of the thirty heads go down and come unto the harvest, unto David, unto the cave of Adullam, and the company of the Philistines are encamping in the valley of Rephaim,
+**¹³** And three of the thirty heads go down and come unto the harvest, unto David, unto the cave of Adullam, and the company of the Philistines are encamping in the valley of Rephaim,
 
-<sup>14</sup> and David [is] then in a fortress, and the station of the Philistines [is] then in Beth-Lehem,
+**¹⁴** and David [is] then in a fortress, and the station of the Philistines [is] then in Beth-Lehem,
 
-<sup>15</sup> and David longeth and saith, 'Who doth give me a drink of the water of the well of Beth-Lehem, which [is] by the gate?'
+**¹⁵** and David longeth and saith, 'Who doth give me a drink of the water of the well of Beth-Lehem, which [is] by the gate?'
 
-<sup>16</sup> And the three mighty ones cleave through the camp of the Philistines, and draw water out of the well of Beth-Lehem, which [is] by the gate, and take [it] up, and bring in unto David; and he was not willing to drink it, and poureth it out to Jehovah,
+**¹⁶** And the three mighty ones cleave through the camp of the Philistines, and draw water out of the well of Beth-Lehem, which [is] by the gate, and take [it] up, and bring in unto David; and he was not willing to drink it, and poureth it out to Jehovah,
 
-<sup>17</sup> and saith, 'Far be it from me, O Jehovah, to do this; is it the blood of the men who are going with their lives?' and he was not willing to drink it; these [things] did the three mighty ones.
+**¹⁷** and saith, 'Far be it from me, O Jehovah, to do this; is it the blood of the men who are going with their lives?' and he was not willing to drink it; these [things] did the three mighty ones.
 
-<sup>18</sup> And Abishai brother of Joab, son of Zeruiah, he [is] head of three, and he is lifting up his spear against three hundred — wounded, and he hath a name among three.
+**¹⁸** And Abishai brother of Joab, son of Zeruiah, he [is] head of three, and he is lifting up his spear against three hundred — wounded, and he hath a name among three.
 
-<sup>19</sup> Of the three is he not the honoured? and he becometh their head; and unto the [first] three he hath not come.
+**¹⁹** Of the three is he not the honoured? and he becometh their head; and unto the [first] three he hath not come.
 
-<sup>20</sup> And Benaiah son of Jehoiada (son of a man of valour, great in deeds from Kabzeel), he hath smitten two lion-like men of Moab, and he hath gone down and smitten the lion in the midst of the pit in a day of snow.
+**²⁰** And Benaiah son of Jehoiada (son of a man of valour, great in deeds from Kabzeel), he hath smitten two lion-like men of Moab, and he hath gone down and smitten the lion in the midst of the pit in a day of snow.
 
-<sup>21</sup> And he hath smitten the Egyptian man, a man of appearance, and in the hand of the Egyptian [is] a spear, and he goeth down unto him with a rod, and taketh violently away the spear out of the hand of the Egyptian, and slayeth him with his own spear.
+**²¹** And he hath smitten the Egyptian man, a man of appearance, and in the hand of the Egyptian [is] a spear, and he goeth down unto him with a rod, and taketh violently away the spear out of the hand of the Egyptian, and slayeth him with his own spear.
 
-<sup>22</sup> These [things] hath Benaiah son of Jehoiada done, and hath a name among three mighty.
+**²²** These [things] hath Benaiah son of Jehoiada done, and hath a name among three mighty.
 
-<sup>23</sup> Of the thirty he is honoured, and unto the three he came not; and David setteth him over his guard.
+**²³** Of the thirty he is honoured, and unto the three he came not; and David setteth him over his guard.
 
-<sup>24</sup> Asahel brother of Joab [is] of the thirty; Elhanan son of Dodo of Beth-Lehem.
+**²⁴** Asahel brother of Joab [is] of the thirty; Elhanan son of Dodo of Beth-Lehem.
 
-<sup>25</sup> Shammah the Harodite, Elika the Harodite,
+**²⁵** Shammah the Harodite, Elika the Harodite,
 
-<sup>26</sup> Helez the Paltite, Ira son of Ikkesh the Tekoite,
+**²⁶** Helez the Paltite, Ira son of Ikkesh the Tekoite,
 
-<sup>27</sup> Abiezer the Annethothite, Mebunnai the Hushathite,
+**²⁷** Abiezer the Annethothite, Mebunnai the Hushathite,
 
-<sup>28</sup> Zalmon the Ahohite, Maharai the Netophathite,
+**²⁸** Zalmon the Ahohite, Maharai the Netophathite,
 
-<sup>29</sup> Heleb son of Baanah the Netophathite, Ittai son of Ribai from Gibeah of the sons of Benjamin,
+**²⁹** Heleb son of Baanah the Netophathite, Ittai son of Ribai from Gibeah of the sons of Benjamin,
 
-<sup>30</sup> Benaiah the Pirathonite, Hiddai of the brooks of Gaash,
+**³⁰** Benaiah the Pirathonite, Hiddai of the brooks of Gaash,
 
-<sup>31</sup> Abi-Albon the Arbathite, Azmaveth the Barhumite,
+**³¹** Abi-Albon the Arbathite, Azmaveth the Barhumite,
 
-<sup>32</sup> Eliahba the Shaalbonite, [of] the sons of Jashen, Jonathan,
+**³²** Eliahba the Shaalbonite, [of] the sons of Jashen, Jonathan,
 
-<sup>33</sup> Shammah the Hararite, Ahiam son of Sharar the Hararite,
+**³³** Shammah the Hararite, Ahiam son of Sharar the Hararite,
 
-<sup>34</sup> Eliphelet son of Ahasbai, son of the Maachathite, Eliam son of Ahithophel the Gilonite,
+**³⁴** Eliphelet son of Ahasbai, son of the Maachathite, Eliam son of Ahithophel the Gilonite,
 
-<sup>35</sup> Hezrai the Carmelite, Paarai the Arbite,
+**³⁵** Hezrai the Carmelite, Paarai the Arbite,
 
-<sup>36</sup> Igal son of Nathan from Zobah, Bani the Gadite,
+**³⁶** Igal son of Nathan from Zobah, Bani the Gadite,
 
-<sup>37</sup> Zelek the Ammonite, Naharai the Beerothite, bearer of the weapons of Joab son of Zeruiah,
+**³⁷** Zelek the Ammonite, Naharai the Beerothite, bearer of the weapons of Joab son of Zeruiah,
 
-<sup>38</sup> Ira the Ithrite, Gareb the Ithrite,
+**³⁸** Ira the Ithrite, Gareb the Ithrite,
 
-<sup>39</sup> Uriah the Hittite; in all thirty and seven.
+**³⁹** Uriah the Hittite; in all thirty and seven.

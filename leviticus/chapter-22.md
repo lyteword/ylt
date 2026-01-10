@@ -1,67 +1,67 @@
 # Chapter 22
 
-<sup>1</sup> And Jehovah speaketh unto Moses, saying,
+**¹** And Jehovah speaketh unto Moses, saying,
 
-<sup>2</sup> 'Speak unto Aaron, and unto his sons, and they are separated from the holy things of the sons of Israel, and they pollute not My holy name in what they are hallowing to Me; I [am] Jehovah.
+**²** 'Speak unto Aaron, and unto his sons, and they are separated from the holy things of the sons of Israel, and they pollute not My holy name in what they are hallowing to Me; I [am] Jehovah.
 
-<sup>3</sup> 'Say unto them, To your generations, any man who draweth near, out of all your seed, unto the holy things which the sons of Israel do sanctify to Jehovah, and his uncleanness on him — even that person hath been cut off from before Me; I [am] Jehovah.
+**³** 'Say unto them, To your generations, any man who draweth near, out of all your seed, unto the holy things which the sons of Israel do sanctify to Jehovah, and his uncleanness on him — even that person hath been cut off from before Me; I [am] Jehovah.
 
-<sup>4</sup> 'Any man of the seed of Aaron, and is leprous or hath an issue — of the holy things he doth not eat till that he is clean; and he who is coming against any uncleanness of a person, or a man whose seed of copulation goeth out from him,
+**⁴** 'Any man of the seed of Aaron, and is leprous or hath an issue — of the holy things he doth not eat till that he is clean; and he who is coming against any uncleanness of a person, or a man whose seed of copulation goeth out from him,
 
-<sup>5</sup> or a man who cometh against any teeming thing which is unclean to him, or against a man who is unclean to him, even any of his uncleanness —
+**⁵** or a man who cometh against any teeming thing which is unclean to him, or against a man who is unclean to him, even any of his uncleanness —
 
-<sup>6</sup> the person who cometh against it — hath even been unclean till the evening, and doth not eat of the holy things, but hath bathed his flesh with water,
+**⁶** the person who cometh against it — hath even been unclean till the evening, and doth not eat of the holy things, but hath bathed his flesh with water,
 
-<sup>7</sup> and the sun hath gone in, and he hath been clean, and afterwards he doth eat of the holy things, for it [is] his food;
+**⁷** and the sun hath gone in, and he hath been clean, and afterwards he doth eat of the holy things, for it [is] his food;
 
-<sup>8</sup> a carcase or torn thing he doth not eat, for uncleanness thereby; I [am] Jehovah.
+**⁸** a carcase or torn thing he doth not eat, for uncleanness thereby; I [am] Jehovah.
 
-<sup>9</sup> 'And they have kept My charge, and bear no sin for it, that they have died for it when they pollute it; I [am] Jehovah sanctifying them.
+**⁹** 'And they have kept My charge, and bear no sin for it, that they have died for it when they pollute it; I [am] Jehovah sanctifying them.
 
-<sup>10</sup> 'And no stranger doth eat of the holy thing; a settler of a priest and an hireling doth not eat of the holy thing;
+**¹⁰** 'And no stranger doth eat of the holy thing; a settler of a priest and an hireling doth not eat of the holy thing;
 
-<sup>11</sup> and when a priest buyeth a person, the purchase of his money, he doth eat of it, also one born in his house; they do eat of his bread.
+**¹¹** and when a priest buyeth a person, the purchase of his money, he doth eat of it, also one born in his house; they do eat of his bread.
 
-<sup>12</sup> 'And a priest's daughter, when she is a strange man's, — she, of the heave-offering of the holy things doth not eat;
+**¹²** 'And a priest's daughter, when she is a strange man's, — she, of the heave-offering of the holy things doth not eat;
 
-<sup>13</sup> and a priest's daughter, when she is a widow, or cast out, and hath no seed, and hath turned back unto the house of her father, as [in] her youth, of her father's bread she doth eat; but no stranger doth eat of it.
+**¹³** and a priest's daughter, when she is a widow, or cast out, and hath no seed, and hath turned back unto the house of her father, as [in] her youth, of her father's bread she doth eat; but no stranger doth eat of it.
 
-<sup>14</sup> 'And when a man doth eat of a holy thing through ignorance, then he hath added its fifth part to it, and hath given [it] to the priest, with the holy thing;
+**¹⁴** 'And when a man doth eat of a holy thing through ignorance, then he hath added its fifth part to it, and hath given [it] to the priest, with the holy thing;
 
-<sup>15</sup> and they do not pollute the holy things of the sons of Israel — that which they lift up to Jehovah,
+**¹⁵** and they do not pollute the holy things of the sons of Israel — that which they lift up to Jehovah,
 
-<sup>16</sup> nor have caused them to bear the iniquity of the guilt-offering in their eating their holy things; for I [am] Jehovah, sanctifying them.'
+**¹⁶** nor have caused them to bear the iniquity of the guilt-offering in their eating their holy things; for I [am] Jehovah, sanctifying them.'
 
-<sup>17</sup> And Jehovah speaketh unto Moses, saying,
+**¹⁷** And Jehovah speaketh unto Moses, saying,
 
-<sup>18</sup> 'Speak unto Aaron, and unto his sons, and unto all the sons of Israel, and thou hast said unto them, Any man of the house of Israel, or of the sojourners in Israel, who bringeth near his offering, of all his vows, or of all his willing offerings which they bring near to Jehovah for a burnt-offering;
+**¹⁸** 'Speak unto Aaron, and unto his sons, and unto all the sons of Israel, and thou hast said unto them, Any man of the house of Israel, or of the sojourners in Israel, who bringeth near his offering, of all his vows, or of all his willing offerings which they bring near to Jehovah for a burnt-offering;
 
-<sup>19</sup> at your pleasure a perfect one, a male of the herd, of the sheep or of the goats;
+**¹⁹** at your pleasure a perfect one, a male of the herd, of the sheep or of the goats;
 
-<sup>20</sup> nothing in which [is] blemish do ye bring near, for it is not for a pleasing thing for you.
+**²⁰** nothing in which [is] blemish do ye bring near, for it is not for a pleasing thing for you.
 
-<sup>21</sup> 'And when a man bringeth near a sacrifice of peace-offerings to Jehovah, to complete a vow, or for a willing-offering, of the herd or of the flock, it is perfect for a pleasing thing: no blemish is in it;
+**²¹** 'And when a man bringeth near a sacrifice of peace-offerings to Jehovah, to complete a vow, or for a willing-offering, of the herd or of the flock, it is perfect for a pleasing thing: no blemish is in it;
 
-<sup>22</sup> blind, or broken, or maimed, or having a wen, or scurvy, or scabbed — ye do not bring these near to Jehovah, and a fire-offering ye do not make of them on the altar to Jehovah.
+**²²** blind, or broken, or maimed, or having a wen, or scurvy, or scabbed — ye do not bring these near to Jehovah, and a fire-offering ye do not make of them on the altar to Jehovah.
 
-<sup>23</sup> 'As to an ox or a sheep enlarged or dwarfed — a willing-offering ye do make it, but for a vow it is not pleasing.
+**²³** 'As to an ox or a sheep enlarged or dwarfed — a willing-offering ye do make it, but for a vow it is not pleasing.
 
-<sup>24</sup> As to a bruised, or beaten, or enlarged, or cut thing — ye do not bring [it] near to Jehovah; even in your land ye do not do it.
+**²⁴** As to a bruised, or beaten, or enlarged, or cut thing — ye do not bring [it] near to Jehovah; even in your land ye do not do it.
 
-<sup>25</sup> And from the hand of a son of a stranger ye do not bring near the bread of your God, of any of these, for their corruption [is] in them; blemish [is] in them; they are not pleasing for you.'
+**²⁵** And from the hand of a son of a stranger ye do not bring near the bread of your God, of any of these, for their corruption [is] in them; blemish [is] in them; they are not pleasing for you.'
 
-<sup>26</sup> And Jehovah speaketh unto Moses, saying,
+**²⁶** And Jehovah speaketh unto Moses, saying,
 
-<sup>27</sup> 'When ox or lamb or goat is born, and it hath been seven days under its dam, then from the eighth day and henceforth, it is pleasing for an offering, a fire-offering to Jehovah;
+**²⁷** 'When ox or lamb or goat is born, and it hath been seven days under its dam, then from the eighth day and henceforth, it is pleasing for an offering, a fire-offering to Jehovah;
 
-<sup>28</sup> but an ox or sheep — it and its young one, ye do not slaughter in one day.
+**²⁸** but an ox or sheep — it and its young one, ye do not slaughter in one day.
 
-<sup>29</sup> 'And when ye sacrifice a sacrifice of thanksgiving to Jehovah, at your pleasure ye do sacrifice,
+**²⁹** 'And when ye sacrifice a sacrifice of thanksgiving to Jehovah, at your pleasure ye do sacrifice,
 
-<sup>30</sup> on that day it is eaten, ye do not leave of it till morning; I [am] Jehovah;
+**³⁰** on that day it is eaten, ye do not leave of it till morning; I [am] Jehovah;
 
-<sup>31</sup> and ye have kept my commands, and have done them; I [am] Jehovah;
+**³¹** and ye have kept my commands, and have done them; I [am] Jehovah;
 
-<sup>32</sup> and ye do not pollute My holy name, and I have been hallowed in the midst of the sons of Israel; I [am] Jehovah, sanctifying you,
+**³²** and ye do not pollute My holy name, and I have been hallowed in the midst of the sons of Israel; I [am] Jehovah, sanctifying you,
 
-<sup>33</sup> who am bringing you up out of the land of Egypt, to become your God; I [am] Jehovah.'
+**³³** who am bringing you up out of the land of Egypt, to become your God; I [am] Jehovah.'

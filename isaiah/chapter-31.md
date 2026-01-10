@@ -1,19 +1,19 @@
 # Chapter 31
 
-<sup>1</sup> Woe [to] those going down to Egypt for help, And on horses lean, And trust on chariots, because many, And on horsemen, because very strong, And have not looked on the Holy One of Israel, And Jehovah have not sought.
+**¹** Woe [to] those going down to Egypt for help, And on horses lean, And trust on chariots, because many, And on horsemen, because very strong, And have not looked on the Holy One of Israel, And Jehovah have not sought.
 
-<sup>2</sup> And He also [is] wise, and bringeth in evil, And His words He hath not turned aside, And He hath risen against a house of evil doers, And against the help of workers of iniquity.
+**²** And He also [is] wise, and bringeth in evil, And His words He hath not turned aside, And He hath risen against a house of evil doers, And against the help of workers of iniquity.
 
-<sup>3</sup> And the Egyptians [are men], and not God, And their horses [are] flesh, and not spirit, And Jehovah stretcheth out His hand, And stumbled hath the helper, And fallen hath the helped one, And together all of them are consumed.
+**³** And the Egyptians [are men], and not God, And their horses [are] flesh, and not spirit, And Jehovah stretcheth out His hand, And stumbled hath the helper, And fallen hath the helped one, And together all of them are consumed.
 
-<sup>4</sup> For thus said Jehovah unto me: 'As growl doth the lion and the young lion over his prey, Called against whom is a multitude of shepherds, From their voice he is not affrighted, And from their noise he is not humbled; So come down doth Jehovah of Hosts To war on mount Zion, and on her height.
+**⁴** For thus said Jehovah unto me: 'As growl doth the lion and the young lion over his prey, Called against whom is a multitude of shepherds, From their voice he is not affrighted, And from their noise he is not humbled; So come down doth Jehovah of Hosts To war on mount Zion, and on her height.
 
-<sup>5</sup> As birds flying, so doth Jehovah of Hosts Cover over Jerusalem, covering and delivering, Passing over, and causing to escape.'
+**⁵** As birds flying, so doth Jehovah of Hosts Cover over Jerusalem, covering and delivering, Passing over, and causing to escape.'
 
-<sup>6</sup> Turn back to Him from whom sons of Israel Have deepened apostasy.
+**⁶** Turn back to Him from whom sons of Israel Have deepened apostasy.
 
-<sup>7</sup> For in that day despise doth each His idols of silver, and his idols of gold, That your hands made to you — a sin.
+**⁷** For in that day despise doth each His idols of silver, and his idols of gold, That your hands made to you — a sin.
 
-<sup>8</sup> And fallen hath Asshur by sword, not of the high, Yea, a sword — not of the low, doth consume him, And he hath fled for himself from the face of a sword, And his young men become tributary.
+**⁸** And fallen hath Asshur by sword, not of the high, Yea, a sword — not of the low, doth consume him, And he hath fled for himself from the face of a sword, And his young men become tributary.
 
-<sup>9</sup> And [to] his rock from fear he passeth on, And affrighted by the ensign have been his princes — an affirmation of Jehovah, Who hath a light in Zion, And who hath a furnace in Jerusalem!
+**⁹** And [to] his rock from fear he passeth on, And affrighted by the ensign have been his princes — an affirmation of Jehovah, Who hath a light in Zion, And who hath a furnace in Jerusalem!

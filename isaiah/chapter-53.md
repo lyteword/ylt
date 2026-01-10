@@ -1,25 +1,25 @@
 # Chapter 53
 
-<sup>1</sup> Who hath given credence to that which we heard? And the arm of Jehovah, On whom hath it been revealed?
+**¹** Who hath given credence to that which we heard? And the arm of Jehovah, On whom hath it been revealed?
 
-<sup>2</sup> Yea, he cometh up as a tender plant before Him, And as a root out of a dry land, He hath no form, nor honour, when we observe him, Nor appearance, when we desire him.
+**²** Yea, he cometh up as a tender plant before Him, And as a root out of a dry land, He hath no form, nor honour, when we observe him, Nor appearance, when we desire him.
 
-<sup>3</sup> He is despised, and left of men, A man of pains, and acquainted with sickness, And as one hiding the face from us, He is despised, and we esteemed him not.
+**³** He is despised, and left of men, A man of pains, and acquainted with sickness, And as one hiding the face from us, He is despised, and we esteemed him not.
 
-<sup>4</sup> Surely our sicknesses he hath borne, And our pains — he hath carried them, And we — we have esteemed him plagued, Smitten of God, and afflicted.
+**⁴** Surely our sicknesses he hath borne, And our pains — he hath carried them, And we — we have esteemed him plagued, Smitten of God, and afflicted.
 
-<sup>5</sup> And he is pierced for our transgressions, Bruised for our iniquities, The chastisement of our peace [is] on him, And by his bruise there is healing to us.
+**⁵** And he is pierced for our transgressions, Bruised for our iniquities, The chastisement of our peace [is] on him, And by his bruise there is healing to us.
 
-<sup>6</sup> All of us like sheep have wandered, Each to his own way we have turned, And Jehovah hath caused to meet on him, The punishment of us all.
+**⁶** All of us like sheep have wandered, Each to his own way we have turned, And Jehovah hath caused to meet on him, The punishment of us all.
 
-<sup>7</sup> It hath been exacted, and he hath answered, And he openeth not his mouth, As a lamb to the slaughter he is brought, And as a sheep before its shearers is dumb, And he openeth not his mouth.
+**⁷** It hath been exacted, and he hath answered, And he openeth not his mouth, As a lamb to the slaughter he is brought, And as a sheep before its shearers is dumb, And he openeth not his mouth.
 
-<sup>8</sup> By restraint and by judgment he hath been taken, And of his generation who doth meditate, That he hath been cut off from the land of the living? By the transgression of My people he is plagued,
+**⁸** By restraint and by judgment he hath been taken, And of his generation who doth meditate, That he hath been cut off from the land of the living? By the transgression of My people he is plagued,
 
-<sup>9</sup> And it appointeth with the wicked his grave, And with the rich [are] his high places, Because he hath done no violence, Nor [is] deceit in his mouth.
+**⁹** And it appointeth with the wicked his grave, And with the rich [are] his high places, Because he hath done no violence, Nor [is] deceit in his mouth.
 
-<sup>10</sup> And Jehovah hath delighted to bruise him, He hath made him sick, If his soul doth make an offering for guilt, He seeth seed — he prolongeth days, And the pleasure of Jehovah in his hand doth prosper.
+**¹⁰** And Jehovah hath delighted to bruise him, He hath made him sick, If his soul doth make an offering for guilt, He seeth seed — he prolongeth days, And the pleasure of Jehovah in his hand doth prosper.
 
-<sup>11</sup> Of the labour of his soul he seeth — he is satisfied, Through his knowledge give righteousness Doth the righteous one, My servant, to many, And their iniquities he doth bear.
+**¹¹** Of the labour of his soul he seeth — he is satisfied, Through his knowledge give righteousness Doth the righteous one, My servant, to many, And their iniquities he doth bear.
 
-<sup>12</sup> Therefore I give a portion to him among the many, And with the mighty he apportioneth spoil, Because that he exposed to death his soul, And with transgressors he was numbered, And he the sin of many hath borne, And for transgressors he intercedeth.
+**¹²** Therefore I give a portion to him among the many, And with the mighty he apportioneth spoil, Because that he exposed to death his soul, And with transgressors he was numbered, And he the sin of many hath borne, And for transgressors he intercedeth.

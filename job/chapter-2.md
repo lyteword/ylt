@@ -1,27 +1,27 @@
 # Chapter 2
 
-<sup>1</sup> And the day is, that sons of God come in to station themselves by Jehovah, and there doth come also the Adversary in their midst to station himself by Jehovah.
+**¹** And the day is, that sons of God come in to station themselves by Jehovah, and there doth come also the Adversary in their midst to station himself by Jehovah.
 
-<sup>2</sup> And Jehovah saith unto the Adversary, 'Whence camest thou?' And the Adversary answereth Jehovah and saith, 'From going to and fro in the land, and from walking up and down in it.'
+**²** And Jehovah saith unto the Adversary, 'Whence camest thou?' And the Adversary answereth Jehovah and saith, 'From going to and fro in the land, and from walking up and down in it.'
 
-<sup>3</sup> And Jehovah saith unto the Adversary, 'Hast thou set thy heart unto My servant Job because there is none like him in the land, a man perfect and upright, fearing God and turning aside from evil? and still he is keeping hold on his integrity, and thou dost move Me against him to swallow him up for nought!'
+**³** And Jehovah saith unto the Adversary, 'Hast thou set thy heart unto My servant Job because there is none like him in the land, a man perfect and upright, fearing God and turning aside from evil? and still he is keeping hold on his integrity, and thou dost move Me against him to swallow him up for nought!'
 
-<sup>4</sup> And the Adversary answereth Jehovah and saith, 'A skin for a skin, and all that a man hath he doth give for his life.
+**⁴** And the Adversary answereth Jehovah and saith, 'A skin for a skin, and all that a man hath he doth give for his life.
 
-<sup>5</sup> Yet, put forth, I pray Thee, Thy hand, and strike unto his bone and unto his flesh — if not: unto Thy face he doth bless Thee!'
+**⁵** Yet, put forth, I pray Thee, Thy hand, and strike unto his bone and unto his flesh — if not: unto Thy face he doth bless Thee!'
 
-<sup>6</sup> And Jehovah saith unto the Adversary, 'Lo, he [is] in thy hand; only his life take care of.'
+**⁶** And Jehovah saith unto the Adversary, 'Lo, he [is] in thy hand; only his life take care of.'
 
-<sup>7</sup> And the Adversary goeth forth from the presence of Jehovah, and smiteth Job with a sore ulcer from the sole of his foot unto his crown.
+**⁷** And the Adversary goeth forth from the presence of Jehovah, and smiteth Job with a sore ulcer from the sole of his foot unto his crown.
 
-<sup>8</sup> And he taketh to him a potsherd to scrape himself with it, and he is sitting in the midst of the ashes.
+**⁸** And he taketh to him a potsherd to scrape himself with it, and he is sitting in the midst of the ashes.
 
-<sup>9</sup> And his wife saith to him, 'Still thou art keeping hold on thine integrity: bless God and die.'
+**⁹** And his wife saith to him, 'Still thou art keeping hold on thine integrity: bless God and die.'
 
-<sup>10</sup> And he saith unto her, 'As one of the foolish women speaketh, thou speakest; yea, the good we receive from God, and the evil we do not receive.' In all this Job hath not sinned with his lips.
+**¹⁰** And he saith unto her, 'As one of the foolish women speaketh, thou speakest; yea, the good we receive from God, and the evil we do not receive.' In all this Job hath not sinned with his lips.
 
-<sup>11</sup> And three of the friends of Job hear of all this evil that hath come upon him, and they come in each from his place — Eliphaz the Temanite, and Bildad the Shuhite, and Zophar the Naamathite — and they are met together to come in to bemoan him, and to comfort him;
+**¹¹** And three of the friends of Job hear of all this evil that hath come upon him, and they come in each from his place — Eliphaz the Temanite, and Bildad the Shuhite, and Zophar the Naamathite — and they are met together to come in to bemoan him, and to comfort him;
 
-<sup>12</sup> and they lift up their eyes from afar and have not discerned him, and they lift up their voice and weep, and rend each his robe, and sprinkle dust on their heads — heavenward.
+**¹²** and they lift up their eyes from afar and have not discerned him, and they lift up their voice and weep, and rend each his robe, and sprinkle dust on their heads — heavenward.
 
-<sup>13</sup> And they sit with him on the earth seven days and seven nights, and there is none speaking unto him a word when they have seen that the pain hath been very great.
+**¹³** And they sit with him on the earth seven days and seven nights, and there is none speaking unto him a word when they have seen that the pain hath been very great.

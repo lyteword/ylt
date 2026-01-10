@@ -1,45 +1,45 @@
 # Chapter 4
 
-<sup>1</sup> And the word of Samuel is to all Israel, and Israel goeth out to meet the Philistines for battle, and they encamp by Eben-Ezer, and the Philistines have encamped in Aphek,
+**¹** And the word of Samuel is to all Israel, and Israel goeth out to meet the Philistines for battle, and they encamp by Eben-Ezer, and the Philistines have encamped in Aphek,
 
-<sup>2</sup> and the Philistines set themselves in array to meet Israel, and the battle spreadeth itself, and Israel is smitten before the Philistines, and they smite among the ranks in the field about four thousand men.
+**²** and the Philistines set themselves in array to meet Israel, and the battle spreadeth itself, and Israel is smitten before the Philistines, and they smite among the ranks in the field about four thousand men.
 
-<sup>3</sup> And the people cometh in unto the camp, and the elders of Israel say, 'Why hath Jehovah smitten us to-day before the Philistines? we take unto us from Shiloh the ark of the covenant of Jehovah, and it cometh into our midst, and He doth save us out of the hand of our enemies.'
+**³** And the people cometh in unto the camp, and the elders of Israel say, 'Why hath Jehovah smitten us to-day before the Philistines? we take unto us from Shiloh the ark of the covenant of Jehovah, and it cometh into our midst, and He doth save us out of the hand of our enemies.'
 
-<sup>4</sup> And the people sendeth to Shiloh, and they take up thence the ark of the covenant of Jehovah of Hosts, inhabiting the cherubs, and there [are] two sons of Eli, with the ark of the covenant of God, Hophni and Phinehas.
+**⁴** And the people sendeth to Shiloh, and they take up thence the ark of the covenant of Jehovah of Hosts, inhabiting the cherubs, and there [are] two sons of Eli, with the ark of the covenant of God, Hophni and Phinehas.
 
-<sup>5</sup> And it cometh to pass, at the coming in of the ark of the covenant of Jehovah unto the camp, that all Israel shout — a great shout — and the earth is moved.
+**⁵** And it cometh to pass, at the coming in of the ark of the covenant of Jehovah unto the camp, that all Israel shout — a great shout — and the earth is moved.
 
-<sup>6</sup> And the Philistines hear the noise of the shouting, and say, 'What [is] the noise of this great shout in the camp of the Hebrews?' and they perceive that the ark of Jehovah hath come in unto the camp.
+**⁶** And the Philistines hear the noise of the shouting, and say, 'What [is] the noise of this great shout in the camp of the Hebrews?' and they perceive that the ark of Jehovah hath come in unto the camp.
 
-<sup>7</sup> And the Philistines are afraid, for they said, 'God hath come in unto the camp;' and they say, 'Woe to us, for there hath not been like this heretofore.
+**⁷** And the Philistines are afraid, for they said, 'God hath come in unto the camp;' and they say, 'Woe to us, for there hath not been like this heretofore.
 
-<sup>8</sup> Woe to us, who doth deliver us out of the hand of these honourable gods? these [are] the gods who are smiting the Egyptians with every plague in the wilderness.
+**⁸** Woe to us, who doth deliver us out of the hand of these honourable gods? these [are] the gods who are smiting the Egyptians with every plague in the wilderness.
 
-<sup>9</sup> Strengthen yourselves, and become men, O Philistines, lest ye do service to Hebrews, as they have done to you — then ye have become men, and have fought.'
+**⁹** Strengthen yourselves, and become men, O Philistines, lest ye do service to Hebrews, as they have done to you — then ye have become men, and have fought.'
 
-<sup>10</sup> And the Philistines fight, and Israel is smitten, and they flee each to his tents, and the blow is very great, and there fall of Israel thirty thousand footmen;
+**¹⁰** And the Philistines fight, and Israel is smitten, and they flee each to his tents, and the blow is very great, and there fall of Israel thirty thousand footmen;
 
-<sup>11</sup> and the ark of God hath been taken, and the two sons of Eli have died, Hophni and Phinehas.
+**¹¹** and the ark of God hath been taken, and the two sons of Eli have died, Hophni and Phinehas.
 
-<sup>12</sup> And a man of Benjamin runneth out of the ranks, and cometh into Shiloh, on that day, and his long robes [are] rent, and earth on his head;
+**¹²** And a man of Benjamin runneth out of the ranks, and cometh into Shiloh, on that day, and his long robes [are] rent, and earth on his head;
 
-<sup>13</sup> and he cometh in, and lo, Eli is sitting on the throne by the side of the way, watching, for his heart hath been trembling for the ark of God, and the man hath come in to declare [it] in the city, and all the city crieth out.
+**¹³** and he cometh in, and lo, Eli is sitting on the throne by the side of the way, watching, for his heart hath been trembling for the ark of God, and the man hath come in to declare [it] in the city, and all the city crieth out.
 
-<sup>14</sup> And Eli heareth the noise of the cry, and saith, 'What — the noise of this tumult!' And the man hasted, and cometh in, and declareth to Eli.
+**¹⁴** And Eli heareth the noise of the cry, and saith, 'What — the noise of this tumult!' And the man hasted, and cometh in, and declareth to Eli.
 
-<sup>15</sup> And Eli is a son of ninety and eight years, and his eyes have stood, and he hath not been able to see.
+**¹⁵** And Eli is a son of ninety and eight years, and his eyes have stood, and he hath not been able to see.
 
-<sup>16</sup> And the man saith unto Eli, 'I [am] he who hath come out of the ranks, and I out of the ranks have fled to-day;' and he saith, 'What hath been the matter, my son?'
+**¹⁶** And the man saith unto Eli, 'I [am] he who hath come out of the ranks, and I out of the ranks have fled to-day;' and he saith, 'What hath been the matter, my son?'
 
-<sup>17</sup> And he who is bearing tidings answereth and saith, 'Israel hath fled before the Philistines, and also a great slaughter hath been among the people, and also thy two sons have died — Hophni and Phinehas — and the ark of God hath been captured.'
+**¹⁷** And he who is bearing tidings answereth and saith, 'Israel hath fled before the Philistines, and also a great slaughter hath been among the people, and also thy two sons have died — Hophni and Phinehas — and the ark of God hath been captured.'
 
-<sup>18</sup> And it cometh to pass, at his mentioning the ark of God, that he falleth from off the throne backward, by the side of the gate, and his neck is broken, and he dieth, for the man [is] old and heavy, and he hath judged Israel forty years.
+**¹⁸** And it cometh to pass, at his mentioning the ark of God, that he falleth from off the throne backward, by the side of the gate, and his neck is broken, and he dieth, for the man [is] old and heavy, and he hath judged Israel forty years.
 
-<sup>19</sup> And his daughter-in-law, wife of Phinehas, [is] pregnant, about to bear, and she heareth the report of the taking of the ark of God, that her father-in-law and her husband have died, and she boweth, and beareth, for her pains have turned upon her.
+**¹⁹** And his daughter-in-law, wife of Phinehas, [is] pregnant, about to bear, and she heareth the report of the taking of the ark of God, that her father-in-law and her husband have died, and she boweth, and beareth, for her pains have turned upon her.
 
-<sup>20</sup> And at the time of her death, when the women who are standing by her say, 'Fear not, for a son thou hast borne,' she hath not answered, nor set her heart [to it];
+**²⁰** And at the time of her death, when the women who are standing by her say, 'Fear not, for a son thou hast borne,' she hath not answered, nor set her heart [to it];
 
-<sup>21</sup> and she calleth the youth I-Chabod, saying, 'Honour hath removed from Israel,' because of the taking of the ark of God, and because of her father-in-law and her husband.
+**²¹** and she calleth the youth I-Chabod, saying, 'Honour hath removed from Israel,' because of the taking of the ark of God, and because of her father-in-law and her husband.
 
-<sup>22</sup> And she saith, 'Honour hath removed from Israel, for the ark of God hath been taken.'
+**²²** And she saith, 'Honour hath removed from Israel, for the ark of God hath been taken.'

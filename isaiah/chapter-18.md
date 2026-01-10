@@ -1,15 +1,15 @@
 # Chapter 18
 
-<sup>1</sup> Ho, land shadowed [with] wings, That [is] beyond the rivers of Cush,
+**¹** Ho, land shadowed [with] wings, That [is] beyond the rivers of Cush,
 
-<sup>2</sup> That is sending by sea ambassadors, Even with implements of reed on the face of the waters, — Go, ye light messengers, Unto a nation drawn out and peeled, Unto a people fearful from its beginning and onwards, A nation meeting out by line, and treading down, Whose land floods have spoiled.
+**²** That is sending by sea ambassadors, Even with implements of reed on the face of the waters, — Go, ye light messengers, Unto a nation drawn out and peeled, Unto a people fearful from its beginning and onwards, A nation meeting out by line, and treading down, Whose land floods have spoiled.
 
-<sup>3</sup> All ye inhabitants of the world, And ye dwellers of earth, At the lifting up of an ensign on hills ye look, And at the blowing of a trumpet ye hear.
+**³** All ye inhabitants of the world, And ye dwellers of earth, At the lifting up of an ensign on hills ye look, And at the blowing of a trumpet ye hear.
 
-<sup>4</sup> For thus said Jehovah unto me, 'I rest, and I look on My settled place, As a clear heat on an herb. As a thick cloud of dew in the heat of harvest.
+**⁴** For thus said Jehovah unto me, 'I rest, and I look on My settled place, As a clear heat on an herb. As a thick cloud of dew in the heat of harvest.
 
-<sup>5</sup> For before harvest, when the flower is perfect, And the blossom is producing unripe fruit, Then hath [one] cut the sprigs with pruning hooks, And the branches he hath turned aside, cut down.
+**⁵** For before harvest, when the flower is perfect, And the blossom is producing unripe fruit, Then hath [one] cut the sprigs with pruning hooks, And the branches he hath turned aside, cut down.
 
-<sup>6</sup> They are left together to the ravenous fowl of the mountains, And to the beast of the earth, And summered on them hath the ravenous fowl, And every beast of the earth wintereth on them.
+**⁶** They are left together to the ravenous fowl of the mountains, And to the beast of the earth, And summered on them hath the ravenous fowl, And every beast of the earth wintereth on them.
 
-<sup>7</sup> At that time brought is a present to Jehovah of Hosts, A nation drawn out and peeled. Even of a people fearful from the beginning hitherto, A nation meting out by line, and treading down, Whose land floods have spoiled, Unto the place of the name of Jehovah of Hosts — mount Zion!'
+**⁷** At that time brought is a present to Jehovah of Hosts, A nation drawn out and peeled. Even of a people fearful from the beginning hitherto, A nation meting out by line, and treading down, Whose land floods have spoiled, Unto the place of the name of Jehovah of Hosts — mount Zion!'

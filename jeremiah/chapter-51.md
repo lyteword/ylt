@@ -1,129 +1,129 @@
 # Chapter 51
 
-<sup>1</sup> Thus said Jehovah: Lo, I am stirring up against Babylon, And the inhabitants of Leb — My withstanders, A destroying wind,
+**¹** Thus said Jehovah: Lo, I am stirring up against Babylon, And the inhabitants of Leb — My withstanders, A destroying wind,
 
-<sup>2</sup> And I have sent to Babylon fanners, And they have fanned it, and they empty its land, For they have been against it, Round about — in the day of evil.
+**²** And I have sent to Babylon fanners, And they have fanned it, and they empty its land, For they have been against it, Round about — in the day of evil.
 
-<sup>3</sup> Let not the treader tread his bow, Nor lift himself up in his coat of mail, Nor have ye pity on her young men, Devote ye to destruction all her host.
+**³** Let not the treader tread his bow, Nor lift himself up in his coat of mail, Nor have ye pity on her young men, Devote ye to destruction all her host.
 
-<sup>4</sup> And fallen have the wounded in the land of the Chaldeans, And the pierced-through in her streets.
+**⁴** And fallen have the wounded in the land of the Chaldeans, And the pierced-through in her streets.
 
-<sup>5</sup> For, not forsaken is Israel and Judah, By its God — by Jehovah of Hosts, For their land hath been full of guilt, Against the Holy One of Israel.
+**⁵** For, not forsaken is Israel and Judah, By its God — by Jehovah of Hosts, For their land hath been full of guilt, Against the Holy One of Israel.
 
-<sup>6</sup> Flee ye from the midst of Babylon, And deliver ye each his soul, Be not cut off in its iniquity, For a time of vengeance it [is] to Jehovah, Recompence He is rendering to her.
+**⁶** Flee ye from the midst of Babylon, And deliver ye each his soul, Be not cut off in its iniquity, For a time of vengeance it [is] to Jehovah, Recompence He is rendering to her.
 
-<sup>7</sup> A golden cup [is] Babylon in the hand of Jehovah, Making drunk all the earth, Of its wine drunk have nations, Therefore boast themselves do nations.
+**⁷** A golden cup [is] Babylon in the hand of Jehovah, Making drunk all the earth, Of its wine drunk have nations, Therefore boast themselves do nations.
 
-<sup>8</sup> Suddenly hath Babylon fallen, Yea, it is broken, howl ye for it, Take balm for her pain, if so be it may be healed.
+**⁸** Suddenly hath Babylon fallen, Yea, it is broken, howl ye for it, Take balm for her pain, if so be it may be healed.
 
-<sup>9</sup> We healed Babylon, and she was not healed, Forsake her, and we go, each to his land, For come unto the heavens hath its judgment, And it hath been lifted up unto the clouds.
+**⁹** We healed Babylon, and she was not healed, Forsake her, and we go, each to his land, For come unto the heavens hath its judgment, And it hath been lifted up unto the clouds.
 
-<sup>10</sup> Jehovah hath brought forth our righteousnesses, Come, and we recount in Zion the work of Jehovah our God.
+**¹⁰** Jehovah hath brought forth our righteousnesses, Come, and we recount in Zion the work of Jehovah our God.
 
-<sup>11</sup> Cleanse ye the arrows, fill the shields, Stirred up hath Jehovah the spirit of the kings of Madia, For against Babylon His device [is] to destroy it, For the vengeance of Jehovah it [is], The vengeance of His temple.
+**¹¹** Cleanse ye the arrows, fill the shields, Stirred up hath Jehovah the spirit of the kings of Madia, For against Babylon His device [is] to destroy it, For the vengeance of Jehovah it [is], The vengeance of His temple.
 
-<sup>12</sup> Unto the walls of Babylon lift up an ensign, Strengthen the watch, Establish the watchers, prepare the ambush, For Jehovah hath both devised and done that which He spake, Concerning the inhabitants of Babylon.
+**¹²** Unto the walls of Babylon lift up an ensign, Strengthen the watch, Establish the watchers, prepare the ambush, For Jehovah hath both devised and done that which He spake, Concerning the inhabitants of Babylon.
 
-<sup>13</sup> O dweller on many waters, abundant in treasures, Come in hath thine end, the measure of thy dishonest gain.
+**¹³** O dweller on many waters, abundant in treasures, Come in hath thine end, the measure of thy dishonest gain.
 
-<sup>14</sup> Sworn hath Jehovah of Hosts by Himself, That, Surely I have filled thee [with] men as the cankerworm, And they have cried against thee — shouting.
+**¹⁴** Sworn hath Jehovah of Hosts by Himself, That, Surely I have filled thee [with] men as the cankerworm, And they have cried against thee — shouting.
 
-<sup>15</sup> The maker of earth by His power, The establisher of the world by His wisdom, Who by His understanding stretched out the heavens,
+**¹⁵** The maker of earth by His power, The establisher of the world by His wisdom, Who by His understanding stretched out the heavens,
 
-<sup>16</sup> At the voice He giveth forth, A multitude of waters [are] in the heavens, And He causeth vapours to come up from the end of the earth, Lightnings for rain He hath made, And He bringeth out wind from His treasures.
+**¹⁶** At the voice He giveth forth, A multitude of waters [are] in the heavens, And He causeth vapours to come up from the end of the earth, Lightnings for rain He hath made, And He bringeth out wind from His treasures.
 
-<sup>17</sup> Brutish hath been every man by knowledge, Put to shame hath been every refiner by a graven image, For false [is] his molten image, And there is no breath in them.
+**¹⁷** Brutish hath been every man by knowledge, Put to shame hath been every refiner by a graven image, For false [is] his molten image, And there is no breath in them.
 
-<sup>18</sup> Vanity [are] they — work of errors, In the time of their inspection they perish.
+**¹⁸** Vanity [are] they — work of errors, In the time of their inspection they perish.
 
-<sup>19</sup> Not like these [is] the portion of Jacob, For He [is] former of all things, And [Israel is] the rod of His inheritance, Jehovah of Hosts [is] His name.
+**¹⁹** Not like these [is] the portion of Jacob, For He [is] former of all things, And [Israel is] the rod of His inheritance, Jehovah of Hosts [is] His name.
 
-<sup>20</sup> An axe [art] thou to me — weapons of war, And I have broken in pieces by thee nations, And I have destroyed by thee kingdoms,
+**²⁰** An axe [art] thou to me — weapons of war, And I have broken in pieces by thee nations, And I have destroyed by thee kingdoms,
 
-<sup>21</sup> And I have broken in pieces by thee horse and its rider, And I have broken in pieces by thee chariot and its charioteer,
+**²¹** And I have broken in pieces by thee horse and its rider, And I have broken in pieces by thee chariot and its charioteer,
 
-<sup>22</sup> And I have broken in pieces by thee man and woman, And I have broken in pieces by thee old and young, And I have broken in pieces by thee young man and virgin,
+**²²** And I have broken in pieces by thee man and woman, And I have broken in pieces by thee old and young, And I have broken in pieces by thee young man and virgin,
 
-<sup>23</sup> And I have broken in pieces by thee shepherd and his drove, And I have broken in pieces by thee husbandman and his team, And I have broken in pieces by thee governors and prefects.
+**²³** And I have broken in pieces by thee shepherd and his drove, And I have broken in pieces by thee husbandman and his team, And I have broken in pieces by thee governors and prefects.
 
-<sup>24</sup> And I have recompensed to Babylon, And to all inhabitants of Chaldea, All the evil that they have done in Zion, Before your eyes — an affirmation of Jehovah.
+**²⁴** And I have recompensed to Babylon, And to all inhabitants of Chaldea, All the evil that they have done in Zion, Before your eyes — an affirmation of Jehovah.
 
-<sup>25</sup> Lo, I [am] against thee, O destroying mount, An affirmation of Jehovah, That is destroying all the earth, And I have stretched out My hand against thee, And I have rolled thee from the rocks, And given thee for a burnt mountain.
+**²⁵** Lo, I [am] against thee, O destroying mount, An affirmation of Jehovah, That is destroying all the earth, And I have stretched out My hand against thee, And I have rolled thee from the rocks, And given thee for a burnt mountain.
 
-<sup>26</sup> And they take not out of thee a stone for a corner, And a stone for foundations, For desolations age-during art thou, An affirmation of Jehovah.
+**²⁶** And they take not out of thee a stone for a corner, And a stone for foundations, For desolations age-during art thou, An affirmation of Jehovah.
 
-<sup>27</sup> Lift ye up an ensign in the land, Blow a trumpet among nations, Sanctify against it nations, Summon against it the kingdoms of Ararat, Minni, and Ashkenaz, Appoint against it an infant head, Cause the horse to ascend as the rough cankerworm.
+**²⁷** Lift ye up an ensign in the land, Blow a trumpet among nations, Sanctify against it nations, Summon against it the kingdoms of Ararat, Minni, and Ashkenaz, Appoint against it an infant head, Cause the horse to ascend as the rough cankerworm.
 
-<sup>28</sup> Sanctify against it the nations with the kings of Media, Its governors and all its prefects, And all the land of its dominion.
+**²⁸** Sanctify against it the nations with the kings of Media, Its governors and all its prefects, And all the land of its dominion.
 
-<sup>29</sup> And shake doth the land, and it is pained, For stood against Babylon have the purposes of Jehovah, To make the land of Babylon a desolation without inhabitant.
+**²⁹** And shake doth the land, and it is pained, For stood against Babylon have the purposes of Jehovah, To make the land of Babylon a desolation without inhabitant.
 
-<sup>30</sup> Ceased have the mighty of Babylon to fight, They have remained in strongholds, Failed hath their might, they have become woman, They have burnt her tabernacles, Broken have been her bars.
+**³⁰** Ceased have the mighty of Babylon to fight, They have remained in strongholds, Failed hath their might, they have become woman, They have burnt her tabernacles, Broken have been her bars.
 
-<sup>31</sup> Runner to meet runner doth run, And announcer to meet announcer, To announce to the king of Babylon, For, captured hath been his city — at the extremity.
+**³¹** Runner to meet runner doth run, And announcer to meet announcer, To announce to the king of Babylon, For, captured hath been his city — at the extremity.
 
-<sup>32</sup> And the passages have been captured, And the reeds they have burnt with fire, And the men of war have been troubled.
+**³²** And the passages have been captured, And the reeds they have burnt with fire, And the men of war have been troubled.
 
-<sup>33</sup> For thus said Jehovah of Hosts, God of Israel, The daughter of Babylon [is] as a threshing-floor, The time of her threshing — yet a little, And come hath the time of her harvest.
+**³³** For thus said Jehovah of Hosts, God of Israel, The daughter of Babylon [is] as a threshing-floor, The time of her threshing — yet a little, And come hath the time of her harvest.
 
-<sup>34</sup> Devoured us, crushed us, hath Nebuchadrezzar king of Babylon, He hath set us [as] an empty vessel, He hath swallowed us as a dragon, He hath filled his belly with my dainties, He hath driven us away.
+**³⁴** Devoured us, crushed us, hath Nebuchadrezzar king of Babylon, He hath set us [as] an empty vessel, He hath swallowed us as a dragon, He hath filled his belly with my dainties, He hath driven us away.
 
-<sup>35</sup> My wrong, and [that of] my flesh [is] on Babylon, Say doth the inhabitant of Zion, And my blood [is] on the inhabitants of Chaldea, Say doth Jerusalem.
+**³⁵** My wrong, and [that of] my flesh [is] on Babylon, Say doth the inhabitant of Zion, And my blood [is] on the inhabitants of Chaldea, Say doth Jerusalem.
 
-<sup>36</sup> Therefore, thus said Jehovah: Lo, I am pleading thy cause, And I have avenged thy vengeance, And dried up its sea, and made its fountains dry.
+**³⁶** Therefore, thus said Jehovah: Lo, I am pleading thy cause, And I have avenged thy vengeance, And dried up its sea, and made its fountains dry.
 
-<sup>37</sup> And Babylon hath been for heaps, A habitation of dragons, An astonishment, and a hissing, without inhabitant.
+**³⁷** And Babylon hath been for heaps, A habitation of dragons, An astonishment, and a hissing, without inhabitant.
 
-<sup>38</sup> Together as young lions they roar, They have shaken themselves as lions' whelps.
+**³⁸** Together as young lions they roar, They have shaken themselves as lions' whelps.
 
-<sup>39</sup> In their heat I make their banquets, And I have caused them to drink, so that they exult, And have slept a sleep age-during, And awake not — an affirmation of Jehovah.
+**³⁹** In their heat I make their banquets, And I have caused them to drink, so that they exult, And have slept a sleep age-during, And awake not — an affirmation of Jehovah.
 
-<sup>40</sup> I cause them to go down as lambs to slaughter, As rams with he-goats.
+**⁴⁰** I cause them to go down as lambs to slaughter, As rams with he-goats.
 
-<sup>41</sup> How hath Sheshach been captured, Yea, caught is the praise of the whole earth, How hath Babylon been for an astonishment among nations.
+**⁴¹** How hath Sheshach been captured, Yea, caught is the praise of the whole earth, How hath Babylon been for an astonishment among nations.
 
-<sup>42</sup> Come up against Babylon hath the sea, With a multitude of its billows it hath been covered.
+**⁴²** Come up against Babylon hath the sea, With a multitude of its billows it hath been covered.
 
-<sup>43</sup> Its cities have been for a desolation, A dry land, and a wilderness, A land — none doth dwell in them, Nor pass over into them doth a son of man.
+**⁴³** Its cities have been for a desolation, A dry land, and a wilderness, A land — none doth dwell in them, Nor pass over into them doth a son of man.
 
-<sup>44</sup> And I have seen after Bel in Babylon, And I have brought forth that which he swallowed — from his mouth, And flow no more unto him do nations, Also the wall of Babylon hath fallen.
+**⁴⁴** And I have seen after Bel in Babylon, And I have brought forth that which he swallowed — from his mouth, And flow no more unto him do nations, Also the wall of Babylon hath fallen.
 
-<sup>45</sup> Go forth from its midst, O My people, And deliver ye, each his soul, Because of the fierceness of the anger of Jehovah,
+**⁴⁵** Go forth from its midst, O My people, And deliver ye, each his soul, Because of the fierceness of the anger of Jehovah,
 
-<sup>46</sup> And lest your heart be tender, And ye be afraid of the report that is heard in the land, And come in a year hath the report, And after it in a year the report, And violence [is] in the land, ruler against ruler;
+**⁴⁶** And lest your heart be tender, And ye be afraid of the report that is heard in the land, And come in a year hath the report, And after it in a year the report, And violence [is] in the land, ruler against ruler;
 
-<sup>47</sup> Therefore, lo, days are coming, And I have seen after the graven images of Babylon. And all its land is ashamed, And all its pierced ones do fall in its midst.
+**⁴⁷** Therefore, lo, days are coming, And I have seen after the graven images of Babylon. And all its land is ashamed, And all its pierced ones do fall in its midst.
 
-<sup>48</sup> And cried aloud against Babylon Have heavens and earth, and all that [is] in them, For, from the north come to it do the spoilers, An affirmation of Jehovah.
+**⁴⁸** And cried aloud against Babylon Have heavens and earth, and all that [is] in them, For, from the north come to it do the spoilers, An affirmation of Jehovah.
 
-<sup>49</sup> Even Babylon [is] to fall, ye pierced of Israel, Even they of Babylon have fallen, Ye pierced of all the earth.
+**⁴⁹** Even Babylon [is] to fall, ye pierced of Israel, Even they of Babylon have fallen, Ye pierced of all the earth.
 
-<sup>50</sup> Ye escaped of the sword, go on, stand not, Remember ye from afar Jehovah, And let Jerusalem come up on your heart.
+**⁵⁰** Ye escaped of the sword, go on, stand not, Remember ye from afar Jehovah, And let Jerusalem come up on your heart.
 
-<sup>51</sup> We have been ashamed, for we heard reproach, Covered hath shame our faces, For come in have strangers, against the sanctuaries of the house of Jehovah.
+**⁵¹** We have been ashamed, for we heard reproach, Covered hath shame our faces, For come in have strangers, against the sanctuaries of the house of Jehovah.
 
-<sup>52</sup> Therefore, lo, days are coming, An affirmation of Jehovah, And I have seen after its graven images, And in all its land groan doth the wounded.
+**⁵²** Therefore, lo, days are coming, An affirmation of Jehovah, And I have seen after its graven images, And in all its land groan doth the wounded.
 
-<sup>53</sup> Because Babylon goeth up to the heavens, And because it fenceth the high place of its strength, From Me come into it do spoilers, An affirmation of Jehovah.
+**⁵³** Because Babylon goeth up to the heavens, And because it fenceth the high place of its strength, From Me come into it do spoilers, An affirmation of Jehovah.
 
-<sup>54</sup> A voice of a cry [is] from Babylon, And of great destruction from the land of the Chaldean.
+**⁵⁴** A voice of a cry [is] from Babylon, And of great destruction from the land of the Chaldean.
 
-<sup>55</sup> For Jehovah is spoiling Babylon, And hath destroyed out of it a great voice, And sounded have its billows as many waters, Given forth a noise hath their voice.
+**⁵⁵** For Jehovah is spoiling Babylon, And hath destroyed out of it a great voice, And sounded have its billows as many waters, Given forth a noise hath their voice.
 
-<sup>56</sup> For come in against it — against Babylon — hath a spoiler, And captured have been its mighty ones, Broken have been their bows, For the God of recompences — Jehovah — doth certainly repay.
+**⁵⁶** For come in against it — against Babylon — hath a spoiler, And captured have been its mighty ones, Broken have been their bows, For the God of recompences — Jehovah — doth certainly repay.
 
-<sup>57</sup> And I have caused its princes to drink, And its wise men, its governors, And its prefects, and its mighty ones, And they have slept a sleep age-during, And they awake not — an affirmation of the king, Jehovah of Hosts [is] His name.
+**⁵⁷** And I have caused its princes to drink, And its wise men, its governors, And its prefects, and its mighty ones, And they have slept a sleep age-during, And they awake not — an affirmation of the king, Jehovah of Hosts [is] His name.
 
-<sup>58</sup> Thus said Jehovah of Hosts, the wall of Babylon — The broad one — is utterly made bare, And her high gates with fire are burnt, And peoples labour in vain, And nations in fire, and have been weary!
+**⁵⁸** Thus said Jehovah of Hosts, the wall of Babylon — The broad one — is utterly made bare, And her high gates with fire are burnt, And peoples labour in vain, And nations in fire, and have been weary!
 
-<sup>59</sup> The word that Jeremiah the prophet hath commanded Seraiah son of Neriah, son of Maaseiah, in his going with Zedekiah king of Judah to Babylon, in the fourth year of his reign — and Seraiah [is] a quiet prince;
+**⁵⁹** The word that Jeremiah the prophet hath commanded Seraiah son of Neriah, son of Maaseiah, in his going with Zedekiah king of Judah to Babylon, in the fourth year of his reign — and Seraiah [is] a quiet prince;
 
-<sup>60</sup> and Jeremiah writeth all the evil that cometh unto Babylon on one book — all these words that are written concerning Babylon.
+**⁶⁰** and Jeremiah writeth all the evil that cometh unto Babylon on one book — all these words that are written concerning Babylon.
 
-<sup>61</sup> And Jeremiah saith unto Seraiah, 'When thou dost enter Babylon, then thou hast seen, and hast read all these words,
+**⁶¹** And Jeremiah saith unto Seraiah, 'When thou dost enter Babylon, then thou hast seen, and hast read all these words,
 
-<sup>62</sup> and hast said: Jehovah, Thou, Thou hast spoken concerning this place, to cut it off, that there is none dwelling in it, from man even unto cattle, for it is a desolation age-during.
+**⁶²** and hast said: Jehovah, Thou, Thou hast spoken concerning this place, to cut it off, that there is none dwelling in it, from man even unto cattle, for it is a desolation age-during.
 
-<sup>63</sup> And it hath come to pass, when thou dost finish reading this book, thou dost bind to it a stone, and hast cast it into the midst of Phrat,
+**⁶³** And it hath come to pass, when thou dost finish reading this book, thou dost bind to it a stone, and hast cast it into the midst of Phrat,
 
-<sup>64</sup> and said, Thus sink doth Babylon, and it doth not arise, because of the evil that I am bringing in against it, and they have been weary.' Hitherto [are] words of Jeremiah.
+**⁶⁴** and said, Thus sink doth Babylon, and it doth not arise, because of the evil that I am bringing in against it, and they have been weary.' Hitherto [are] words of Jeremiah.

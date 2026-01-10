@@ -1,81 +1,81 @@
 # Chapter 25
 
-<sup>1</sup> And Jehovah speaketh unto Moses, saying,
+**¹** And Jehovah speaketh unto Moses, saying,
 
-<sup>2</sup> 'Speak unto the sons of Israel, and they take for Me a heave-offering; from every man whose heart impelleth him ye do take My heave-offering.
+**²** 'Speak unto the sons of Israel, and they take for Me a heave-offering; from every man whose heart impelleth him ye do take My heave-offering.
 
-<sup>3</sup> 'And this [is] the heave-offering which ye take from them; gold, and silver, and brass,
+**³** 'And this [is] the heave-offering which ye take from them; gold, and silver, and brass,
 
-<sup>4</sup> and blue, and purple, and scarlet, and linen, and goats' [hair],
+**⁴** and blue, and purple, and scarlet, and linen, and goats' [hair],
 
-<sup>5</sup> and rams' skins made red, and badgers' skins, and shittim wood,
+**⁵** and rams' skins made red, and badgers' skins, and shittim wood,
 
-<sup>6</sup> oil for the light, spices for the anointing oil, and for the perfume of the spices,
+**⁶** oil for the light, spices for the anointing oil, and for the perfume of the spices,
 
-<sup>7</sup> shoham stones, and stones for setting for an ephod, and for a breastplate.
+**⁷** shoham stones, and stones for setting for an ephod, and for a breastplate.
 
-<sup>8</sup> 'And they have made for Me a sanctuary, and I have tabernacled in their midst;
+**⁸** 'And they have made for Me a sanctuary, and I have tabernacled in their midst;
 
-<sup>9</sup> according to all that which I am shewing thee, the pattern of the tabernacle, and the pattern of all its vessels, even so ye do make [it].
+**⁹** according to all that which I am shewing thee, the pattern of the tabernacle, and the pattern of all its vessels, even so ye do make [it].
 
-<sup>10</sup> 'And they have made an ark of shittim wood; two cubits and a half its length, and a cubit and a half its breadth, and a cubit and a half its height;
+**¹⁰** 'And they have made an ark of shittim wood; two cubits and a half its length, and a cubit and a half its breadth, and a cubit and a half its height;
 
-<sup>11</sup> and thou hast overlaid it [with] pure gold, within and without thou dost overlay it, and thou hast made on it a ring of gold round about.
+**¹¹** and thou hast overlaid it [with] pure gold, within and without thou dost overlay it, and thou hast made on it a ring of gold round about.
 
-<sup>12</sup> 'And thou hast cast for it four rings of gold, and hast put [them] on its four feet, even two rings on its one side, and two rings on its second side;
+**¹²** 'And thou hast cast for it four rings of gold, and hast put [them] on its four feet, even two rings on its one side, and two rings on its second side;
 
-<sup>13</sup> and thou hast made staves of shittim wood, and hast overlaid them [with] gold,
+**¹³** and thou hast made staves of shittim wood, and hast overlaid them [with] gold,
 
-<sup>14</sup> and hast brought the staves into the rings on the sides of the ark, to bear the ark by them,
+**¹⁴** and hast brought the staves into the rings on the sides of the ark, to bear the ark by them,
 
-<sup>15</sup> in the rings of the ark are the staves, they are not turned aside from it;
+**¹⁵** in the rings of the ark are the staves, they are not turned aside from it;
 
-<sup>16</sup> and thou hast put unto the ark the testimony which I give unto thee.
+**¹⁶** and thou hast put unto the ark the testimony which I give unto thee.
 
-<sup>17</sup> 'And thou hast made a mercy-seat of pure gold, two cubits and a half its length, and a cubit and a half its breadth;
+**¹⁷** 'And thou hast made a mercy-seat of pure gold, two cubits and a half its length, and a cubit and a half its breadth;
 
-<sup>18</sup> and thou hast made two cherubs of gold, beaten work dost thou make them, at the two ends of the mercy-seat;
+**¹⁸** and thou hast made two cherubs of gold, beaten work dost thou make them, at the two ends of the mercy-seat;
 
-<sup>19</sup> and make thou one cherub at the end on this side, and one cherub at the end on that; at the mercy-seat ye do make the cherubs on its two ends.
+**¹⁹** and make thou one cherub at the end on this side, and one cherub at the end on that; at the mercy-seat ye do make the cherubs on its two ends.
 
-<sup>20</sup> 'And the cherubs have been spreading out wings on high, covering the mercy-seat over with their wings, and their faces [are] one towards another — towards the mercy-seat are the faces of the cherubs.
+**²⁰** 'And the cherubs have been spreading out wings on high, covering the mercy-seat over with their wings, and their faces [are] one towards another — towards the mercy-seat are the faces of the cherubs.
 
-<sup>21</sup> 'And thou hast put the mercy-seat on the ark above, and unto the ark thou dost put the testimony which I give unto thee;
+**²¹** 'And thou hast put the mercy-seat on the ark above, and unto the ark thou dost put the testimony which I give unto thee;
 
-<sup>22</sup> and I have met with thee there, and have spoken with thee from off the mercy-seat (from between the two cherubs, which [are] on the ark of the testimony) all that which I command thee concerning the sons of Israel.
+**²²** and I have met with thee there, and have spoken with thee from off the mercy-seat (from between the two cherubs, which [are] on the ark of the testimony) all that which I command thee concerning the sons of Israel.
 
-<sup>23</sup> 'And thou hast made a table of shittim wood, two cubits its length, and a cubit its breadth, and a cubit and a half its height,
+**²³** 'And thou hast made a table of shittim wood, two cubits its length, and a cubit its breadth, and a cubit and a half its height,
 
-<sup>24</sup> and hast overlaid it [with] pure gold, and hast made for it a crown of gold round about,
+**²⁴** and hast overlaid it [with] pure gold, and hast made for it a crown of gold round about,
 
-<sup>25</sup> and hast made for it a border of a handbreadth round about, and hast made a crown of gold to its border round about.
+**²⁵** and hast made for it a border of a handbreadth round about, and hast made a crown of gold to its border round about.
 
-<sup>26</sup> 'And thou hast made to it four rings of gold, and hast put the rings on the four corners, which [are] to its four feet;
+**²⁶** 'And thou hast made to it four rings of gold, and hast put the rings on the four corners, which [are] to its four feet;
 
-<sup>27</sup> over-against the border are the rings for places for staves to bear the table;
+**²⁷** over-against the border are the rings for places for staves to bear the table;
 
-<sup>28</sup> and thou hast made the staves of shittim wood, and hast overlaid them with gold, and the table hath been borne with them;
+**²⁸** and thou hast made the staves of shittim wood, and hast overlaid them with gold, and the table hath been borne with them;
 
-<sup>29</sup> and thou hast made its dishes, and its bowls, and its covers, and its cups, with which they pour out; of pure gold thou dost make them;
+**²⁹** and thou hast made its dishes, and its bowls, and its covers, and its cups, with which they pour out; of pure gold thou dost make them;
 
-<sup>30</sup> and thou hast put on the table bread of the presence before Me continually.
+**³⁰** and thou hast put on the table bread of the presence before Me continually.
 
-<sup>31</sup> 'And thou hast made a candlestick of pure gold, of beaten work is the candlestick made; its base, and its branch, its calyxes, its knops, and its flowers are of the same;
+**³¹** 'And thou hast made a candlestick of pure gold, of beaten work is the candlestick made; its base, and its branch, its calyxes, its knops, and its flowers are of the same;
 
-<sup>32</sup> and six branches are coming out of its sides, three branches of the candlestick out of the one side, and three branches of the candlestick out of the second side;
+**³²** and six branches are coming out of its sides, three branches of the candlestick out of the one side, and three branches of the candlestick out of the second side;
 
-<sup>33</sup> three calyxes made like almonds in the one branch, a knop and a flower, and three calyxes made like almonds in one branch, a knop and a flower; so for the six branches which are coming out from the candlestick.
+**³³** three calyxes made like almonds in the one branch, a knop and a flower, and three calyxes made like almonds in one branch, a knop and a flower; so for the six branches which are coming out from the candlestick.
 
-<sup>34</sup> 'And in the candlestick [are] four calyxes made like almonds, its knops and its flowers;
+**³⁴** 'And in the candlestick [are] four calyxes made like almonds, its knops and its flowers;
 
-<sup>35</sup> and a knop under two branches of the same, and a knop under two branches of the same, and a knop under two branches of the same, [are] to the six branches which are coming out of the candlestick;
+**³⁵** and a knop under two branches of the same, and a knop under two branches of the same, and a knop under two branches of the same, [are] to the six branches which are coming out of the candlestick;
 
-<sup>36</sup> their knops and their branches are of the same, all of it one beaten work of pure gold;
+**³⁶** their knops and their branches are of the same, all of it one beaten work of pure gold;
 
-<sup>37</sup> and thou hast made its seven lamps, and [one] hath caused its lights to go up, and it hath given light over-against its front.
+**³⁷** and thou hast made its seven lamps, and [one] hath caused its lights to go up, and it hath given light over-against its front.
 
-<sup>38</sup> 'And its snuffers and its snuff dishes [are] of pure gold;
+**³⁸** 'And its snuffers and its snuff dishes [are] of pure gold;
 
-<sup>39</sup> of a talent of pure gold he doth make it, with all these vessels.
+**³⁹** of a talent of pure gold he doth make it, with all these vessels.
 
-<sup>40</sup> And see thou and do [them] by their pattern which thou art shewn in the mount.
+**⁴⁰** And see thou and do [them] by their pattern which thou art shewn in the mount.

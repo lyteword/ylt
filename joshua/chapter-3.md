@@ -1,35 +1,35 @@
 # Chapter 3
 
-<sup>1</sup> And Joshua riseth early in the morning, and they journey from Shittim, and come in unto the Jordan, he and all the sons of Israel, and they lodge there before they pass over.
+**¹** And Joshua riseth early in the morning, and they journey from Shittim, and come in unto the Jordan, he and all the sons of Israel, and they lodge there before they pass over.
 
-<sup>2</sup> And it cometh to pass, at the end of three days, that the authorities pass over into the midst of the camp,
+**²** And it cometh to pass, at the end of three days, that the authorities pass over into the midst of the camp,
 
-<sup>3</sup> and command the people, saying, 'When ye see the ark of the covenant of Jehovah your God, and the priests, the Levites, bearing it, then ye journey from your place, and have gone after it;
+**³** and command the people, saying, 'When ye see the ark of the covenant of Jehovah your God, and the priests, the Levites, bearing it, then ye journey from your place, and have gone after it;
 
-<sup>4</sup> only, a distance is between you and it, about two thousand cubits by measure; ye do not come near unto it, so that ye know the way in which ye go, for ye have not passed over in the way heretofore.'
+**⁴** only, a distance is between you and it, about two thousand cubits by measure; ye do not come near unto it, so that ye know the way in which ye go, for ye have not passed over in the way heretofore.'
 
-<sup>5</sup> And Joshua saith unto the people, 'Sanctify yourselves, for to-morrow doth Jehovah do in your midst wonders.'
+**⁵** And Joshua saith unto the people, 'Sanctify yourselves, for to-morrow doth Jehovah do in your midst wonders.'
 
-<sup>6</sup> And Joshua speaketh unto the priests, saying, 'Take up the ark of the covenant, and pass over before the people;' and they take up the ark of the covenant, and go before the people.
+**⁶** And Joshua speaketh unto the priests, saying, 'Take up the ark of the covenant, and pass over before the people;' and they take up the ark of the covenant, and go before the people.
 
-<sup>7</sup> And Jehovah saith unto Joshua, 'This day I begin to make thee great in the eyes of all Israel, so that they know that as I was with Moses I am with thee;
+**⁷** And Jehovah saith unto Joshua, 'This day I begin to make thee great in the eyes of all Israel, so that they know that as I was with Moses I am with thee;
 
-<sup>8</sup> and thou, thou dost command the priests bearing the ark of the covenant, saying, When ye come unto the extremity of the waters of the Jordan — in the Jordan ye stand.'
+**⁸** and thou, thou dost command the priests bearing the ark of the covenant, saying, When ye come unto the extremity of the waters of the Jordan — in the Jordan ye stand.'
 
-<sup>9</sup> And Joshua saith unto the sons of Israel, 'Come nigh hither, and hear the words of Jehovah your God;
+**⁹** And Joshua saith unto the sons of Israel, 'Come nigh hither, and hear the words of Jehovah your God;
 
-<sup>10</sup> and Joshua saith, 'By this ye know that the living God [is] in your midst, and He doth certainly dispossess from before you the Canaanite, and the Hittite, and the Hivite, and the Perizzite, and the Girgashite, and the Amorite, and the Jebusite:
+**¹⁰** and Joshua saith, 'By this ye know that the living God [is] in your midst, and He doth certainly dispossess from before you the Canaanite, and the Hittite, and the Hivite, and the Perizzite, and the Girgashite, and the Amorite, and the Jebusite:
 
-<sup>11</sup> lo, the ark of the covenant of the Lord of all the earth is passing over before you into Jordan;
+**¹¹** lo, the ark of the covenant of the Lord of all the earth is passing over before you into Jordan;
 
-<sup>12</sup> and now, take for you twelve men out of the tribes of Israel, one man — one man for a tribe;
+**¹²** and now, take for you twelve men out of the tribes of Israel, one man — one man for a tribe;
 
-<sup>13</sup> and it hath been, at the resting of the soles of the feet of the priests bearing the ark of Jehovah, Lord of all the earth, in the waters of the Jordan, the waters of the Jordan are cut off — the waters which are coming down from above — and they stand — one heap.'
+**¹³** and it hath been, at the resting of the soles of the feet of the priests bearing the ark of Jehovah, Lord of all the earth, in the waters of the Jordan, the waters of the Jordan are cut off — the waters which are coming down from above — and they stand — one heap.'
 
-<sup>14</sup> And it cometh to pass, in the journeying of the people from their tents to pass over the Jordan, and of the priests bearing the ark of the covenant before the people,
+**¹⁴** And it cometh to pass, in the journeying of the people from their tents to pass over the Jordan, and of the priests bearing the ark of the covenant before the people,
 
-<sup>15</sup> and at those bearing the ark coming in unto the Jordan, and the feet of the priests bearing the ark have been dipped in the extremity of the waters (and the Jordan is full over all its banks all the days of harvest) —
+**¹⁵** and at those bearing the ark coming in unto the Jordan, and the feet of the priests bearing the ark have been dipped in the extremity of the waters (and the Jordan is full over all its banks all the days of harvest) —
 
-<sup>16</sup> that the waters stand; those coming down from above have risen — one heap, very far above Adam the city, which [is] at the side of Zaretan; and those going down by the sea of the plain, the Salt Sea, have been completely cut off; and the people have passed through over-against Jericho;
+**¹⁶** that the waters stand; those coming down from above have risen — one heap, very far above Adam the city, which [is] at the side of Zaretan; and those going down by the sea of the plain, the Salt Sea, have been completely cut off; and the people have passed through over-against Jericho;
 
-<sup>17</sup> and the priests bearing the ark of the covenant of Jehovah stand on dry ground in the midst of the Jordan — established, and all Israel are passing over on dry ground till that all the nation hath completed to pass over the Jordan.
+**¹⁷** and the priests bearing the ark of the covenant of Jehovah stand on dry ground in the midst of the Jordan — established, and all Israel are passing over on dry ground till that all the nation hath completed to pass over the Jordan.

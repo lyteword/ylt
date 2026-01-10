@@ -1,27 +1,27 @@
 # Chapter 31
 
-<sup>1</sup> And the Philistines are fighting against Israel, and the men of Israel flee from the face of the Philistines, and fall wounded in mount Gilboa,
+**¹** And the Philistines are fighting against Israel, and the men of Israel flee from the face of the Philistines, and fall wounded in mount Gilboa,
 
-<sup>2</sup> and the Philistines follow Saul and his sons, and the Philistines smite Jonathan, and Abinadab, and Malchishua, sons of Saul.
+**²** and the Philistines follow Saul and his sons, and the Philistines smite Jonathan, and Abinadab, and Malchishua, sons of Saul.
 
-<sup>3</sup> And the battle is hard against Saul, and the archers find him — men with bow — and he is pained greatly by the archers;
+**³** And the battle is hard against Saul, and the archers find him — men with bow — and he is pained greatly by the archers;
 
-<sup>4</sup> and Saul saith to the bearer of his weapons, 'Draw thy sword, and pierce me with it, lest they come — these uncircumcised — and have pierced me, and rolled themselves on me;' and the bearer of his weapons hath not been willing, for he is greatly afraid, and Saul taketh the sword, and falleth upon it.
+**⁴** and Saul saith to the bearer of his weapons, 'Draw thy sword, and pierce me with it, lest they come — these uncircumcised — and have pierced me, and rolled themselves on me;' and the bearer of his weapons hath not been willing, for he is greatly afraid, and Saul taketh the sword, and falleth upon it.
 
-<sup>5</sup> And the bearer of his weapons seeth that Saul [is] dead, and he falleth — he also — on his sword, and dieth with him;
+**⁵** And the bearer of his weapons seeth that Saul [is] dead, and he falleth — he also — on his sword, and dieth with him;
 
-<sup>6</sup> and Saul dieth, and three of his sons, and the bearer of his weapons, also all his men, on that day together.
+**⁶** and Saul dieth, and three of his sons, and the bearer of his weapons, also all his men, on that day together.
 
-<sup>7</sup> And they see — the men of Israel, who [are] beyond the valley, and who [are] beyond the Jordan — that the men of Israel have fled, and that Saul and his sons have died, and they forsake the cities and flee, and Philistines come in, and dwell in them.
+**⁷** And they see — the men of Israel, who [are] beyond the valley, and who [are] beyond the Jordan — that the men of Israel have fled, and that Saul and his sons have died, and they forsake the cities and flee, and Philistines come in, and dwell in them.
 
-<sup>8</sup> And it cometh to pass on the morrow, that the Philistines come to strip the wounded, and they find Saul and his three sons fallen on mount Gilboa,
+**⁸** And it cometh to pass on the morrow, that the Philistines come to strip the wounded, and they find Saul and his three sons fallen on mount Gilboa,
 
-<sup>9</sup> and they cut off his head, and strip off his weapons, and send into the land of the Philistines round about, to proclaim tidings [in] the house of their idols, and [among] the people;
+**⁹** and they cut off his head, and strip off his weapons, and send into the land of the Philistines round about, to proclaim tidings [in] the house of their idols, and [among] the people;
 
-<sup>10</sup> and they place his weapons [in] the house of Ashtaroth, and his body they have fixed on the wall of Beth-Shan.
+**¹⁰** and they place his weapons [in] the house of Ashtaroth, and his body they have fixed on the wall of Beth-Shan.
 
-<sup>11</sup> And they hear regarding it — the inhabitants of Jabesh-Gilead — that which the Philistines have done to Saul,
+**¹¹** And they hear regarding it — the inhabitants of Jabesh-Gilead — that which the Philistines have done to Saul,
 
-<sup>12</sup> and all the men of valour arise, and go all the night, and take the body of Saul, and the bodies of his sons, from the wall of Beth-Shan, and come in to Jabesh, and burn them there,
+**¹²** and all the men of valour arise, and go all the night, and take the body of Saul, and the bodies of his sons, from the wall of Beth-Shan, and come in to Jabesh, and burn them there,
 
-<sup>13</sup> and they take their bones, and bury [them] under the tamarisk in Jabesh, and fast seven days.
+**¹³** and they take their bones, and bury [them] under the tamarisk in Jabesh, and fast seven days.

@@ -1,67 +1,67 @@
 # Chapter 34
 
-<sup>1</sup> A son of eight years [is] Josiah in his reigning, and thirty and one years he hath reigned in Jerusalem,
+**¹** A son of eight years [is] Josiah in his reigning, and thirty and one years he hath reigned in Jerusalem,
 
-<sup>2</sup> and he doth that which is right in the eyes of Jehovah, and walketh in the ways of David his father, and hath not turned aside — right or left.
+**²** and he doth that which is right in the eyes of Jehovah, and walketh in the ways of David his father, and hath not turned aside — right or left.
 
-<sup>3</sup> And in the eighth year of his reign (and he yet a youth), he hath begun to seek to the God of David his father, and in the twelfth year he hath begun to cleanse Judah and Jerusalem from the high places, and the shrines, and the graven images, and the molten images.
+**³** And in the eighth year of his reign (and he yet a youth), he hath begun to seek to the God of David his father, and in the twelfth year he hath begun to cleanse Judah and Jerusalem from the high places, and the shrines, and the graven images, and the molten images.
 
-<sup>4</sup> And they break down before him the altars of the Baalim, and the images that [are] on high above them he hath cut down, and the shrines, and the graven images, and the molten images, he hath broken and beaten small, and streweth on the surface of the graves of those sacrificing to them,
+**⁴** And they break down before him the altars of the Baalim, and the images that [are] on high above them he hath cut down, and the shrines, and the graven images, and the molten images, he hath broken and beaten small, and streweth on the surface of the graves of those sacrificing to them,
 
-<sup>5</sup> and the bones of the priests he hath burnt on their altars, and cleanseth Judah and Jerusalem,
+**⁵** and the bones of the priests he hath burnt on their altars, and cleanseth Judah and Jerusalem,
 
-<sup>6</sup> and in the cities of Manasseh, and Ephraim, and Simeon, even unto Naphtali, with their tools, round about.
+**⁶** and in the cities of Manasseh, and Ephraim, and Simeon, even unto Naphtali, with their tools, round about.
 
-<sup>7</sup> And he breaketh down the altars and the shrines, and the graven images he hath beaten down very small, and all the images he hath cut down in all the land of Israel, and turneth back to Jerusalem.
+**⁷** And he breaketh down the altars and the shrines, and the graven images he hath beaten down very small, and all the images he hath cut down in all the land of Israel, and turneth back to Jerusalem.
 
-<sup>8</sup> And in the eighteenth year of his reign, to purify the land and the house he hath sent Shaphan son of Azaliah, and Maaseiah head of the city, and Joah son of Johaz the remembrancer, to strengthen the house of Jehovah his God.
+**⁸** And in the eighteenth year of his reign, to purify the land and the house he hath sent Shaphan son of Azaliah, and Maaseiah head of the city, and Joah son of Johaz the remembrancer, to strengthen the house of Jehovah his God.
 
-<sup>9</sup> And they come in unto Hilkiah the high priest, and they give the money that is brought in to the house of God, that the Levites, keeping the threshold, have gathered from the hand of Manasseh, and Ephraim, and from all the remnant of Israel, and from all Judah, and Benjamin, and the inhabitants of Jerusalem,
+**⁹** And they come in unto Hilkiah the high priest, and they give the money that is brought in to the house of God, that the Levites, keeping the threshold, have gathered from the hand of Manasseh, and Ephraim, and from all the remnant of Israel, and from all Judah, and Benjamin, and the inhabitants of Jerusalem,
 
-<sup>10</sup> and they give [it] into the hand of the workmen, those appointed over the house of Jehovah, and they give it [to] the workmen who are working in the house of Jehovah, to repair and to strengthen the house;
+**¹⁰** and they give [it] into the hand of the workmen, those appointed over the house of Jehovah, and they give it [to] the workmen who are working in the house of Jehovah, to repair and to strengthen the house;
 
-<sup>11</sup> and they give [it] to artificers, and to builders, to buy hewn stones, and wood for couplings and for beams to the houses that the kings of Judah had destroyed.
+**¹¹** and they give [it] to artificers, and to builders, to buy hewn stones, and wood for couplings and for beams to the houses that the kings of Judah had destroyed.
 
-<sup>12</sup> And the men are working faithfully in the business, and over them are appointed Jahath and Obadiah, the Levites, of the sons of Merari, and Zechariah and Meshullam, of the sons of the Kohathite, to overlook; and of the Levites, every one understanding about instruments of song,
+**¹²** And the men are working faithfully in the business, and over them are appointed Jahath and Obadiah, the Levites, of the sons of Merari, and Zechariah and Meshullam, of the sons of the Kohathite, to overlook; and of the Levites, every one understanding about instruments of song,
 
-<sup>13</sup> and over the burden-bearers, and overseers of every one doing work for service and service; and of the Levites [are] scribes, and officers, and gatekeepers.
+**¹³** and over the burden-bearers, and overseers of every one doing work for service and service; and of the Levites [are] scribes, and officers, and gatekeepers.
 
-<sup>14</sup> And in their bringing out the money that is brought in to the house of Jehovah, hath Hilkiah the priest found the book of the law of Jehovah by the hand of Moses,
+**¹⁴** And in their bringing out the money that is brought in to the house of Jehovah, hath Hilkiah the priest found the book of the law of Jehovah by the hand of Moses,
 
-<sup>15</sup> and Hilkiah answereth and saith unto Shaphan the scribe, 'A book of the law I have found in the house of Jehovah;' and Hilkiah giveth the book unto Shaphan,
+**¹⁵** and Hilkiah answereth and saith unto Shaphan the scribe, 'A book of the law I have found in the house of Jehovah;' and Hilkiah giveth the book unto Shaphan,
 
-<sup>16</sup> and Shaphan bringeth in the book unto the king, and bringeth the king back word again, saying, 'All that hath been given into the hand of thy servants they are doing,
+**¹⁶** and Shaphan bringeth in the book unto the king, and bringeth the king back word again, saying, 'All that hath been given into the hand of thy servants they are doing,
 
-<sup>17</sup> and they pour out the money that is found in the house of Jehovah, and give it into the hand of those appointed, and into the hands of those doing the work.'
+**¹⁷** and they pour out the money that is found in the house of Jehovah, and give it into the hand of those appointed, and into the hands of those doing the work.'
 
-<sup>18</sup> And Shaphan the scribe declareth to the king, saying, 'A book hath Hilkiah the priest given to me;' and Shaphan readeth in it before the king.
+**¹⁸** And Shaphan the scribe declareth to the king, saying, 'A book hath Hilkiah the priest given to me;' and Shaphan readeth in it before the king.
 
-<sup>19</sup> And it cometh to pass, at the king's hearing the words of the law, that he rendeth his garments,
+**¹⁹** And it cometh to pass, at the king's hearing the words of the law, that he rendeth his garments,
 
-<sup>20</sup> and the king commandeth Hilkiah, and Ahikam son of Shaphan, and Abdon son of Micah, and Shaphan the scribe, and Asaiah, servant of the king, saying,
+**²⁰** and the king commandeth Hilkiah, and Ahikam son of Shaphan, and Abdon son of Micah, and Shaphan the scribe, and Asaiah, servant of the king, saying,
 
-<sup>21</sup> 'Go, seek Jehovah for me, and for him who is left in Israel and in Judah, concerning the words of the book that is found, for great [is] the fury of Jehovah that is poured on us, because that our fathers kept not the word of Jehovah, to do according to all that is written on this book.'
+**²¹** 'Go, seek Jehovah for me, and for him who is left in Israel and in Judah, concerning the words of the book that is found, for great [is] the fury of Jehovah that is poured on us, because that our fathers kept not the word of Jehovah, to do according to all that is written on this book.'
 
-<sup>22</sup> And Hilkiah goeth, and they of the king, unto Huldah the prophetess, wife of Shallum son of Tikvath, son of Hasrah, keeper of the garments, and she is dwelling in Jerusalem in the Second, and they speak unto her thus.
+**²²** And Hilkiah goeth, and they of the king, unto Huldah the prophetess, wife of Shallum son of Tikvath, son of Hasrah, keeper of the garments, and she is dwelling in Jerusalem in the Second, and they speak unto her thus.
 
-<sup>23</sup> And she saith to them, 'Thus said Jehovah, God of Israel, Say to the man who hath sent you unto me,
+**²³** And she saith to them, 'Thus said Jehovah, God of Israel, Say to the man who hath sent you unto me,
 
-<sup>24</sup> Thus said Jehovah, Lo, I am bringing in evil on this place, and on its inhabitants, all the execrations that are written on the book that they read before the king of Judah;
+**²⁴** Thus said Jehovah, Lo, I am bringing in evil on this place, and on its inhabitants, all the execrations that are written on the book that they read before the king of Judah;
 
-<sup>25</sup> because that they have forsaken Me, and make perfume to other gods, so as to provoke Me with all the works of their hands, and poured out is My fury upon this place, and it is not quenched.
+**²⁵** because that they have forsaken Me, and make perfume to other gods, so as to provoke Me with all the works of their hands, and poured out is My fury upon this place, and it is not quenched.
 
-<sup>26</sup> 'And unto the king of Judah, who is sending you to inquire of Jehovah, thus do ye say unto him: Thus said Jehovah God of Israel, whose words thou hast heard:
+**²⁶** 'And unto the king of Judah, who is sending you to inquire of Jehovah, thus do ye say unto him: Thus said Jehovah God of Israel, whose words thou hast heard:
 
-<sup>27</sup> Because thy heart [is] tender, and thou art humbled before God in thy hearing His words concerning this place, and concerning its inhabitants, and art humbled before Me, and dost rend thy garments, and weep before Me: even I also have heard — the affirmation of Jehovah.
+**²⁷** Because thy heart [is] tender, and thou art humbled before God in thy hearing His words concerning this place, and concerning its inhabitants, and art humbled before Me, and dost rend thy garments, and weep before Me: even I also have heard — the affirmation of Jehovah.
 
-<sup>28</sup> Lo, I am gathering thee unto thy fathers, and thou hast been gathered unto thy graves in peace, and thine eyes do not look on all the evil that I am bringing upon this place, and upon its inhabitants;' and they bring the king back word.
+**²⁸** Lo, I am gathering thee unto thy fathers, and thou hast been gathered unto thy graves in peace, and thine eyes do not look on all the evil that I am bringing upon this place, and upon its inhabitants;' and they bring the king back word.
 
-<sup>29</sup> And the king sendeth and gathereth all the elders of Judah and Jerusalem,
+**²⁹** And the king sendeth and gathereth all the elders of Judah and Jerusalem,
 
-<sup>30</sup> and the king goeth up to the house of Jehovah, and every man of Judah, and the inhabitants of Jerusalem, and the priests, and the Levites, even all the people, from great even unto small, and he readeth in their ears all the words of the book of the covenant that is found in the house of Jehovah.
+**³⁰** and the king goeth up to the house of Jehovah, and every man of Judah, and the inhabitants of Jerusalem, and the priests, and the Levites, even all the people, from great even unto small, and he readeth in their ears all the words of the book of the covenant that is found in the house of Jehovah.
 
-<sup>31</sup> And the king standeth on his station, and maketh the covenant before Jehovah, to walk after Jehovah, and to keep His commands, and His testimonies, and His statutes, with all his heart, and with all his soul, to do the words of the covenant that are written on this book.
+**³¹** And the king standeth on his station, and maketh the covenant before Jehovah, to walk after Jehovah, and to keep His commands, and His testimonies, and His statutes, with all his heart, and with all his soul, to do the words of the covenant that are written on this book.
 
-<sup>32</sup> And he presenteth every one who is found in Jerusalem and Benjamin, and the inhabitants of Jerusalem do according to the covenant of God, the God of their fathers.
+**³²** And he presenteth every one who is found in Jerusalem and Benjamin, and the inhabitants of Jerusalem do according to the covenant of God, the God of their fathers.
 
-<sup>33</sup> And Josiah turneth aside all the abominations out of all the lands that the sons of Israel have, and causeth every one who is found in Israel to serve, to serve Jehovah their God; all his days they turned not aside from after Jehovah, God of their fathers.
+**³³** And Josiah turneth aside all the abominations out of all the lands that the sons of Israel have, and causeth every one who is found in Israel to serve, to serve Jehovah their God; all his days they turned not aside from after Jehovah, God of their fathers.

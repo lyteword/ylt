@@ -1,45 +1,45 @@
 # Chapter 36
 
-<sup>1</sup> And it cometh to pass, in the fourteenth year of king Hezekiah, come up hath Sennacherib king of Asshur against all the fenced cities of Judah, and seizeth them.
+**¹** And it cometh to pass, in the fourteenth year of king Hezekiah, come up hath Sennacherib king of Asshur against all the fenced cities of Judah, and seizeth them.
 
-<sup>2</sup> And the king of Asshur sendeth Rabshakeh from Lachish to Jerusalem, unto the king Hezekiah, with a heavy force, and he standeth by the conduit of the upper pool, in the highway of the fuller's field,
+**²** And the king of Asshur sendeth Rabshakeh from Lachish to Jerusalem, unto the king Hezekiah, with a heavy force, and he standeth by the conduit of the upper pool, in the highway of the fuller's field,
 
-<sup>3</sup> and go forth unto him doth Eliakim son of Hilkiah, who [is] over the house, and Shebna the scribe, and Joah son of Asaph, the remembrancer.
+**³** and go forth unto him doth Eliakim son of Hilkiah, who [is] over the house, and Shebna the scribe, and Joah son of Asaph, the remembrancer.
 
-<sup>4</sup> And Rabshakeh saith unto them, 'Say ye, I pray you, unto Hezekiah, 'Thus said the great king, the king of Asshur, What [is] this confidence in which thou hast confided?
+**⁴** And Rabshakeh saith unto them, 'Say ye, I pray you, unto Hezekiah, 'Thus said the great king, the king of Asshur, What [is] this confidence in which thou hast confided?
 
-<sup>5</sup> I have said: Only, a word of the lips! counsel and might [are] for battle: now, on whom hast thou trusted, that thou hast rebelled against me?
+**⁵** I have said: Only, a word of the lips! counsel and might [are] for battle: now, on whom hast thou trusted, that thou hast rebelled against me?
 
-<sup>6</sup> 'Lo, thou hast trusted on the staff of this broken reed — on Egypt — which a man leaneth on, and it hath gone into his hand, and pierced it — so [is] Pharaoh king of Egypt to all those trusting on him.
+**⁶** 'Lo, thou hast trusted on the staff of this broken reed — on Egypt — which a man leaneth on, and it hath gone into his hand, and pierced it — so [is] Pharaoh king of Egypt to all those trusting on him.
 
-<sup>7</sup> 'And dost thou say unto me, Unto Jehovah our God we have trusted? is it not He, whose high places and whose altars Hezekiah hath turned aside, and saith to Judah and to Jerusalem, Before this altar ye do bow yourselves?
+**⁷** 'And dost thou say unto me, Unto Jehovah our God we have trusted? is it not He, whose high places and whose altars Hezekiah hath turned aside, and saith to Judah and to Jerusalem, Before this altar ye do bow yourselves?
 
-<sup>8</sup> 'And now, negotiate, I pray thee, with my lord the king of Asshur, and I give to thee two thousand horses, if thou art able to put for thee riders on them.
+**⁸** 'And now, negotiate, I pray thee, with my lord the king of Asshur, and I give to thee two thousand horses, if thou art able to put for thee riders on them.
 
-<sup>9</sup> And how dost thou turn back the face of one captain of the least of the servants of my lord, and dost trust for thee on Egypt, for chariot and for horsemen?
+**⁹** And how dost thou turn back the face of one captain of the least of the servants of my lord, and dost trust for thee on Egypt, for chariot and for horsemen?
 
-<sup>10</sup> And now, without Jehovah have I come up against this land to destroy it? Jehovah said unto me, Go up unto this land, and thou hast destroyed it.'
+**¹⁰** And now, without Jehovah have I come up against this land to destroy it? Jehovah said unto me, Go up unto this land, and thou hast destroyed it.'
 
-<sup>11</sup> And Eliakim saith — and Shebna and Joah — unto Rabshakeh, 'Speak, we pray thee, unto thy servants [in] Aramaean, for we are understanding; and do not speak unto us [in] Jewish, in the ears of the people who [are] on the wall.'
+**¹¹** And Eliakim saith — and Shebna and Joah — unto Rabshakeh, 'Speak, we pray thee, unto thy servants [in] Aramaean, for we are understanding; and do not speak unto us [in] Jewish, in the ears of the people who [are] on the wall.'
 
-<sup>12</sup> And Rabshakeh saith, 'Unto thy lord, and unto thee, hath my lord sent me to speak these words? is it not for the men — those sitting on the wall to eat their own dung and to drink their own water with you?'
+**¹²** And Rabshakeh saith, 'Unto thy lord, and unto thee, hath my lord sent me to speak these words? is it not for the men — those sitting on the wall to eat their own dung and to drink their own water with you?'
 
-<sup>13</sup> And Rabshakeh standeth and calleth with a great voice [in] Jewish, and saith, 'Hear ye the words of the great king, the king of Asshur:
+**¹³** And Rabshakeh standeth and calleth with a great voice [in] Jewish, and saith, 'Hear ye the words of the great king, the king of Asshur:
 
-<sup>14</sup> Thus said the king, Let not Hezekiah lift you up, for he is not able to deliver you;
+**¹⁴** Thus said the king, Let not Hezekiah lift you up, for he is not able to deliver you;
 
-<sup>15</sup> and let not Hezekiah make you trust unto Jehovah, saying, Jehovah doth certainly deliver us, this city is not given into the hand of the king of Asshur.
+**¹⁵** and let not Hezekiah make you trust unto Jehovah, saying, Jehovah doth certainly deliver us, this city is not given into the hand of the king of Asshur.
 
-<sup>16</sup> 'Do not hearken unto Hezekiah, for thus said the king of Asshur, Make ye with me a blessing, and come out unto me, and eat ye each of his vine, and each of his fig-tree, and drink ye each the waters of his own well,
+**¹⁶** 'Do not hearken unto Hezekiah, for thus said the king of Asshur, Make ye with me a blessing, and come out unto me, and eat ye each of his vine, and each of his fig-tree, and drink ye each the waters of his own well,
 
-<sup>17</sup> till my coming in, and I have taken you unto a land like your own land, a land of corn and wine, a land of bread and vineyards;
+**¹⁷** till my coming in, and I have taken you unto a land like your own land, a land of corn and wine, a land of bread and vineyards;
 
-<sup>18</sup> lest Hezekiah doth persuade you, saying, Jehovah doth deliver us. 'Have the gods of the nations delivered each his land out of the hand of the king of Asshur?
+**¹⁸** lest Hezekiah doth persuade you, saying, Jehovah doth deliver us. 'Have the gods of the nations delivered each his land out of the hand of the king of Asshur?
 
-<sup>19</sup> Where [are] the gods of Hamath and Arpad? Where the gods of Sepharvaim, that they have delivered Samaria out of my hand?
+**¹⁹** Where [are] the gods of Hamath and Arpad? Where the gods of Sepharvaim, that they have delivered Samaria out of my hand?
 
-<sup>20</sup> Who among all the gods of these lands [are] they who have delivered their land out of my hand, that Jehovah doth deliver Jerusalem out of my hand?'
+**²⁰** Who among all the gods of these lands [are] they who have delivered their land out of my hand, that Jehovah doth deliver Jerusalem out of my hand?'
 
-<sup>21</sup> And they keep silent, and have not answered him a word, for a command of the king is, saying, 'Do not answer him.'
+**²¹** And they keep silent, and have not answered him a word, for a command of the king is, saying, 'Do not answer him.'
 
-<sup>22</sup> And Eliakim son of Hilkiah, who [is] over the house, cometh in, and Shebna the scribe, and Joah son of Asaph, the remembrancer, unto Hezekiah with rent garments, and they declare to him the words of Rabshakeh.
+**²²** And Eliakim son of Hilkiah, who [is] over the house, cometh in, and Shebna the scribe, and Joah son of Asaph, the remembrancer, unto Hezekiah with rent garments, and they declare to him the words of Rabshakeh.

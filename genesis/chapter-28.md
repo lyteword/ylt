@@ -1,45 +1,45 @@
 # Chapter 28
 
-<sup>1</sup> And Isaac calleth unto Jacob, and blesseth him, and commandeth him, and saith to him, 'Thou dost not take a wife of the daughters of Caanan;
+**¹** And Isaac calleth unto Jacob, and blesseth him, and commandeth him, and saith to him, 'Thou dost not take a wife of the daughters of Caanan;
 
-<sup>2</sup> rise, go to Padan-Aram, to the house of Bethuel, thy mother's father, and take for thyself from thence a wife, of the daughters of Laban, thy mother's brother;
+**²** rise, go to Padan-Aram, to the house of Bethuel, thy mother's father, and take for thyself from thence a wife, of the daughters of Laban, thy mother's brother;
 
-<sup>3</sup> and God Almighty doth bless thee, and make thee fruitful, and multiply thee, and thou hast become an assembly of peoples;
+**³** and God Almighty doth bless thee, and make thee fruitful, and multiply thee, and thou hast become an assembly of peoples;
 
-<sup>4</sup> and He doth give to thee the blessing of Abraham, to thee and to thy seed with thee, to cause thee to possess the land of thy sojournings, which God gave to Abraham.'
+**⁴** and He doth give to thee the blessing of Abraham, to thee and to thy seed with thee, to cause thee to possess the land of thy sojournings, which God gave to Abraham.'
 
-<sup>5</sup> And Isaac sendeth away Jacob, and he goeth to Padan-Aram, unto Laban, son of Bethuel the Aramaean, brother of Rebekah, mother of Jacob and Esau.
+**⁵** And Isaac sendeth away Jacob, and he goeth to Padan-Aram, unto Laban, son of Bethuel the Aramaean, brother of Rebekah, mother of Jacob and Esau.
 
-<sup>6</sup> And Esau seeth that Isaac hath blessed Jacob, and hath sent him to Padan-Aram to take to himself from thence a wife — in his blessing him that he layeth a charge upon him, saying, Thou dost not take a wife from the daughters of Canaan —
+**⁶** And Esau seeth that Isaac hath blessed Jacob, and hath sent him to Padan-Aram to take to himself from thence a wife — in his blessing him that he layeth a charge upon him, saying, Thou dost not take a wife from the daughters of Canaan —
 
-<sup>7</sup> that Jacob hearkeneth unto his father and unto his mother, and goeth to Padan-Aram —
+**⁷** that Jacob hearkeneth unto his father and unto his mother, and goeth to Padan-Aram —
 
-<sup>8</sup> and Esau seeth that the daughters of Canaan are evil in the eyes of Isaac his father,
+**⁸** and Esau seeth that the daughters of Canaan are evil in the eyes of Isaac his father,
 
-<sup>9</sup> and Esau goeth unto Ishmael, and taketh Mahalath, daughter of Ishmael, Abraham's son, sister of Nebajoth, unto his wives, to himself, for a wife.
+**⁹** and Esau goeth unto Ishmael, and taketh Mahalath, daughter of Ishmael, Abraham's son, sister of Nebajoth, unto his wives, to himself, for a wife.
 
-<sup>10</sup> And Jacob goeth out from Beer-Sheba, and goeth toward Haran,
+**¹⁰** And Jacob goeth out from Beer-Sheba, and goeth toward Haran,
 
-<sup>11</sup> and he toucheth at a [certain] place, and lodgeth there, for the sun hath gone in, and he taketh of the stones of the place, and maketh [them] his pillows, and lieth down in that place.
+**¹¹** and he toucheth at a [certain] place, and lodgeth there, for the sun hath gone in, and he taketh of the stones of the place, and maketh [them] his pillows, and lieth down in that place.
 
-<sup>12</sup> And he dreameth, and lo, a ladder set up on the earth, and its head is touching the heavens; and lo, messengers of God are going up and coming down by it;
+**¹²** And he dreameth, and lo, a ladder set up on the earth, and its head is touching the heavens; and lo, messengers of God are going up and coming down by it;
 
-<sup>13</sup> and lo, Jehovah is standing upon it, and He saith, 'I [am] Jehovah, God of Abraham thy father, and God of Isaac; the land on which thou art lying, to thee I give it, and to thy seed;
+**¹³** and lo, Jehovah is standing upon it, and He saith, 'I [am] Jehovah, God of Abraham thy father, and God of Isaac; the land on which thou art lying, to thee I give it, and to thy seed;
 
-<sup>14</sup> and thy seed hath been as the dust of the land, and thou hast broken forth westward, and eastward, and northward, and southward, and all families of the ground have been blessed in thee and in thy seed.
+**¹⁴** and thy seed hath been as the dust of the land, and thou hast broken forth westward, and eastward, and northward, and southward, and all families of the ground have been blessed in thee and in thy seed.
 
-<sup>15</sup> 'And lo, I [am] with thee, and have kept thee whithersoever thou goest, and have caused thee to turn back unto this ground; for I leave thee not till that I have surely done that which I have spoken to thee.'
+**¹⁵** 'And lo, I [am] with thee, and have kept thee whithersoever thou goest, and have caused thee to turn back unto this ground; for I leave thee not till that I have surely done that which I have spoken to thee.'
 
-<sup>16</sup> And Jacob awaketh out of his sleep, and saith, 'Surely Jehovah is in this place, and I knew not;'
+**¹⁶** And Jacob awaketh out of his sleep, and saith, 'Surely Jehovah is in this place, and I knew not;'
 
-<sup>17</sup> and he feareth, and saith, 'How fearful [is] this place; this is nothing but a house of God, and this a gate of the heavens.'
+**¹⁷** and he feareth, and saith, 'How fearful [is] this place; this is nothing but a house of God, and this a gate of the heavens.'
 
-<sup>18</sup> And Jacob riseth early in the morning, and taketh the stone which he hath made his pillows, and maketh it a standing pillar, and poureth oil upon its top,
+**¹⁸** And Jacob riseth early in the morning, and taketh the stone which he hath made his pillows, and maketh it a standing pillar, and poureth oil upon its top,
 
-<sup>19</sup> and he calleth the name of that place Bethel, [house of God,] and yet, Luz [is] the name of the city at the first.
+**¹⁹** and he calleth the name of that place Bethel, [house of God,] and yet, Luz [is] the name of the city at the first.
 
-<sup>20</sup> And Jacob voweth a vow, saying, 'Seeing God is with me, and hath kept me in this way which I am going, and hath given to me bread to eat, and a garment to put on —
+**²⁰** And Jacob voweth a vow, saying, 'Seeing God is with me, and hath kept me in this way which I am going, and hath given to me bread to eat, and a garment to put on —
 
-<sup>21</sup> when I have turned back in peace unto the house of my father, and Jehovah hath become my God,
+**²¹** when I have turned back in peace unto the house of my father, and Jehovah hath become my God,
 
-<sup>22</sup> then this stone which I have made a standing pillar is a house of God, and all that Thou dost give to me — tithing I tithe to Thee.'
+**²²** then this stone which I have made a standing pillar is a house of God, and all that Thou dost give to me — tithing I tithe to Thee.'

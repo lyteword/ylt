@@ -1,37 +1,37 @@
 # Chapter 8
 
-<sup>1</sup> And it cometh to pass, at the end of twenty years, that Solomon hath built the house of Jehovah, and his own house.
+**¹** And it cometh to pass, at the end of twenty years, that Solomon hath built the house of Jehovah, and his own house.
 
-<sup>2</sup> As to the cities that Huram hath given to Solomon, Solomon hath built them, and there he causeth the sons of Israel to dwell.
+**²** As to the cities that Huram hath given to Solomon, Solomon hath built them, and there he causeth the sons of Israel to dwell.
 
-<sup>3</sup> And Solomon goeth to Hamath-Zobah, and layeth hold upon it;
+**³** And Solomon goeth to Hamath-Zobah, and layeth hold upon it;
 
-<sup>4</sup> and he buildeth Tadmor in the wilderness, and all the cities of store that he hath built in Hamath.
+**⁴** and he buildeth Tadmor in the wilderness, and all the cities of store that he hath built in Hamath.
 
-<sup>5</sup> And he buildeth Beth-Horon the upper, and Beth-Horon the lower — cities of defence, with walls, two-leaved doors, and bar —
+**⁵** And he buildeth Beth-Horon the upper, and Beth-Horon the lower — cities of defence, with walls, two-leaved doors, and bar —
 
-<sup>6</sup> and Baalath, and all the cities of store that Solomon had, and all the cities of the chariot, and the cities of the horsemen, and all the desire of Solomon that he desired to build in Jerusalem, and in Lebanon, and in all the land of his dominion.
+**⁶** and Baalath, and all the cities of store that Solomon had, and all the cities of the chariot, and the cities of the horsemen, and all the desire of Solomon that he desired to build in Jerusalem, and in Lebanon, and in all the land of his dominion.
 
-<sup>7</sup> All the people who are left of the Hittite, and the Amorite, and the Perizzite, and the Hivite, and the Jebusite, who are not of Israel —
+**⁷** All the people who are left of the Hittite, and the Amorite, and the Perizzite, and the Hivite, and the Jebusite, who are not of Israel —
 
-<sup>8</sup> of their sons who have been left after them in the land, whom the sons of Israel consumed not — doth Solomon lift up a tribute unto this day.
+**⁸** of their sons who have been left after them in the land, whom the sons of Israel consumed not — doth Solomon lift up a tribute unto this day.
 
-<sup>9</sup> And none of the sons of Israel hath Solomon made servants for his work, but they [are] men of war, and heads of his captains, and heads of his charioteers, and of his horsemen;
+**⁹** And none of the sons of Israel hath Solomon made servants for his work, but they [are] men of war, and heads of his captains, and heads of his charioteers, and of his horsemen;
 
-<sup>10</sup> and these [are] heads of the officers whom king Solomon hath, two hundred and fifty who are rulers among the people.
+**¹⁰** and these [are] heads of the officers whom king Solomon hath, two hundred and fifty who are rulers among the people.
 
-<sup>11</sup> And the daughter of Pharaoh hath Solomon brought up from the city of David to the house that he built for her, for he said, 'My wife doth not dwell in the house of David king of Israel, for they are holy unto whom hath come the ark of Jehovah.'
+**¹¹** And the daughter of Pharaoh hath Solomon brought up from the city of David to the house that he built for her, for he said, 'My wife doth not dwell in the house of David king of Israel, for they are holy unto whom hath come the ark of Jehovah.'
 
-<sup>12</sup> Then hath Solomon caused to ascend burnt-offerings to Jehovah on the altar of Jehovah that he built before the porch,
+**¹²** Then hath Solomon caused to ascend burnt-offerings to Jehovah on the altar of Jehovah that he built before the porch,
 
-<sup>13</sup> even by the matter of a day in its day, to cause to ascend according to the command of Moses, on sabbaths, and on new moons, and on appointed seasons, three times in a year — in the feast of unleavened things, and in the feast of weeks, and in the feast of booths.
+**¹³** even by the matter of a day in its day, to cause to ascend according to the command of Moses, on sabbaths, and on new moons, and on appointed seasons, three times in a year — in the feast of unleavened things, and in the feast of weeks, and in the feast of booths.
 
-<sup>14</sup> And he establisheth, according to the ordinance of David his father, the courses of the priests over their service, and of the Levites over their charges, to praise and to minister over-against the priests, according to the matter of a day in its day, and the gatekeepers in their courses at gate and gate, for so [is] the command of David the man of God.
+**¹⁴** And he establisheth, according to the ordinance of David his father, the courses of the priests over their service, and of the Levites over their charges, to praise and to minister over-against the priests, according to the matter of a day in its day, and the gatekeepers in their courses at gate and gate, for so [is] the command of David the man of God.
 
-<sup>15</sup> And they have not turned aside [from] the command of the king concerning the priests and the Levites, in reference to any matter, and to the treasures.
+**¹⁵** And they have not turned aside [from] the command of the king concerning the priests and the Levites, in reference to any matter, and to the treasures.
 
-<sup>16</sup> And all the work of Solomon is prepared till the day of the foundation of the house of Jehovah, and till its completion; perfect is the house of Jehovah.
+**¹⁶** And all the work of Solomon is prepared till the day of the foundation of the house of Jehovah, and till its completion; perfect is the house of Jehovah.
 
-<sup>17</sup> Then hath Solomon gone to Ezion-Geber, and unto Elath, on the border of the sea, in the land of Edom;
+**¹⁷** Then hath Solomon gone to Ezion-Geber, and unto Elath, on the border of the sea, in the land of Edom;
 
-<sup>18</sup> and Huram sendeth to him, by the hand of his servants, ships and servants knowing the sea, and they go with servants of Solomon to Ophir, and take thence four hundred and fifty talents of gold, and bring in unto king Solomon.
+**¹⁸** and Huram sendeth to him, by the hand of his servants, ships and servants knowing the sea, and they go with servants of Solomon to Ophir, and take thence four hundred and fifty talents of gold, and bring in unto king Solomon.

@@ -1,23 +1,23 @@
 # Chapter 4
 
-<sup>1</sup> And it is grievous unto Jonah — a great evil — and he is displeased at it;
+**¹** And it is grievous unto Jonah — a great evil — and he is displeased at it;
 
-<sup>2</sup> and he prayeth unto Jehovah, and he saith, 'I pray Thee, O Jehovah, is not this my word while I was in mine own land — therefore I was beforehand to flee to Tarshish — that I have known that Thou [art] a God, gracious and merciful, slow to anger, and abundant in kindness, and repenting of evil?
+**²** and he prayeth unto Jehovah, and he saith, 'I pray Thee, O Jehovah, is not this my word while I was in mine own land — therefore I was beforehand to flee to Tarshish — that I have known that Thou [art] a God, gracious and merciful, slow to anger, and abundant in kindness, and repenting of evil?
 
-<sup>3</sup> And now, O Jehovah, take, I pray Thee, my soul from me, for better [is] my death than my life.'
+**³** And now, O Jehovah, take, I pray Thee, my soul from me, for better [is] my death than my life.'
 
-<sup>4</sup> And Jehovah saith, 'Is doing good displeasing to thee?'
+**⁴** And Jehovah saith, 'Is doing good displeasing to thee?'
 
-<sup>5</sup> And Jonah goeth forth from the city, and sitteth on the east of the city, and maketh to himself there a booth, and sitteth under it in the shade, till that he seeth what is in the city.
+**⁵** And Jonah goeth forth from the city, and sitteth on the east of the city, and maketh to himself there a booth, and sitteth under it in the shade, till that he seeth what is in the city.
 
-<sup>6</sup> And Jehovah God appointeth a gourd, and causeth it to come up over Jonah, to be a shade over his head, to give deliverance to him from his affliction, and Jonah rejoiceth because of the gourd [with] great joy.
+**⁶** And Jehovah God appointeth a gourd, and causeth it to come up over Jonah, to be a shade over his head, to give deliverance to him from his affliction, and Jonah rejoiceth because of the gourd [with] great joy.
 
-<sup>7</sup> And God appointeth a worm at the going up of the dawn on the morrow, and it smiteth the gourd, and it drieth up.
+**⁷** And God appointeth a worm at the going up of the dawn on the morrow, and it smiteth the gourd, and it drieth up.
 
-<sup>8</sup> And it cometh to pass, about the rising of the sun, that God appointeth a cutting east wind, and the sun smiteth on the head of Jonah, and he wrappeth himself up, and asketh his soul to die, and saith, 'Better [is] my death than my life.'
+**⁸** And it cometh to pass, about the rising of the sun, that God appointeth a cutting east wind, and the sun smiteth on the head of Jonah, and he wrappeth himself up, and asketh his soul to die, and saith, 'Better [is] my death than my life.'
 
-<sup>9</sup> And God saith unto Jonah: 'Is doing good displeasing to thee, because of the gourd?' and he saith, 'To do good is displeasing to me — unto death.'
+**⁹** And God saith unto Jonah: 'Is doing good displeasing to thee, because of the gourd?' and he saith, 'To do good is displeasing to me — unto death.'
 
-<sup>10</sup> And Jehovah saith, 'Thou hast had pity on the gourd, for which thou didst not labour, neither didst thou nourish it, which a son of a night was, and a son of a night perished,
+**¹⁰** And Jehovah saith, 'Thou hast had pity on the gourd, for which thou didst not labour, neither didst thou nourish it, which a son of a night was, and a son of a night perished,
 
-<sup>11</sup> and I — have not I pity on Nineveh, the great city, in which there are more than twelve myriads of human beings, who have not known between their right hand and their left — and much cattle!'
+**¹¹** and I — have not I pity on Nineveh, the great city, in which there are more than twelve myriads of human beings, who have not known between their right hand and their left — and much cattle!'

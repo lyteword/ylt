@@ -1,93 +1,93 @@
 # Chapter 50
 
-<sup>1</sup> The word that Jehovah hath spoken concerning Babylon, concerning the land of the Chaldeans, by the hand of Jeremiah the prophet:
+**¹** The word that Jehovah hath spoken concerning Babylon, concerning the land of the Chaldeans, by the hand of Jeremiah the prophet:
 
-<sup>2</sup> 'Declare ye among nations, and sound, And lift up an ensign, sound, do not hide, Say ye: Captured hath been Babylon, Put to shame hath been Bel, Broken hath been Merodach, Put to shame have been her grievous things, Broken have been her idols.
+**²** 'Declare ye among nations, and sound, And lift up an ensign, sound, do not hide, Say ye: Captured hath been Babylon, Put to shame hath been Bel, Broken hath been Merodach, Put to shame have been her grievous things, Broken have been her idols.
 
-<sup>3</sup> For come up against her hath a nation from the north, It maketh her land become a desolation, And there is not an inhabitant in it. From man even unto beast, They have moved, they have gone.
+**³** For come up against her hath a nation from the north, It maketh her land become a desolation, And there is not an inhabitant in it. From man even unto beast, They have moved, they have gone.
 
-<sup>4</sup> In those days, and at that time, An affirmation of Jehovah, Come in do sons of Israel, They and sons of Judah together, Going on and weeping they go, And Jehovah their God they seek.
+**⁴** In those days, and at that time, An affirmation of Jehovah, Come in do sons of Israel, They and sons of Judah together, Going on and weeping they go, And Jehovah their God they seek.
 
-<sup>5</sup> [To] Zion they ask the way, Thitherward [are] their faces: Come in, and we are joined unto Jehovah, A covenant age-during — not forgotten.
+**⁵** [To] Zion they ask the way, Thitherward [are] their faces: Come in, and we are joined unto Jehovah, A covenant age-during — not forgotten.
 
-<sup>6</sup> A perishing flock hath My people been, Their shepherds have caused them to err, [To] the mountains causing them to go back, From mountain unto hill they have gone, They have forgotten their crouching-place.
+**⁶** A perishing flock hath My people been, Their shepherds have caused them to err, [To] the mountains causing them to go back, From mountain unto hill they have gone, They have forgotten their crouching-place.
 
-<sup>7</sup> All finding them have devoured them, And their adversaries have said: We are not guilty, Because that they sinned against Jehovah, The habitation of righteousness, And the hope of their fathers — Jehovah.
+**⁷** All finding them have devoured them, And their adversaries have said: We are not guilty, Because that they sinned against Jehovah, The habitation of righteousness, And the hope of their fathers — Jehovah.
 
-<sup>8</sup> Move ye from the midst of Babylon, And from the land of the Chaldeans go out. And be as he-goats before a flock.
+**⁸** Move ye from the midst of Babylon, And from the land of the Chaldeans go out. And be as he-goats before a flock.
 
-<sup>9</sup> For, lo, I am stirring up, And am causing to come up against Babylon, An assembly of great nations from a land of the north, And they have set in array against her, From thence she is captured, Its arrow — as a skilful hero — returneth not empty,
+**⁹** For, lo, I am stirring up, And am causing to come up against Babylon, An assembly of great nations from a land of the north, And they have set in array against her, From thence she is captured, Its arrow — as a skilful hero — returneth not empty,
 
-<sup>10</sup> And Chaldea hath been for a spoil, All her spoilers are satisfied, An affirmation of Jehovah.
+**¹⁰** And Chaldea hath been for a spoil, All her spoilers are satisfied, An affirmation of Jehovah.
 
-<sup>11</sup> Because thou rejoicest, because thou exultest, O spoilers of Mine inheritance, Because thou increasest as a heifer [at] the tender grass, And dost cry aloud as bulls,
+**¹¹** Because thou rejoicest, because thou exultest, O spoilers of Mine inheritance, Because thou increasest as a heifer [at] the tender grass, And dost cry aloud as bulls,
 
-<sup>12</sup> Ashamed hath been your mother greatly, Confounded hath she been that bare you, Lo, the hindermost of nations [is] a wilderness, A dry land, and a desert.
+**¹²** Ashamed hath been your mother greatly, Confounded hath she been that bare you, Lo, the hindermost of nations [is] a wilderness, A dry land, and a desert.
 
-<sup>13</sup> Because of the wrath of Jehovah it is not inhabited, And it hath been a desolation — all of it. Every passer by at Babylon is astonished, And doth hiss because of all her plagues.
+**¹³** Because of the wrath of Jehovah it is not inhabited, And it hath been a desolation — all of it. Every passer by at Babylon is astonished, And doth hiss because of all her plagues.
 
-<sup>14</sup> Set yourselves in array against Babylon round about, All ye treading a bow, Shoot at her, have no pity on the arrow, For against Jehovah she hath sinned.
+**¹⁴** Set yourselves in array against Babylon round about, All ye treading a bow, Shoot at her, have no pity on the arrow, For against Jehovah she hath sinned.
 
-<sup>15</sup> Shout against her round about, She hath given forth her hand, Fallen have her foundations, Thrown down have been her walls, For it [is] the vengeance of Jehovah, Be avenged of her, as she did — do ye to her.
+**¹⁵** Shout against her round about, She hath given forth her hand, Fallen have her foundations, Thrown down have been her walls, For it [is] the vengeance of Jehovah, Be avenged of her, as she did — do ye to her.
 
-<sup>16</sup> Cut off the sower from Babylon, And him handling the sickle in the time of harvest, Because of the oppressing sword, Each unto his people — they turn, And each to his land — they flee.
+**¹⁶** Cut off the sower from Babylon, And him handling the sickle in the time of harvest, Because of the oppressing sword, Each unto his people — they turn, And each to his land — they flee.
 
-<sup>17</sup> A scattered sheep is Israel, lions have driven away, At first, devour him did the king of Asshur, And now, at last, broken his bone Hath Nebuchadrezzar king of Babylon.
+**¹⁷** A scattered sheep is Israel, lions have driven away, At first, devour him did the king of Asshur, And now, at last, broken his bone Hath Nebuchadrezzar king of Babylon.
 
-<sup>18</sup> Therefore thus said Jehovah of Hosts, God of Israel: Lo, I am seeing after the king of Babylon, And after his land, As I have seen after the king of Asshur;
+**¹⁸** Therefore thus said Jehovah of Hosts, God of Israel: Lo, I am seeing after the king of Babylon, And after his land, As I have seen after the king of Asshur;
 
-<sup>19</sup> And I have brought back Israel unto his habitation, And he hath fed on Carmel, and on Bashan. And in mount Ephraim, and on Gilead is his soul satisfied.
+**¹⁹** And I have brought back Israel unto his habitation, And he hath fed on Carmel, and on Bashan. And in mount Ephraim, and on Gilead is his soul satisfied.
 
-<sup>20</sup> In those days, and at that time, An affirmation of Jehovah, Sought is the iniquity of Israel, and it is not, And the sin of Judah, and it is not found, For I am propitious to those whom I leave!
+**²⁰** In those days, and at that time, An affirmation of Jehovah, Sought is the iniquity of Israel, and it is not, And the sin of Judah, and it is not found, For I am propitious to those whom I leave!
 
-<sup>21</sup> Against the land of Merathaim: Go up against it, and unto the inhabitants of Pekod, Waste and devote their posterity, An affirmation of Jehovah, And do according to all that I have commanded thee.
+**²¹** Against the land of Merathaim: Go up against it, and unto the inhabitants of Pekod, Waste and devote their posterity, An affirmation of Jehovah, And do according to all that I have commanded thee.
 
-<sup>22</sup> A noise of battle [is] in the land, and of great destruction.
+**²²** A noise of battle [is] in the land, and of great destruction.
 
-<sup>23</sup> How hath it been cut and broken, The hammer of the whole earth! How hath Babylon been for a desolation among nations!
+**²³** How hath it been cut and broken, The hammer of the whole earth! How hath Babylon been for a desolation among nations!
 
-<sup>24</sup> I have laid a snare for thee, And also — thou art captured, O Babylon, And thou — thou hast known, Thou hast been found, and also art caught, For against Jehovah thou hast stirred thyself up.
+**²⁴** I have laid a snare for thee, And also — thou art captured, O Babylon, And thou — thou hast known, Thou hast been found, and also art caught, For against Jehovah thou hast stirred thyself up.
 
-<sup>25</sup> Jehovah hath opened His treasury, And He bringeth out the weapons of His indignation, For a work [is] to the Lord Jehovah of Hosts, In the land of the Chaldeans.
+**²⁵** Jehovah hath opened His treasury, And He bringeth out the weapons of His indignation, For a work [is] to the Lord Jehovah of Hosts, In the land of the Chaldeans.
 
-<sup>26</sup> Come ye in to her from the extremity, Open ye her storehouses, Raise her up as heaps, and devote her, Let her have no remnant.
+**²⁶** Come ye in to her from the extremity, Open ye her storehouses, Raise her up as heaps, and devote her, Let her have no remnant.
 
-<sup>27</sup> Slay all her kine, they go down to slaughter, Woe [is] on them, for come hath their day, The time of their inspection.
+**²⁷** Slay all her kine, they go down to slaughter, Woe [is] on them, for come hath their day, The time of their inspection.
 
-<sup>28</sup> A voice of fugitives and escaped ones [Is] from the land of Babylon, To declare in Zion the vengeance of Jehovah our God, The vengeance of His temple.
+**²⁸** A voice of fugitives and escaped ones [Is] from the land of Babylon, To declare in Zion the vengeance of Jehovah our God, The vengeance of His temple.
 
-<sup>29</sup> Summon unto Babylon archers, all treading the bow, Encamp against her round about, Let [her] have no escape; Recompense to her according to her work, According to all that she did — do to her, For unto Jehovah she hath been proud, Unto the Holy One of Israel.
+**²⁹** Summon unto Babylon archers, all treading the bow, Encamp against her round about, Let [her] have no escape; Recompense to her according to her work, According to all that she did — do to her, For unto Jehovah she hath been proud, Unto the Holy One of Israel.
 
-<sup>30</sup> Therefore fall do her young men in her broad places, And all her men of war are cut off in that day, An affirmation of Jehovah.
+**³⁰** Therefore fall do her young men in her broad places, And all her men of war are cut off in that day, An affirmation of Jehovah.
 
-<sup>31</sup> Lo, I [am] against thee, O pride, An affirmation of the Lord Jehovah of Hosts, For thy day hath come, the time of thy inspection.
+**³¹** Lo, I [am] against thee, O pride, An affirmation of the Lord Jehovah of Hosts, For thy day hath come, the time of thy inspection.
 
-<sup>32</sup> And stumbled hath pride, And he hath fallen, and hath no raiser up, And I have kindled a fire in his cities, And it hath devoured all round about him.
+**³²** And stumbled hath pride, And he hath fallen, and hath no raiser up, And I have kindled a fire in his cities, And it hath devoured all round about him.
 
-<sup>33</sup> Thus said Jehovah of Hosts: Oppressed are the sons of Israel, And the sons of Judah together, And all their captors have kept hold on them, They have refused to send them away.
+**³³** Thus said Jehovah of Hosts: Oppressed are the sons of Israel, And the sons of Judah together, And all their captors have kept hold on them, They have refused to send them away.
 
-<sup>34</sup> Their Redeemer [is] strong, Jehovah of Hosts [is] His name, He doth thoroughly plead their cause, So as to cause the land to rest, And He hath given trouble to the inhabitants of Babylon.
+**³⁴** Their Redeemer [is] strong, Jehovah of Hosts [is] His name, He doth thoroughly plead their cause, So as to cause the land to rest, And He hath given trouble to the inhabitants of Babylon.
 
-<sup>35</sup> A sword [is] for the Chaldeans, An affirmation of Jehovah, And it [is] on the inhabitants of Babylon, And on her heads, and on her wise men;
+**³⁵** A sword [is] for the Chaldeans, An affirmation of Jehovah, And it [is] on the inhabitants of Babylon, And on her heads, and on her wise men;
 
-<sup>36</sup> A sword [is] on the princes, And they have become foolish; A sword [is] on her mighty ones, And they have been broken down;
+**³⁶** A sword [is] on the princes, And they have become foolish; A sword [is] on her mighty ones, And they have been broken down;
 
-<sup>37</sup> A sword [is] on his horses and on his chariot, And on all the rabble who [are] in her midst, And they have become women; A sword [is] on her treasuries, And they have been spoiled;
+**³⁷** A sword [is] on his horses and on his chariot, And on all the rabble who [are] in her midst, And they have become women; A sword [is] on her treasuries, And they have been spoiled;
 
-<sup>38</sup> A sword [is] on her waters, and they have been dried up, For it [is] a land of graven images, And in idols they do boast themselves.
+**³⁸** A sword [is] on her waters, and they have been dried up, For it [is] a land of graven images, And in idols they do boast themselves.
 
-<sup>39</sup> Therefore dwell do Ziim with Iim, Yea, dwelt in her have daughters of the ostrich, And it is not inhabited any more for ever, Nor dwelt in unto all generations.
+**³⁹** Therefore dwell do Ziim with Iim, Yea, dwelt in her have daughters of the ostrich, And it is not inhabited any more for ever, Nor dwelt in unto all generations.
 
-<sup>40</sup> As overthrown by God with Sodom, And with Gomorrah, and with its neighbours, An affirmation of Jehovah, none doth dwell there, Nor sojourn in her doth a son of man.
+**⁴⁰** As overthrown by God with Sodom, And with Gomorrah, and with its neighbours, An affirmation of Jehovah, none doth dwell there, Nor sojourn in her doth a son of man.
 
-<sup>41</sup> Lo, a people hath come from the north, Even a great nation, And many kings are stirred up from the sides of the earth.
+**⁴¹** Lo, a people hath come from the north, Even a great nation, And many kings are stirred up from the sides of the earth.
 
-<sup>42</sup> Bow and halbert they seize, Cruel [are] they, and they have no mercy, Their voice as a sea soundeth, and on horses they ride, Set in array as a man for battle, Against thee, O daughter of Babylon.
+**⁴²** Bow and halbert they seize, Cruel [are] they, and they have no mercy, Their voice as a sea soundeth, and on horses they ride, Set in array as a man for battle, Against thee, O daughter of Babylon.
 
-<sup>43</sup> Heard hath the king of Babylon their report, And feeble have been his hands, Distress hath seized him; pain as a travailing woman.
+**⁴³** Heard hath the king of Babylon their report, And feeble have been his hands, Distress hath seized him; pain as a travailing woman.
 
-<sup>44</sup> Lo, as a lion he cometh up, Because of the rising of the Jordan, Unto the enduring habitation, But I cause to rest, I cause them to run from off her. And who is chosen? on her I lay a charge, For who [is] like Me? And who doth convene Me? And who [is] this shepherd who standeth before Me?
+**⁴⁴** Lo, as a lion he cometh up, Because of the rising of the Jordan, Unto the enduring habitation, But I cause to rest, I cause them to run from off her. And who is chosen? on her I lay a charge, For who [is] like Me? And who doth convene Me? And who [is] this shepherd who standeth before Me?
 
-<sup>45</sup> Therefore, hear ye the counsel of Jehovah, That He counselled concerning Babylon, And His devices that He hath devised Concerning the land of the Chaldeans; Drag them out do not little ones of the flock, Doth He not make desolate over them the habitation?
+**⁴⁵** Therefore, hear ye the counsel of Jehovah, That He counselled concerning Babylon, And His devices that He hath devised Concerning the land of the Chaldeans; Drag them out do not little ones of the flock, Doth He not make desolate over them the habitation?
 
-<sup>46</sup> From the voice: Captured was Babylon, Hath the earth been shaken, And a cry among nations hath been heard!
+**⁴⁶** From the voice: Captured was Babylon, Hath the earth been shaken, And a cry among nations hath been heard!

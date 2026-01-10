@@ -1,35 +1,35 @@
 # Chapter 2
 
-<sup>1</sup> And we ask you, brethren, in regard to the presence of our Lord Jesus Christ, and of our gathering together unto him,
+**¹** And we ask you, brethren, in regard to the presence of our Lord Jesus Christ, and of our gathering together unto him,
 
-<sup>2</sup> that ye be not quickly shaken in mind, nor be troubled, neither through spirit, neither through word, neither through letters as through us, as that the day of Christ hath arrived;
+**²** that ye be not quickly shaken in mind, nor be troubled, neither through spirit, neither through word, neither through letters as through us, as that the day of Christ hath arrived;
 
-<sup>3</sup> let not any one deceive you in any manner, because — if the falling away may not come first, and the man of sin be revealed — the son of the destruction,
+**³** let not any one deceive you in any manner, because — if the falling away may not come first, and the man of sin be revealed — the son of the destruction,
 
-<sup>4</sup> who is opposing and is raising himself up above all called God or worshipped, so that he in the sanctuary of God as God hath sat down, shewing himself off that he is God — [the day doth not come].
+**⁴** who is opposing and is raising himself up above all called God or worshipped, so that he in the sanctuary of God as God hath sat down, shewing himself off that he is God — [the day doth not come].
 
-<sup>5</sup> Do ye not remember that, being yet with you, these things I said to you?
+**⁵** Do ye not remember that, being yet with you, these things I said to you?
 
-<sup>6</sup> and now, what is keeping down ye have known, for his being revealed in his own time,
+**⁶** and now, what is keeping down ye have known, for his being revealed in his own time,
 
-<sup>7</sup> for the secret of the lawlessness doth already work, only he who is keeping down now [will hinder] — till he may be out of the way,
+**⁷** for the secret of the lawlessness doth already work, only he who is keeping down now [will hinder] — till he may be out of the way,
 
-<sup>8</sup> and then shall be revealed the Lawless One, whom the Lord shall consume with the spirit of his mouth, and shall destroy with the manifestation of his presence,
+**⁸** and then shall be revealed the Lawless One, whom the Lord shall consume with the spirit of his mouth, and shall destroy with the manifestation of his presence,
 
-<sup>9</sup> [him,] whose presence is according to the working of the Adversary, in all power, and signs, and lying wonders,
+**⁹** [him,] whose presence is according to the working of the Adversary, in all power, and signs, and lying wonders,
 
-<sup>10</sup> and in all deceitfulness of the unrighteousness in those perishing, because the love of the truth they did not receive for their being saved,
+**¹⁰** and in all deceitfulness of the unrighteousness in those perishing, because the love of the truth they did not receive for their being saved,
 
-<sup>11</sup> and because of this shall God send to them a working of delusion, for their believing the lie,
+**¹¹** and because of this shall God send to them a working of delusion, for their believing the lie,
 
-<sup>12</sup> that they may be judged — all who did not believe the truth, but were well pleased in the unrighteousness.
+**¹²** that they may be judged — all who did not believe the truth, but were well pleased in the unrighteousness.
 
-<sup>13</sup> And we — we ought to give thanks to God always for you, brethren, beloved by the Lord, that God did choose you from the beginning to salvation, in sanctification of the Spirit, and belief of the truth,
+**¹³** And we — we ought to give thanks to God always for you, brethren, beloved by the Lord, that God did choose you from the beginning to salvation, in sanctification of the Spirit, and belief of the truth,
 
-<sup>14</sup> to which He did call you through our good news, to the acquiring of the glory of our Lord Jesus Christ;
+**¹⁴** to which He did call you through our good news, to the acquiring of the glory of our Lord Jesus Christ;
 
-<sup>15</sup> so, then, brethren, stand ye fast, and hold the deliverances that ye were taught, whether through word, whether through our letter;
+**¹⁵** so, then, brethren, stand ye fast, and hold the deliverances that ye were taught, whether through word, whether through our letter;
 
-<sup>16</sup> and may our Lord Jesus Christ himself, and our God and Father, who did love us, and did give comfort age-during, and good hope in grace,
+**¹⁶** and may our Lord Jesus Christ himself, and our God and Father, who did love us, and did give comfort age-during, and good hope in grace,
 
-<sup>17</sup> comfort your hearts, and establish you in every good word and work.
+**¹⁷** comfort your hearts, and establish you in every good word and work.

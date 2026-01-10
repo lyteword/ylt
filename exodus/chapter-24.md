@@ -1,37 +1,37 @@
 # Chapter 24
 
-<sup>1</sup> And unto Moses He said, 'Come up unto Jehovah, thou, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel, and ye have bowed yourselves afar off;'
+**¹** And unto Moses He said, 'Come up unto Jehovah, thou, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel, and ye have bowed yourselves afar off;'
 
-<sup>2</sup> and Moses hath drawn nigh by himself unto Jehovah; and they draw not nigh, and the people go not up with him.
+**²** and Moses hath drawn nigh by himself unto Jehovah; and they draw not nigh, and the people go not up with him.
 
-<sup>3</sup> And Moses cometh in, and recounteth to the people all the words of Jehovah, and all the judgments, and all the people answer — one voice, and say, 'All the words which Jehovah hath spoken we do.'
+**³** And Moses cometh in, and recounteth to the people all the words of Jehovah, and all the judgments, and all the people answer — one voice, and say, 'All the words which Jehovah hath spoken we do.'
 
-<sup>4</sup> And Moses writeth all the words of Jehovah, and riseth early in the morning, and buildeth an altar under the hill, and twelve standing pillars for the twelve tribes of Israel;
+**⁴** And Moses writeth all the words of Jehovah, and riseth early in the morning, and buildeth an altar under the hill, and twelve standing pillars for the twelve tribes of Israel;
 
-<sup>5</sup> and he sendeth the youths of the sons of Israel, and they cause burnt-offerings to ascend, and sacrifice sacrifices of peace-offerings to Jehovah — calves.
+**⁵** and he sendeth the youths of the sons of Israel, and they cause burnt-offerings to ascend, and sacrifice sacrifices of peace-offerings to Jehovah — calves.
 
-<sup>6</sup> And Moses taketh half of the blood, and putteth in basins, and half of the blood hath he sprinkled on the altar;
+**⁶** And Moses taketh half of the blood, and putteth in basins, and half of the blood hath he sprinkled on the altar;
 
-<sup>7</sup> and he taketh the Book of the Covenant, and proclaimeth in the ears of the people, and they say, 'All that which Jehovah hath spoken we do, and obey.'
+**⁷** and he taketh the Book of the Covenant, and proclaimeth in the ears of the people, and they say, 'All that which Jehovah hath spoken we do, and obey.'
 
-<sup>8</sup> And Moses taketh the blood, and sprinkleth on the people, and saith, 'Lo, the blood of the covenant which Jehovah hath made with you, concerning all these things.'
+**⁸** And Moses taketh the blood, and sprinkleth on the people, and saith, 'Lo, the blood of the covenant which Jehovah hath made with you, concerning all these things.'
 
-<sup>9</sup> And Moses goeth up, Aaron also, Nadab and Abihu, and seventy of the elders of Israel,
+**⁹** And Moses goeth up, Aaron also, Nadab and Abihu, and seventy of the elders of Israel,
 
-<sup>10</sup> and they see the God of Israel, and under His feet [is] as the white work of the sapphire, and as the substance of the heavens for purity;
+**¹⁰** and they see the God of Israel, and under His feet [is] as the white work of the sapphire, and as the substance of the heavens for purity;
 
-<sup>11</sup> and unto those of the sons of Israel who are near He hath not put forth His hand, and they see God, and eat and drink.
+**¹¹** and unto those of the sons of Israel who are near He hath not put forth His hand, and they see God, and eat and drink.
 
-<sup>12</sup> And Jehovah saith unto Moses, 'Come up unto Me to the mount, and be there, and I give to thee the tables of stone, and the law, and the command, which I have written to direct them.'
+**¹²** And Jehovah saith unto Moses, 'Come up unto Me to the mount, and be there, and I give to thee the tables of stone, and the law, and the command, which I have written to direct them.'
 
-<sup>13</sup> And Moses riseth — Joshua his minister also — and Moses goeth up unto the mount of God;
+**¹³** And Moses riseth — Joshua his minister also — and Moses goeth up unto the mount of God;
 
-<sup>14</sup> and unto the elders he hath said, 'Abide ye for us in this [place], until that we turn back unto you, and lo, Aaron and Hur [are] with you — he who hath matters doth come nigh unto them.'
+**¹⁴** and unto the elders he hath said, 'Abide ye for us in this [place], until that we turn back unto you, and lo, Aaron and Hur [are] with you — he who hath matters doth come nigh unto them.'
 
-<sup>15</sup> And Moses goeth up unto the mount, and the cloud covereth the mount;
+**¹⁵** And Moses goeth up unto the mount, and the cloud covereth the mount;
 
-<sup>16</sup> and the honour of Jehovah doth tabernacle on mount Sinai, and the cloud covereth it six days, and He calleth unto Moses on the seventh day from the midst of the cloud.
+**¹⁶** and the honour of Jehovah doth tabernacle on mount Sinai, and the cloud covereth it six days, and He calleth unto Moses on the seventh day from the midst of the cloud.
 
-<sup>17</sup> And the appearance of the honour of Jehovah [is] as a consuming fire on the top of the mount, before the eyes of the sons of Israel;
+**¹⁷** And the appearance of the honour of Jehovah [is] as a consuming fire on the top of the mount, before the eyes of the sons of Israel;
 
-<sup>18</sup> and Moses goeth into the midst of the cloud, and goeth up unto the mount, and Moses is on the mount forty days and forty nights.
+**¹⁸** and Moses goeth into the midst of the cloud, and goeth up unto the mount, and Moses is on the mount forty days and forty nights.

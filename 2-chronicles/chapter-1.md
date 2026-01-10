@@ -1,35 +1,35 @@
 # Chapter 1
 
-<sup>1</sup> And strengthen himself doth Solomon son of David over his kingdom, and Jehovah his God [is] with him, and maketh him exceedingly great.
+**¹** And strengthen himself doth Solomon son of David over his kingdom, and Jehovah his God [is] with him, and maketh him exceedingly great.
 
-<sup>2</sup> And Solomon saith to all Israel, to heads of the thousands, and of the hundreds, and to judges, and to every honourable one of all Israel, heads of the fathers,
+**²** And Solomon saith to all Israel, to heads of the thousands, and of the hundreds, and to judges, and to every honourable one of all Israel, heads of the fathers,
 
-<sup>3</sup> and they go — Solomon, and all the assembly with him — to the high place that [is] in Gibeon, for there hath been God's tent of meeting, that Moses, servant of Jehovah, made in the wilderness,
+**³** and they go — Solomon, and all the assembly with him — to the high place that [is] in Gibeon, for there hath been God's tent of meeting, that Moses, servant of Jehovah, made in the wilderness,
 
-<sup>4</sup> but the ark of God had David brought up from Kirjath-Jearim, when David prepared for it, for he stretched out for it a tent in Jerusalem;
+**⁴** but the ark of God had David brought up from Kirjath-Jearim, when David prepared for it, for he stretched out for it a tent in Jerusalem;
 
-<sup>5</sup> and the altar of brass that Bezaleel son of Uri, son of Hur made, he put before the tabernacle of Jehovah; and Solomon and the assembly seek to it.
+**⁵** and the altar of brass that Bezaleel son of Uri, son of Hur made, he put before the tabernacle of Jehovah; and Solomon and the assembly seek to it.
 
-<sup>6</sup> And Solomon goeth up thither, on the altar of brass, before Jehovah, that [is] at the tent of meeting, and causeth to ascend upon it a thousand burnt-offerings.
+**⁶** And Solomon goeth up thither, on the altar of brass, before Jehovah, that [is] at the tent of meeting, and causeth to ascend upon it a thousand burnt-offerings.
 
-<sup>7</sup> In that night hath God appeared to Solomon, and saith to him, 'Ask — what do I give to thee?'
+**⁷** In that night hath God appeared to Solomon, and saith to him, 'Ask — what do I give to thee?'
 
-<sup>8</sup> And Solomon saith to God, 'Thou hast done with David my father great kindness, and hast caused me to reign in his stead.
+**⁸** And Solomon saith to God, 'Thou hast done with David my father great kindness, and hast caused me to reign in his stead.
 
-<sup>9</sup> Now, O Jehovah God, is Thy word with David my father stedfast, for Thou hast caused me to reign over a people numerous as the dust of the earth;
+**⁹** Now, O Jehovah God, is Thy word with David my father stedfast, for Thou hast caused me to reign over a people numerous as the dust of the earth;
 
-<sup>10</sup> now, wisdom and knowledge give to me, and I go out before this people, and I come in, for who doth judge this Thy great people?'
+**¹⁰** now, wisdom and knowledge give to me, and I go out before this people, and I come in, for who doth judge this Thy great people?'
 
-<sup>11</sup> And God saith to Solomon, 'Because that this hath been with thy heart, and thou hast not asked riches, wealth, and honour, and the life of those hating thee, and also many days hast not asked, and dost ask for thyself wisdom and knowledge, so that thou dost judge My people over which I have caused thee to reign —
+**¹¹** And God saith to Solomon, 'Because that this hath been with thy heart, and thou hast not asked riches, wealth, and honour, and the life of those hating thee, and also many days hast not asked, and dost ask for thyself wisdom and knowledge, so that thou dost judge My people over which I have caused thee to reign —
 
-<sup>12</sup> the wisdom and the knowledge is given to thee, and riches and wealth and honour I give to thee, that there hath not been so to the kings who [are] before thee, and after thee it is not so.'
+**¹²** the wisdom and the knowledge is given to thee, and riches and wealth and honour I give to thee, that there hath not been so to the kings who [are] before thee, and after thee it is not so.'
 
-<sup>13</sup> And Solomon cometh in [from] the high place that [is] in Gibeon to Jerusalem, from before the tent of meeting, and reigneth over Israel,
+**¹³** And Solomon cometh in [from] the high place that [is] in Gibeon to Jerusalem, from before the tent of meeting, and reigneth over Israel,
 
-<sup>14</sup> and Solomon gathereth chariots and horsemen, and he hath a thousand and four hundred chariots, and twelve thousand horsemen, and he placeth them in the cities of the chariots, and with the king in Jerusalem.
+**¹⁴** and Solomon gathereth chariots and horsemen, and he hath a thousand and four hundred chariots, and twelve thousand horsemen, and he placeth them in the cities of the chariots, and with the king in Jerusalem.
 
-<sup>15</sup> And the king maketh the silver and the gold in Jerusalem as stones, and the cedars he made as sycamores that [are] in the low country, for abundance.
+**¹⁵** And the king maketh the silver and the gold in Jerusalem as stones, and the cedars he made as sycamores that [are] in the low country, for abundance.
 
-<sup>16</sup> And the source of the horses that [are] to Solomon [is] from Egypt and from Keva; merchants of the king from Keva take at a price,
+**¹⁶** And the source of the horses that [are] to Solomon [is] from Egypt and from Keva; merchants of the king from Keva take at a price,
 
-<sup>17</sup> and they come up, and bring out from Egypt a chariot for six hundred silverlings, and a horse for fifty and a hundred, and so for all the kings of the Hittites, and the kings of Aram — by their hand they bring out.
+**¹⁷** and they come up, and bring out from Egypt a chariot for six hundred silverlings, and a horse for fifty and a hundred, and so for all the kings of the Hittites, and the kings of Aram — by their hand they bring out.

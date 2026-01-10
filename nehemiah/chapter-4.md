@@ -1,47 +1,47 @@
 # Chapter 4
 
-<sup>1</sup> And it cometh to pass, when Sanballat hath heard that we are building the wall, that it is displeasing to him, and he is very angry and mocketh at the Jews,
+**¹** And it cometh to pass, when Sanballat hath heard that we are building the wall, that it is displeasing to him, and he is very angry and mocketh at the Jews,
 
-<sup>2</sup> and saith before his brethren and the force of Samaria, yea, he saith, 'What [are] the weak Jews doing? are they left to themselves? do they sacrifice? do they complete in a day? do they revive the stones out of the heaps of the rubbish? — and they burnt!'
+**²** and saith before his brethren and the force of Samaria, yea, he saith, 'What [are] the weak Jews doing? are they left to themselves? do they sacrifice? do they complete in a day? do they revive the stones out of the heaps of the rubbish? — and they burnt!'
 
-<sup>3</sup> And Tobiah the Ammonite [is] by him and saith, 'Also, that which they are building — if a fox doth go up, then it hath broken down their stone wall.'
+**³** And Tobiah the Ammonite [is] by him and saith, 'Also, that which they are building — if a fox doth go up, then it hath broken down their stone wall.'
 
-<sup>4</sup> Hear, O our God, for we have been despised; and turn back their reproach on their own head, and give them for a spoil in a land of captivity;
+**⁴** Hear, O our God, for we have been despised; and turn back their reproach on their own head, and give them for a spoil in a land of captivity;
 
-<sup>5</sup> and do not cover over their iniquity, and their sin from before Thee let not be blotted out, for they have provoked to anger — over-against those building.
+**⁵** and do not cover over their iniquity, and their sin from before Thee let not be blotted out, for they have provoked to anger — over-against those building.
 
-<sup>6</sup> And we build the wall, and all the wall is joined — unto its half, and the people have a heart to work.
+**⁶** And we build the wall, and all the wall is joined — unto its half, and the people have a heart to work.
 
-<sup>7</sup> And it cometh to pass, when Sanballat hath heard, and Tobiah, and the Arabians, and the Ammonites, and the Ashdodites, that lengthening hath gone up to the walls of Jerusalem, that the breeches have begun to be stopped, then it is very displeasing to them,
+**⁷** And it cometh to pass, when Sanballat hath heard, and Tobiah, and the Arabians, and the Ammonites, and the Ashdodites, that lengthening hath gone up to the walls of Jerusalem, that the breeches have begun to be stopped, then it is very displeasing to them,
 
-<sup>8</sup> and they conspire, all of them together, to come in to fight against Jerusalem, and to do to it injury.
+**⁸** and they conspire, all of them together, to come in to fight against Jerusalem, and to do to it injury.
 
-<sup>9</sup> And we pray unto our God, and appoint a watch against them, by day and by night, because of them.
+**⁹** And we pray unto our God, and appoint a watch against them, by day and by night, because of them.
 
-<sup>10</sup> And Judah saith, 'The power of the burden-bearers hath become feeble, and the rubbish [is] abundant, and we are not able to build on the wall.'
+**¹⁰** And Judah saith, 'The power of the burden-bearers hath become feeble, and the rubbish [is] abundant, and we are not able to build on the wall.'
 
-<sup>11</sup> And our adversaries say, 'They do not know, nor see, till that we come in to their midst, and have slain them, and caused the work to cease.'
+**¹¹** And our adversaries say, 'They do not know, nor see, till that we come in to their midst, and have slain them, and caused the work to cease.'
 
-<sup>12</sup> And it cometh to pass, when the Jews have come who are dwelling near them, that they say to us ten times from all the places whither ye return — [they are] against us.
+**¹²** And it cometh to pass, when the Jews have come who are dwelling near them, that they say to us ten times from all the places whither ye return — [they are] against us.
 
-<sup>13</sup> And I appoint at the lowest of the places, at the back of the wall, in the clear places, yea, I appoint the people, by their families, with their swords, their spears, and their bows.
+**¹³** And I appoint at the lowest of the places, at the back of the wall, in the clear places, yea, I appoint the people, by their families, with their swords, their spears, and their bows.
 
-<sup>14</sup> And I see, and rise up, and say unto the freemen, and unto the prefects, and unto the rest of the people, 'Be not afraid of them; the Lord, the great and the fearful, remember ye, and fight for your brethren, your sons, and your daughters, your wives, and your houses.'
+**¹⁴** And I see, and rise up, and say unto the freemen, and unto the prefects, and unto the rest of the people, 'Be not afraid of them; the Lord, the great and the fearful, remember ye, and fight for your brethren, your sons, and your daughters, your wives, and your houses.'
 
-<sup>15</sup> And it cometh to pass, when our enemies have heard that it hath been known to us, and God doth frustrate their counsel, and we turn back, all of us, unto the wall, each unto his work;
+**¹⁵** And it cometh to pass, when our enemies have heard that it hath been known to us, and God doth frustrate their counsel, and we turn back, all of us, unto the wall, each unto his work;
 
-<sup>16</sup> yea, it cometh to pass, from that day, half of my servants are working in the business, and half of them are keeping hold of both the spears, the shields, and the bows, and the coats of mail; and the heads [are] behind all the house of Judah.
+**¹⁶** yea, it cometh to pass, from that day, half of my servants are working in the business, and half of them are keeping hold of both the spears, the shields, and the bows, and the coats of mail; and the heads [are] behind all the house of Judah.
 
-<sup>17</sup> The builders on the wall, and the bearers of the burden, those lading, [each] with one of his hands is working in the business, and one is laying hold of the missile.
+**¹⁷** The builders on the wall, and the bearers of the burden, those lading, [each] with one of his hands is working in the business, and one is laying hold of the missile.
 
-<sup>18</sup> And the builders [are] each with his sword, girded on his loins, and building, and he who is blowing with a trumpet [is] beside me.
+**¹⁸** And the builders [are] each with his sword, girded on his loins, and building, and he who is blowing with a trumpet [is] beside me.
 
-<sup>19</sup> And I say unto the freemen, and unto the prefects, and unto the rest of the people, 'The work is abundant, and large, and we are separated on the wall, far off one from another;
+**¹⁹** And I say unto the freemen, and unto the prefects, and unto the rest of the people, 'The work is abundant, and large, and we are separated on the wall, far off one from another;
 
-<sup>20</sup> in the place that ye hear the voice of the trumpet thither ye are gathered unto us; our God doth fight for us.'
+**²⁰** in the place that ye hear the voice of the trumpet thither ye are gathered unto us; our God doth fight for us.'
 
-<sup>21</sup> And we are working in the business, and half of them are keeping hold of the spears, from the going up of the dawn till the coming forth of the stars.
+**²¹** And we are working in the business, and half of them are keeping hold of the spears, from the going up of the dawn till the coming forth of the stars.
 
-<sup>22</sup> Also, at that time I said to the people, 'Let each with his servant lodge in the midst of Jerusalem, and they have been to us by night a guard, and by day [for] the work:'
+**²²** Also, at that time I said to the people, 'Let each with his servant lodge in the midst of Jerusalem, and they have been to us by night a guard, and by day [for] the work:'
 
-<sup>23</sup> and there are none — I and my brethren and my servants, the men of the guard who [are] after me — there are none of us putting off our garments, each [hath] his vessel of water.
+**²³** and there are none — I and my brethren and my servants, the men of the guard who [are] after me — there are none of us putting off our garments, each [hath] his vessel of water.

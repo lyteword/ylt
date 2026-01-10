@@ -1,65 +1,65 @@
 # Chapter 1
 
-<sup>1</sup> Paul, a servant of Jesus Christ, a called apostle, having been separated to the good news of God —
+**¹** Paul, a servant of Jesus Christ, a called apostle, having been separated to the good news of God —
 
-<sup>2</sup> which He announced before through His prophets in holy writings —
+**²** which He announced before through His prophets in holy writings —
 
-<sup>3</sup> concerning His Son, (who is come of the seed of David according to the flesh,
+**³** concerning His Son, (who is come of the seed of David according to the flesh,
 
-<sup>4</sup> who is marked out Son of God in power, according to the Spirit of sanctification, by the rising again from the dead,) Jesus Christ our Lord;
+**⁴** who is marked out Son of God in power, according to the Spirit of sanctification, by the rising again from the dead,) Jesus Christ our Lord;
 
-<sup>5</sup> through whom we did receive grace and apostleship, for obedience of faith among all the nations, in behalf of his name;
+**⁵** through whom we did receive grace and apostleship, for obedience of faith among all the nations, in behalf of his name;
 
-<sup>6</sup> among whom are also ye, the called of Jesus Christ;
+**⁶** among whom are also ye, the called of Jesus Christ;
 
-<sup>7</sup> to all who are in Rome, beloved of God, called saints; Grace to you, and peace, from God our Father, and [from] the Lord Jesus Christ!
+**⁷** to all who are in Rome, beloved of God, called saints; Grace to you, and peace, from God our Father, and [from] the Lord Jesus Christ!
 
-<sup>8</sup> first, indeed, I thank my God through Jesus Christ for you all, that your faith is proclaimed in the whole world;
+**⁸** first, indeed, I thank my God through Jesus Christ for you all, that your faith is proclaimed in the whole world;
 
-<sup>9</sup> for God is my witness, whom I serve in my spirit in the good news of His Son, how unceasingly I make mention of you,
+**⁹** for God is my witness, whom I serve in my spirit in the good news of His Son, how unceasingly I make mention of you,
 
-<sup>10</sup> always in my prayers beseeching, if by any means now at length I shall have a prosperous journey, by the will of God, to come unto you,
+**¹⁰** always in my prayers beseeching, if by any means now at length I shall have a prosperous journey, by the will of God, to come unto you,
 
-<sup>11</sup> for I long to see you, that I may impart to you some spiritual gift, that ye may be established;
+**¹¹** for I long to see you, that I may impart to you some spiritual gift, that ye may be established;
 
-<sup>12</sup> and that is, that I may be comforted together among you, through the faith in one another, both yours and mine.
+**¹²** and that is, that I may be comforted together among you, through the faith in one another, both yours and mine.
 
-<sup>13</sup> And I do not wish you to be ignorant, brethren, that many times I did purpose to come unto you — and was hindered till the present time — that some fruit I might have also among you, even as also among the other nations.
+**¹³** And I do not wish you to be ignorant, brethren, that many times I did purpose to come unto you — and was hindered till the present time — that some fruit I might have also among you, even as also among the other nations.
 
-<sup>14</sup> Both to Greeks and to foreigners, both to wise and to thoughtless, I am a debtor,
+**¹⁴** Both to Greeks and to foreigners, both to wise and to thoughtless, I am a debtor,
 
-<sup>15</sup> so, as much as in me is, I am ready also to you who [are] in Rome to proclaim good news,
+**¹⁵** so, as much as in me is, I am ready also to you who [are] in Rome to proclaim good news,
 
-<sup>16</sup> for I am not ashamed of the good news of the Christ, for it is the power of God to salvation to every one who is believing, both to Jew first, and to Greek.
+**¹⁶** for I am not ashamed of the good news of the Christ, for it is the power of God to salvation to every one who is believing, both to Jew first, and to Greek.
 
-<sup>17</sup> For the righteousness of God in it is revealed from faith to faith, according as it hath been written, 'And the righteous one by faith shall live,'
+**¹⁷** For the righteousness of God in it is revealed from faith to faith, according as it hath been written, 'And the righteous one by faith shall live,'
 
-<sup>18</sup> for revealed is the wrath of God from heaven upon all impiety and unrighteousness of men, holding down the truth in unrighteousness.
+**¹⁸** for revealed is the wrath of God from heaven upon all impiety and unrighteousness of men, holding down the truth in unrighteousness.
 
-<sup>19</sup> Because that which is known of God is manifest among them, for God did manifest [it] to them,
+**¹⁹** Because that which is known of God is manifest among them, for God did manifest [it] to them,
 
-<sup>20</sup> for the invisible things of Him from the creation of the world, by the things made being understood, are plainly seen, both His eternal power and Godhead — to their being inexcusable;
+**²⁰** for the invisible things of Him from the creation of the world, by the things made being understood, are plainly seen, both His eternal power and Godhead — to their being inexcusable;
 
-<sup>21</sup> because, having known God they did not glorify [Him] as God, nor gave thanks, but were made vain in their reasonings, and their unintelligent heart was darkened,
+**²¹** because, having known God they did not glorify [Him] as God, nor gave thanks, but were made vain in their reasonings, and their unintelligent heart was darkened,
 
-<sup>22</sup> professing to be wise, they were made fools,
+**²²** professing to be wise, they were made fools,
 
-<sup>23</sup> and changed the glory of the incorruptible God into the likeness of an image of corruptible man, and of fowls, and of quadrupeds, and of reptiles.
+**²³** and changed the glory of the incorruptible God into the likeness of an image of corruptible man, and of fowls, and of quadrupeds, and of reptiles.
 
-<sup>24</sup> Wherefore also God did give them up, in the desires of their hearts, to uncleanness, to dishonour their bodies among themselves;
+**²⁴** Wherefore also God did give them up, in the desires of their hearts, to uncleanness, to dishonour their bodies among themselves;
 
-<sup>25</sup> who did change the truth of God into a falsehood, and did honour and serve the creature rather than the Creator, who is blessed to the ages. Amen.
+**²⁵** who did change the truth of God into a falsehood, and did honour and serve the creature rather than the Creator, who is blessed to the ages. Amen.
 
-<sup>26</sup> Because of this did God give them up to dishonourable affections, for even their females did change the natural use into that against nature;
+**²⁶** Because of this did God give them up to dishonourable affections, for even their females did change the natural use into that against nature;
 
-<sup>27</sup> and in like manner also the males having left the natural use of the female, did burn in their longing toward one another; males with males working shame, and the recompense of their error that was fit, in themselves receiving.
+**²⁷** and in like manner also the males having left the natural use of the female, did burn in their longing toward one another; males with males working shame, and the recompense of their error that was fit, in themselves receiving.
 
-<sup>28</sup> And, according as they did not approve of having God in knowledge, God gave them up to a disapproved mind, to do the things not seemly;
+**²⁸** And, according as they did not approve of having God in knowledge, God gave them up to a disapproved mind, to do the things not seemly;
 
-<sup>29</sup> having been filled with all unrighteousness, whoredom, wickedness, covetousness, malice; full of envy, murder, strife, deceit, evil dispositions; whisperers,
+**²⁹** having been filled with all unrighteousness, whoredom, wickedness, covetousness, malice; full of envy, murder, strife, deceit, evil dispositions; whisperers,
 
-<sup>30</sup> evil-speakers, God-haters, insulting, proud, boasters, inventors of evil things, disobedient to parents,
+**³⁰** evil-speakers, God-haters, insulting, proud, boasters, inventors of evil things, disobedient to parents,
 
-<sup>31</sup> unintelligent, faithless, without natural affection, implacable, unmerciful;
+**³¹** unintelligent, faithless, without natural affection, implacable, unmerciful;
 
-<sup>32</sup> who the righteous judgment of God having known — that those practising such things are worthy of death — not only do them, but also have delight with those practising them.
+**³²** who the righteous judgment of God having known — that those practising such things are worthy of death — not only do them, but also have delight with those practising them.

@@ -1,41 +1,41 @@
 # Chapter 14
 
-<sup>1</sup> And Samson goeth down to Timnath, and seeth a woman in Timnath of the daughters of the Philistines,
+**¹** And Samson goeth down to Timnath, and seeth a woman in Timnath of the daughters of the Philistines,
 
-<sup>2</sup> and cometh up and declareth to his father, and to his mother, and saith, 'A woman I have seen in Timnath, of the daughters of the Philistines; and now, take her for me for a wife.'
+**²** and cometh up and declareth to his father, and to his mother, and saith, 'A woman I have seen in Timnath, of the daughters of the Philistines; and now, take her for me for a wife.'
 
-<sup>3</sup> And his father saith to him — also his mother, 'Is there not among the daughters of thy brethren, and among all my people, a woman, that thou art going to take a woman from the uncircumcised Philistines?' and Samson saith unto his father, 'Take her for me, for she is right in mine eyes.'
+**³** And his father saith to him — also his mother, 'Is there not among the daughters of thy brethren, and among all my people, a woman, that thou art going to take a woman from the uncircumcised Philistines?' and Samson saith unto his father, 'Take her for me, for she is right in mine eyes.'
 
-<sup>4</sup> And his father and his mother have not known that from Jehovah it [is], that a meeting he is seeking of the Philistines; and at that time the Philistines are ruling over Israel.
+**⁴** And his father and his mother have not known that from Jehovah it [is], that a meeting he is seeking of the Philistines; and at that time the Philistines are ruling over Israel.
 
-<sup>5</sup> And Samson goeth down — also his father and his mother, to Timnath, and they come unto the vineyards of Timnath, and lo, a lion's whelp roareth at meeting him,
+**⁵** And Samson goeth down — also his father and his mother, to Timnath, and they come unto the vineyards of Timnath, and lo, a lion's whelp roareth at meeting him,
 
-<sup>6</sup> and the Spirit of Jehovah prospereth over him, and he rendeth it as the rending of a kid, and there is nothing in his hand, and he hath not declared to his father and to his mother that which he hath done.
+**⁶** and the Spirit of Jehovah prospereth over him, and he rendeth it as the rending of a kid, and there is nothing in his hand, and he hath not declared to his father and to his mother that which he hath done.
 
-<sup>7</sup> And he goeth down and speaketh to the woman, and she is right in the eyes of Samson;
+**⁷** And he goeth down and speaketh to the woman, and she is right in the eyes of Samson;
 
-<sup>8</sup> and he turneth back after [some] days to take her, and turneth aside to see the carcase of the lion, and lo, a company of bees [are] in the body of the lion — and honey.
+**⁸** and he turneth back after [some] days to take her, and turneth aside to see the carcase of the lion, and lo, a company of bees [are] in the body of the lion — and honey.
 
-<sup>9</sup> And he taketh it down on to his hands, and goeth on, going and eating; and he goeth unto his father, and unto his mother, and giveth to them, and they eat, and he hath not declared to them that from the body of the lion he took down the honey.
+**⁹** And he taketh it down on to his hands, and goeth on, going and eating; and he goeth unto his father, and unto his mother, and giveth to them, and they eat, and he hath not declared to them that from the body of the lion he took down the honey.
 
-<sup>10</sup> And his father goeth down unto the woman, and Samson maketh there a banquet, for so the young men do;
+**¹⁰** And his father goeth down unto the woman, and Samson maketh there a banquet, for so the young men do;
 
-<sup>11</sup> and it cometh to pass when they see him, that they take thirty companions, and they are with him.
+**¹¹** and it cometh to pass when they see him, that they take thirty companions, and they are with him.
 
-<sup>12</sup> And Samson saith to them, 'Let me, I pray you, put forth to you a riddle; if ye certainly declare it to me [in] the seven days of the banquet, and have found [it] out, then I have given to you thirty linen shirts, and thirty changes of garments;
+**¹²** And Samson saith to them, 'Let me, I pray you, put forth to you a riddle; if ye certainly declare it to me [in] the seven days of the banquet, and have found [it] out, then I have given to you thirty linen shirts, and thirty changes of garments;
 
-<sup>13</sup> and if ye are not able to declare [it] to me, then ye have given to me thirty linen shirts, and thirty changes of garments.' And they say to him, 'Put forth thy riddle, and we hear it!'
+**¹³** and if ye are not able to declare [it] to me, then ye have given to me thirty linen shirts, and thirty changes of garments.' And they say to him, 'Put forth thy riddle, and we hear it!'
 
-<sup>14</sup> And he saith to them: 'Out of the eater came forth meat, And out of the strong came forth sweetness;' and they were not able to declare the riddle [in] three days.
+**¹⁴** And he saith to them: 'Out of the eater came forth meat, And out of the strong came forth sweetness;' and they were not able to declare the riddle [in] three days.
 
-<sup>15</sup> And it cometh to pass, on the seventh day, that they say to Samson's wife, 'Entice thy husband, that he declare to us the riddle, lest we burn thee and the house of thy father with fire; to possess us have ye called for us? is it not?'
+**¹⁵** And it cometh to pass, on the seventh day, that they say to Samson's wife, 'Entice thy husband, that he declare to us the riddle, lest we burn thee and the house of thy father with fire; to possess us have ye called for us? is it not?'
 
-<sup>16</sup> And Samson's wife weepeth for it, and saith, 'Thou hast only hated me, and hast not loved me; the riddle thou hast put forth to the sons of my people — and to me thou hast not declared it;' and he saith to her, 'Lo, to my father and to my mother I have not declared [it] — and to thee I declare [it]!'
+**¹⁶** And Samson's wife weepeth for it, and saith, 'Thou hast only hated me, and hast not loved me; the riddle thou hast put forth to the sons of my people — and to me thou hast not declared it;' and he saith to her, 'Lo, to my father and to my mother I have not declared [it] — and to thee I declare [it]!'
 
-<sup>17</sup> And she weepeth for it the seven days [in] which their banquet hath been, and it cometh to pass on the seventh day that he declareth [it] to her, for she hath distressed him; and she declareth the riddle to the sons of her people.
+**¹⁷** And she weepeth for it the seven days [in] which their banquet hath been, and it cometh to pass on the seventh day that he declareth [it] to her, for she hath distressed him; and she declareth the riddle to the sons of her people.
 
-<sup>18</sup> And the men of the city say to him on the seventh day, before the sun goeth in: — 'What [is] sweeter than honey? And what stronger than a lion?' And he saith to them: 'Unless ye had ploughed with my heifer, Ye had not found out my riddle.'
+**¹⁸** And the men of the city say to him on the seventh day, before the sun goeth in: — 'What [is] sweeter than honey? And what stronger than a lion?' And he saith to them: 'Unless ye had ploughed with my heifer, Ye had not found out my riddle.'
 
-<sup>19</sup> And the Spirit of Jehovah prospereth over him, and he goeth down to Ashkelon, and smiteth of them thirty men, and taketh their armour, and giveth the changes to those declaring the riddle; and his anger burneth, and he goeth up to the house of his father;
+**¹⁹** And the Spirit of Jehovah prospereth over him, and he goeth down to Ashkelon, and smiteth of them thirty men, and taketh their armour, and giveth the changes to those declaring the riddle; and his anger burneth, and he goeth up to the house of his father;
 
-<sup>20</sup> and Samson's wife becometh his companion's, who [is] his friend.
+**²⁰** and Samson's wife becometh his companion's, who [is] his friend.

@@ -1,51 +1,51 @@
 # Chapter 26
 
-<sup>1</sup> And the Ziphites come in unto Saul, at Gibeah, saying, 'Is not David hiding himself in the height of Hachilah, on the front of the desert?'
+**¹** And the Ziphites come in unto Saul, at Gibeah, saying, 'Is not David hiding himself in the height of Hachilah, on the front of the desert?'
 
-<sup>2</sup> And Saul riseth, and goeth down unto the wilderness of Ziph, and with him three thousand men, chosen ones of Israel, to seek David in the wilderness of Ziph.
+**²** And Saul riseth, and goeth down unto the wilderness of Ziph, and with him three thousand men, chosen ones of Israel, to seek David in the wilderness of Ziph.
 
-<sup>3</sup> And Saul encampeth in the height of Hachilah, which [is] on the front of the desert, by the way, and David is abiding in the wilderness, and he seeth that Saul hath come after him in to the wilderness;
+**³** And Saul encampeth in the height of Hachilah, which [is] on the front of the desert, by the way, and David is abiding in the wilderness, and he seeth that Saul hath come after him in to the wilderness;
 
-<sup>4</sup> and David sendeth spies, and knoweth that Saul hath come unto Nachon,
+**⁴** and David sendeth spies, and knoweth that Saul hath come unto Nachon,
 
-<sup>5</sup> and David riseth, and cometh in unto the place where Saul hath encamped, and David seeth the place where Saul hath lain, and Abner son of Ner, head of his host, and Saul is lying in the path, and the people are encamping round about him.
+**⁵** and David riseth, and cometh in unto the place where Saul hath encamped, and David seeth the place where Saul hath lain, and Abner son of Ner, head of his host, and Saul is lying in the path, and the people are encamping round about him.
 
-<sup>6</sup> And David answereth and saith unto Ahimelech the Hittite, and unto Abishai son of Zeruiah, brother of Joab, saying, 'Who doth go down with me unto Saul, unto the camp?' and Abishai saith, 'I — I go down with thee.'
+**⁶** And David answereth and saith unto Ahimelech the Hittite, and unto Abishai son of Zeruiah, brother of Joab, saying, 'Who doth go down with me unto Saul, unto the camp?' and Abishai saith, 'I — I go down with thee.'
 
-<sup>7</sup> And David cometh — and Abishai — unto the people by night, and lo, Saul is lying sleeping in the path, and his spear struck into the earth at his pillow, and abner and the people are lying round about him.
+**⁷** And David cometh — and Abishai — unto the people by night, and lo, Saul is lying sleeping in the path, and his spear struck into the earth at his pillow, and abner and the people are lying round about him.
 
-<sup>8</sup> And Abishai saith unto David, 'God hath shut up to-day thine enemy into thy hand; and, now, let me smite him, I pray thee, with a spear, even into the earth at once — and I do repeat [it] to him.'
+**⁸** And Abishai saith unto David, 'God hath shut up to-day thine enemy into thy hand; and, now, let me smite him, I pray thee, with a spear, even into the earth at once — and I do repeat [it] to him.'
 
-<sup>9</sup> And David saith unto Abishai, 'Destroy him not; for who hath put forth his hand against the anointed of Jehovah, and been acquitted?'
+**⁹** And David saith unto Abishai, 'Destroy him not; for who hath put forth his hand against the anointed of Jehovah, and been acquitted?'
 
-<sup>10</sup> And David saith, 'Jehovah liveth; except Jehovah doth smite him, or his day come that he hath died, or into battle he go down, and hath been consumed —
+**¹⁰** And David saith, 'Jehovah liveth; except Jehovah doth smite him, or his day come that he hath died, or into battle he go down, and hath been consumed —
 
-<sup>11</sup> far be it from me, by Jehovah, from putting forth my hand against the anointed of Jehovah; and, now, take, I pray thee, the spear which [is] at his pillow, and the cruse of water, and we go away.'
+**¹¹** far be it from me, by Jehovah, from putting forth my hand against the anointed of Jehovah; and, now, take, I pray thee, the spear which [is] at his pillow, and the cruse of water, and we go away.'
 
-<sup>12</sup> And David taketh the spear, and the cruse of water at the pillow of Saul, and they go away, and there is none seeing, and there is none knowing, and there is none awaking, for all of them are sleeping, for a deep sleep [from] Jehovah hath fallen upon them.
+**¹²** And David taketh the spear, and the cruse of water at the pillow of Saul, and they go away, and there is none seeing, and there is none knowing, and there is none awaking, for all of them are sleeping, for a deep sleep [from] Jehovah hath fallen upon them.
 
-<sup>13</sup> And David passeth over to the other side, and standeth on the top of the hill afar off — great [is] the place between them;
+**¹³** And David passeth over to the other side, and standeth on the top of the hill afar off — great [is] the place between them;
 
-<sup>14</sup> and David calleth unto the people, and unto Abner son of Ner, saying, 'Dost thou not answer, Abner?' and Abner answereth and saith, 'Who [art] thou [who] hast called unto the king?'
+**¹⁴** and David calleth unto the people, and unto Abner son of Ner, saying, 'Dost thou not answer, Abner?' and Abner answereth and saith, 'Who [art] thou [who] hast called unto the king?'
 
-<sup>15</sup> And David saith unto Abner, 'Art not thou a man? and who [is] like thee in Israel? but why hast thou not watched over thy lord the king? for one of the people had come in to destroy the king, thy lord.
+**¹⁵** And David saith unto Abner, 'Art not thou a man? and who [is] like thee in Israel? but why hast thou not watched over thy lord the king? for one of the people had come in to destroy the king, thy lord.
 
-<sup>16</sup> Not good is this thing which thou hast done; Jehovah liveth, but ye [are] sons of death, in that ye have not watched over your lord, over the anointed of Jehovah; and now, see where the king's spear [is], and the cruse of water which [is] at his bolster.'
+**¹⁶** Not good is this thing which thou hast done; Jehovah liveth, but ye [are] sons of death, in that ye have not watched over your lord, over the anointed of Jehovah; and now, see where the king's spear [is], and the cruse of water which [is] at his bolster.'
 
-<sup>17</sup> And Saul discerneth the voice of David, and saith, 'Is this thy voice, my son David?' and David saith, 'My voice, my lord, O king!'
+**¹⁷** And Saul discerneth the voice of David, and saith, 'Is this thy voice, my son David?' and David saith, 'My voice, my lord, O king!'
 
-<sup>18</sup> and he saith, 'Why [is] this — my lord is pursuing after his servant? for what have I done, and what [is] in my hand evil?
+**¹⁸** and he saith, 'Why [is] this — my lord is pursuing after his servant? for what have I done, and what [is] in my hand evil?
 
-<sup>19</sup> And, now, let, I pray thee, my lord the king hear the words of his servant: if Jehovah hath moved thee against me, let Him accept a present; and if the sons of men — cursed [are] they before Jehovah, for they have cast me out to-day from being admitted into the inheritance of Jehovah, saying, Go, serve other gods.
+**¹⁹** And, now, let, I pray thee, my lord the king hear the words of his servant: if Jehovah hath moved thee against me, let Him accept a present; and if the sons of men — cursed [are] they before Jehovah, for they have cast me out to-day from being admitted into the inheritance of Jehovah, saying, Go, serve other gods.
 
-<sup>20</sup> 'And now, let not my blood fall to the earth over-against the face of Jehovah, for the king of Israel hath come out to seek one flea, as [one] pursueth the partridge in mountains.'
+**²⁰** 'And now, let not my blood fall to the earth over-against the face of Jehovah, for the king of Israel hath come out to seek one flea, as [one] pursueth the partridge in mountains.'
 
-<sup>21</sup> And Saul saith, 'I have sinned; turn back, my son David, for I do evil to thee no more, because that my soul hath been precious in thine eyes this day; lo, I have acted foolishly, and do err very greatly.'
+**²¹** And Saul saith, 'I have sinned; turn back, my son David, for I do evil to thee no more, because that my soul hath been precious in thine eyes this day; lo, I have acted foolishly, and do err very greatly.'
 
-<sup>22</sup> And David answereth and saith, 'Lo, the king's spear; and let one of the young men pass over, and receive it;
+**²²** And David answereth and saith, 'Lo, the king's spear; and let one of the young men pass over, and receive it;
 
-<sup>23</sup> and Jehovah doth turn back to each his righteousness and his faithfulness, in that Jehovah hath given thee to-day into [my] hand, and I have not been willing to put forth my hand against the anointed of Jehovah,
+**²³** and Jehovah doth turn back to each his righteousness and his faithfulness, in that Jehovah hath given thee to-day into [my] hand, and I have not been willing to put forth my hand against the anointed of Jehovah,
 
-<sup>24</sup> and lo, as thy soul hath been great this day in mine eyes, so is my soul great in the eyes of Jehovah, and He doth deliver me out of all distress.'
+**²⁴** and lo, as thy soul hath been great this day in mine eyes, so is my soul great in the eyes of Jehovah, and He doth deliver me out of all distress.'
 
-<sup>25</sup> And Saul saith unto David, 'Blessed [art] thou, my son David, also working thou dost work, and also prevailing thou dost prevail.' And David goeth on his way, and Saul hath turned back to his place.
+**²⁵** And Saul saith unto David, 'Blessed [art] thou, my son David, also working thou dost work, and also prevailing thou dost prevail.' And David goeth on his way, and Saul hath turned back to his place.

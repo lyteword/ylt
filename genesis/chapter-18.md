@@ -1,67 +1,67 @@
 # Chapter 18
 
-<sup>1</sup> And Jehovah appeareth unto him among the oaks of Mamre, and he is sitting at the opening of the tent, about the heat of the day;
+**¹** And Jehovah appeareth unto him among the oaks of Mamre, and he is sitting at the opening of the tent, about the heat of the day;
 
-<sup>2</sup> and he lifteth up his eyes and looketh, and lo, three men standing by him, and he seeth, and runneth to meet them from the opening of the tent, and boweth himself towards the earth,
+**²** and he lifteth up his eyes and looketh, and lo, three men standing by him, and he seeth, and runneth to meet them from the opening of the tent, and boweth himself towards the earth,
 
-<sup>3</sup> And he saith, 'My Lord, if, I pray thee, I have found grace in thine eyes, do not, I pray thee, pass on from thy servant;
+**³** And he saith, 'My Lord, if, I pray thee, I have found grace in thine eyes, do not, I pray thee, pass on from thy servant;
 
-<sup>4</sup> let, I pray thee, a little water be accepted, and wash your feet, and recline under the tree;
+**⁴** let, I pray thee, a little water be accepted, and wash your feet, and recline under the tree;
 
-<sup>5</sup> and I bring a piece of bread, and support ye your heart; afterwards pass on, for therefore have ye passed over unto your servant;' and they say, 'So mayest thou do as thou has spoken.'
+**⁵** and I bring a piece of bread, and support ye your heart; afterwards pass on, for therefore have ye passed over unto your servant;' and they say, 'So mayest thou do as thou has spoken.'
 
-<sup>6</sup> And Abraham hasteth towards the tent, unto Sarah, and saith, 'Hasten three measures of flour-meal, knead, and make cakes;'
+**⁶** And Abraham hasteth towards the tent, unto Sarah, and saith, 'Hasten three measures of flour-meal, knead, and make cakes;'
 
-<sup>7</sup> and Abraham ran unto the herd, and taketh a son of the herd, tender and good, and giveth unto the young man, and he hasteth to prepare it;
+**⁷** and Abraham ran unto the herd, and taketh a son of the herd, tender and good, and giveth unto the young man, and he hasteth to prepare it;
 
-<sup>8</sup> and he taketh butter and milk, and the son of the herd which he hath prepared, and setteth before them; and he is standing by them under the tree, and they do eat.
+**⁸** and he taketh butter and milk, and the son of the herd which he hath prepared, and setteth before them; and he is standing by them under the tree, and they do eat.
 
-<sup>9</sup> And they say unto him, 'Where [is] Sarah thy wife?' and he saith, 'Lo — in the tent;'
+**⁹** And they say unto him, 'Where [is] Sarah thy wife?' and he saith, 'Lo — in the tent;'
 
-<sup>10</sup> and he saith, 'returning I return unto thee, about the time of life, and lo, to Sarah thy wife a son.'
+**¹⁰** and he saith, 'returning I return unto thee, about the time of life, and lo, to Sarah thy wife a son.'
 
-<sup>11</sup> And Sarah is hearkening at the opening of the tent, which is behind him;
+**¹¹** And Sarah is hearkening at the opening of the tent, which is behind him;
 
-<sup>12</sup> and Abraham and Sarah [are] aged, entering into days — the way of women hath ceased to be to Sarah;
+**¹²** and Abraham and Sarah [are] aged, entering into days — the way of women hath ceased to be to Sarah;
 
-<sup>13</sup> and Sarah laugheth in her heart, saying, 'After I have waxed old I have had pleasure! — my lord also [is] old!'
+**¹³** and Sarah laugheth in her heart, saying, 'After I have waxed old I have had pleasure! — my lord also [is] old!'
 
-<sup>14</sup> And Jehovah saith unto Abraham, 'Why [is] this? Sarah hath laughed, saying, Is it true really — I bear — and I am aged? Is any thing too wonderful for Jehovah? at the appointed time I return unto thee, about the time of life, and Sarah hath a son.'
+**¹⁴** And Jehovah saith unto Abraham, 'Why [is] this? Sarah hath laughed, saying, Is it true really — I bear — and I am aged? Is any thing too wonderful for Jehovah? at the appointed time I return unto thee, about the time of life, and Sarah hath a son.'
 
-<sup>15</sup> And Sarah denieth, saying, 'I did not laugh;' for she hath been afraid; and He saith, 'Nay, but thou didst laugh.'
+**¹⁵** And Sarah denieth, saying, 'I did not laugh;' for she hath been afraid; and He saith, 'Nay, but thou didst laugh.'
 
-<sup>16</sup> And the men rise from thence, and look on the face of Sodom, and Abraham is going with them to send them away;
+**¹⁶** And the men rise from thence, and look on the face of Sodom, and Abraham is going with them to send them away;
 
-<sup>17</sup> and Jehovah said, 'Am I concealing from Abraham that which I am doing,
+**¹⁷** and Jehovah said, 'Am I concealing from Abraham that which I am doing,
 
-<sup>18</sup> and Abraham certainly becometh a nation great and mighty, and blessed in him have been all nations of the earth?
+**¹⁸** and Abraham certainly becometh a nation great and mighty, and blessed in him have been all nations of the earth?
 
-<sup>19</sup> for I have known him, that he commandeth his children, and his house after him (and they have kept the way of Jehovah), to do righteousness and judgment, that Jehovah may bring on Abraham that which He hath spoken concerning him.'
+**¹⁹** for I have known him, that he commandeth his children, and his house after him (and they have kept the way of Jehovah), to do righteousness and judgment, that Jehovah may bring on Abraham that which He hath spoken concerning him.'
 
-<sup>20</sup> And Jehovah saith, 'The cry of Sodom and Gomorrah — because great; and their sin — because exceeding grievous:
+**²⁰** And Jehovah saith, 'The cry of Sodom and Gomorrah — because great; and their sin — because exceeding grievous:
 
-<sup>21</sup> I go down now, and see whether according to its cry which is coming unto Me they have done completely — and if not — I know;'
+**²¹** I go down now, and see whether according to its cry which is coming unto Me they have done completely — and if not — I know;'
 
-<sup>22</sup> and the men turn from thence, and go towards Sodom; and Abraham is yet standing before Jehovah.
+**²²** and the men turn from thence, and go towards Sodom; and Abraham is yet standing before Jehovah.
 
-<sup>23</sup> And Abraham draweth nigh and saith, 'Dost Thou also consume righteous with wicked?
+**²³** And Abraham draweth nigh and saith, 'Dost Thou also consume righteous with wicked?
 
-<sup>24</sup> peradventure there are fifty righteous in the midst of the city; dost Thou also consume, and not bear with the place for the sake of the fifty — the righteous who [are] in its midst?
+**²⁴** peradventure there are fifty righteous in the midst of the city; dost Thou also consume, and not bear with the place for the sake of the fifty — the righteous who [are] in its midst?
 
-<sup>25</sup> Far be it from Thee to do according to this thing, to put to death the righteous with the wicked; that it hath been — as the righteous so the wicked — far be it from Thee; doth the Judge of all the earth not do justice?'
+**²⁵** Far be it from Thee to do according to this thing, to put to death the righteous with the wicked; that it hath been — as the righteous so the wicked — far be it from Thee; doth the Judge of all the earth not do justice?'
 
-<sup>26</sup> And Jehovah saith, 'If I find in Sodom fifty righteous in the midst of the city, then have I borne with all the place for their sake.'
+**²⁶** And Jehovah saith, 'If I find in Sodom fifty righteous in the midst of the city, then have I borne with all the place for their sake.'
 
-<sup>27</sup> And Abraham answereth and saith, 'Lo, I pray thee, I have willed to speak unto the Lord, and I — dust and ashes;
+**²⁷** And Abraham answereth and saith, 'Lo, I pray thee, I have willed to speak unto the Lord, and I — dust and ashes;
 
-<sup>28</sup> peradventure there are lacking five of the fifty righteous — dost Thou destroy for five the whole of the city?' and He saith, 'I destroy [it] not, if I find there forty and five.'
+**²⁸** peradventure there are lacking five of the fifty righteous — dost Thou destroy for five the whole of the city?' and He saith, 'I destroy [it] not, if I find there forty and five.'
 
-<sup>29</sup> And he addeth again to speak unto Him and saith, 'Peradventure there are found there forty?' and He saith, 'I do [it] not, because of the forty.'
+**²⁹** And he addeth again to speak unto Him and saith, 'Peradventure there are found there forty?' and He saith, 'I do [it] not, because of the forty.'
 
-<sup>30</sup> And he saith, 'Let it not be, I Pray thee, displeasing to the Lord, and I speak: peradventure there are found there thirty?' and He saith, 'I do [it] not, if I find there thirty.'
+**³⁰** And he saith, 'Let it not be, I Pray thee, displeasing to the Lord, and I speak: peradventure there are found there thirty?' and He saith, 'I do [it] not, if I find there thirty.'
 
-<sup>31</sup> And he saith, 'Lo, I pray thee, I have willed to speak unto the Lord: peradventure there are found there twenty?' and He saith, 'I do not destroy [it], because of the twenty.'
+**³¹** And he saith, 'Lo, I pray thee, I have willed to speak unto the Lord: peradventure there are found there twenty?' and He saith, 'I do not destroy [it], because of the twenty.'
 
-<sup>32</sup> And he saith, 'Let it not be, I pray Thee, displeasing to the Lord, and I speak only this time: peradventure there are found there ten?' and He saith, 'I do not destroy [it], because of the ten.'
+**³²** And he saith, 'Let it not be, I pray Thee, displeasing to the Lord, and I speak only this time: peradventure there are found there ten?' and He saith, 'I do not destroy [it], because of the ten.'
 
-<sup>33</sup> And Jehovah goeth on, when He hath finished speaking unto Abraham, and Abraham hath turned back to his place.
+**³³** And Jehovah goeth on, when He hath finished speaking unto Abraham, and Abraham hath turned back to his place.

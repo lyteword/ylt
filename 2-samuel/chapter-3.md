@@ -1,79 +1,79 @@
 # Chapter 3
 
-<sup>1</sup> And the war is long between the house of Saul and the house of David, and David is going on and [is] strong, and the house of Saul are going on and [are] weak.
+**¹** And the war is long between the house of Saul and the house of David, and David is going on and [is] strong, and the house of Saul are going on and [are] weak.
 
-<sup>2</sup> And there are born to David sons in Hebron, and his first-born is Amnon, of Ahinoam the Jezreelitess,
+**²** And there are born to David sons in Hebron, and his first-born is Amnon, of Ahinoam the Jezreelitess,
 
-<sup>3</sup> and his second [is] Chileab, of Abigail wife of Nabal the Carmelite, and the third [is] Absalom son of Maacah daughter of Talmai king of Geshur,
+**³** and his second [is] Chileab, of Abigail wife of Nabal the Carmelite, and the third [is] Absalom son of Maacah daughter of Talmai king of Geshur,
 
-<sup>4</sup> and the fourth [is] Adonijah son of Haggith, and the fifth [is] Shephatiah son of Abital,
+**⁴** and the fourth [is] Adonijah son of Haggith, and the fifth [is] Shephatiah son of Abital,
 
-<sup>5</sup> and the sixth [is] Ithream, of Eglah wife of David; these have been born to David in Hebron.
+**⁵** and the sixth [is] Ithream, of Eglah wife of David; these have been born to David in Hebron.
 
-<sup>6</sup> And it cometh to pass, in the war being between the house of Saul and the house of David, that Abner hath been strengthening himself in the house of Saul,
+**⁶** And it cometh to pass, in the war being between the house of Saul and the house of David, that Abner hath been strengthening himself in the house of Saul,
 
-<sup>7</sup> and Saul hath a concubine, and her name [is] Rizpah daughter of Aiah, and [Ish-Bosheth] saith unto Abner, 'Wherefore hast thou gone in unto the concubine of my father?'
+**⁷** and Saul hath a concubine, and her name [is] Rizpah daughter of Aiah, and [Ish-Bosheth] saith unto Abner, 'Wherefore hast thou gone in unto the concubine of my father?'
 
-<sup>8</sup> And it is displeasing to Abner exceedingly, because of the words of Ish-Bosheth, and he saith, 'The head of a dog [am] I — that in reference to Judah to-day I do kindness with the house of Saul thy father, unto his brethren, and unto his friends, and have not delivered thee into the hand of David — that thou chargest against me iniquity concerning the woman to-day?
+**⁸** And it is displeasing to Abner exceedingly, because of the words of Ish-Bosheth, and he saith, 'The head of a dog [am] I — that in reference to Judah to-day I do kindness with the house of Saul thy father, unto his brethren, and unto his friends, and have not delivered thee into the hand of David — that thou chargest against me iniquity concerning the woman to-day?
 
-<sup>9</sup> thus doth God to Abner, and thus He doth add to him, surely as Jehovah hath sworn to David — surely so I do to him:
+**⁹** thus doth God to Abner, and thus He doth add to him, surely as Jehovah hath sworn to David — surely so I do to him:
 
-<sup>10</sup> to cause the kingdom to pass over from the house of Saul, and to raise up the throne of David over Israel, and over Judah, from Dan even unto Beer-Sheba.'
+**¹⁰** to cause the kingdom to pass over from the house of Saul, and to raise up the throne of David over Israel, and over Judah, from Dan even unto Beer-Sheba.'
 
-<sup>11</sup> And he is not able any more to turn back Abner a word, because of his fearing him.
+**¹¹** And he is not able any more to turn back Abner a word, because of his fearing him.
 
-<sup>12</sup> And Abner sendeth messengers unto David for himself, saying, 'Whose [is] the land?' saying, 'Make thy covenant with me, and lo, my hand [is] with thee, to bring round unto thee all Israel.'
+**¹²** And Abner sendeth messengers unto David for himself, saying, 'Whose [is] the land?' saying, 'Make thy covenant with me, and lo, my hand [is] with thee, to bring round unto thee all Israel.'
 
-<sup>13</sup> And he saith, 'Good — I make with thee a covenant; only, one thing I am asking of thee, that is, Thou dost not see my face, except thou dost first bring in Michal, daughter of Saul in thy coming into see my face.'
+**¹³** And he saith, 'Good — I make with thee a covenant; only, one thing I am asking of thee, that is, Thou dost not see my face, except thou dost first bring in Michal, daughter of Saul in thy coming into see my face.'
 
-<sup>14</sup> And David sendeth messengers unto Ish-Bosheth son of Saul, saying, 'Give up my wife Michal, whom I betrothed to myself with a hundred foreskins of the Philistines.'
+**¹⁴** And David sendeth messengers unto Ish-Bosheth son of Saul, saying, 'Give up my wife Michal, whom I betrothed to myself with a hundred foreskins of the Philistines.'
 
-<sup>15</sup> And Ish-Bosheth sendeth, and taketh her from a man, from Phaltiel son of Laish,
+**¹⁵** And Ish-Bosheth sendeth, and taketh her from a man, from Phaltiel son of Laish,
 
-<sup>16</sup> and her husband goeth with her, going on and weeping behind her, unto Bahurim, and Abner saith unto him, 'Go, turn back;' and he turneth back.
+**¹⁶** and her husband goeth with her, going on and weeping behind her, unto Bahurim, and Abner saith unto him, 'Go, turn back;' and he turneth back.
 
-<sup>17</sup> And the word of Abner was with the elders of Israel, saying, 'Heretofore ye have been seeking David for king over you,
+**¹⁷** And the word of Abner was with the elders of Israel, saying, 'Heretofore ye have been seeking David for king over you,
 
-<sup>18</sup> and now, do [it], for Jehovah hath spoken of David saying, By the hand of David my servant — to save My people Israel out of the hand of the Philistines, and out of the hand of all their enemies.'
+**¹⁸** and now, do [it], for Jehovah hath spoken of David saying, By the hand of David my servant — to save My people Israel out of the hand of the Philistines, and out of the hand of all their enemies.'
 
-<sup>19</sup> And Abner speaketh also in the ears of Benjamin, and Abner goeth also to speak in the ears of David in Hebron all that [is] good in the eyes of Israel, and in the eyes of all the house of Benjamin,
+**¹⁹** And Abner speaketh also in the ears of Benjamin, and Abner goeth also to speak in the ears of David in Hebron all that [is] good in the eyes of Israel, and in the eyes of all the house of Benjamin,
 
-<sup>20</sup> and Abner cometh in unto David, to Hebron, and with him twenty men, and David maketh for Abner, and for the men who [are] with him, a banquet.
+**²⁰** and Abner cometh in unto David, to Hebron, and with him twenty men, and David maketh for Abner, and for the men who [are] with him, a banquet.
 
-<sup>21</sup> And Abner saith unto David, 'I arise, and go, and gather unto my lord the king the whole of Israel, and they make with thee a covenant, and thou hast reigned over all that thy soul desireth;' and David sendeth away Abner, and he goeth in peace.
+**²¹** And Abner saith unto David, 'I arise, and go, and gather unto my lord the king the whole of Israel, and they make with thee a covenant, and thou hast reigned over all that thy soul desireth;' and David sendeth away Abner, and he goeth in peace.
 
-<sup>22</sup> And lo, the servants of David, and Joab, have come from the troop, and much spoil have brought with them, and Abner is not with David in Hebron, for he hath sent him away, and he goeth in peace;
+**²²** And lo, the servants of David, and Joab, have come from the troop, and much spoil have brought with them, and Abner is not with David in Hebron, for he hath sent him away, and he goeth in peace;
 
-<sup>23</sup> and Joab and all the host that [is] with him have come, and they declare to Joab, saying, 'Abner son of Ner hath come unto the king, and he sendeth him away, and he goeth in peace.'
+**²³** and Joab and all the host that [is] with him have come, and they declare to Joab, saying, 'Abner son of Ner hath come unto the king, and he sendeth him away, and he goeth in peace.'
 
-<sup>24</sup> And Joab cometh unto the king, and saith, 'What hast thou done? lo, Abner hath come unto thee! why [is] this — thou hast sent him away, and he is really gone?
+**²⁴** And Joab cometh unto the king, and saith, 'What hast thou done? lo, Abner hath come unto thee! why [is] this — thou hast sent him away, and he is really gone?
 
-<sup>25</sup> Thou hast known Abner son of Ner, that to deceive thee he came, and to know thy going out and thy coming in, and to know all that thou art doing.'
+**²⁵** Thou hast known Abner son of Ner, that to deceive thee he came, and to know thy going out and thy coming in, and to know all that thou art doing.'
 
-<sup>26</sup> And Joab goeth out from David, and sendeth messengers after Abner, and they bring him back from the well of Sirah, and David knew not.
+**²⁶** And Joab goeth out from David, and sendeth messengers after Abner, and they bring him back from the well of Sirah, and David knew not.
 
-<sup>27</sup> And Abner turneth back to Hebron, and Joab turneth him aside unto the midst of the gate to speak with him quietly, and smiteth him there in the fifth [rib] — and he dieth — for the blood of Asahel his brother.
+**²⁷** And Abner turneth back to Hebron, and Joab turneth him aside unto the midst of the gate to speak with him quietly, and smiteth him there in the fifth [rib] — and he dieth — for the blood of Asahel his brother.
 
-<sup>28</sup> And David heareth afterwards and saith, 'Acquitted [am] I, and my kingdom, by Jehovah, unto the age, from the blood of Abner son of Ner;
+**²⁸** And David heareth afterwards and saith, 'Acquitted [am] I, and my kingdom, by Jehovah, unto the age, from the blood of Abner son of Ner;
 
-<sup>29</sup> it doth stay on the head of Joab, and on all the house of his father, and there is not cut off from the house of Joab one having an issue, and leprous, and laying hold on a staff, and falling by a sword, and lacking bread.'
+**²⁹** it doth stay on the head of Joab, and on all the house of his father, and there is not cut off from the house of Joab one having an issue, and leprous, and laying hold on a staff, and falling by a sword, and lacking bread.'
 
-<sup>30</sup> And Joab and Abishai his brother slew Abner because that he put to death Asahel their brother, in Gibeon, in battle.
+**³⁰** And Joab and Abishai his brother slew Abner because that he put to death Asahel their brother, in Gibeon, in battle.
 
-<sup>31</sup> And David saith unto Joab, and unto all the people who [are] with him, 'Rend your garments, and gird on sackcloth, and mourn before Abner;' and king David is going after the bier.
+**³¹** And David saith unto Joab, and unto all the people who [are] with him, 'Rend your garments, and gird on sackcloth, and mourn before Abner;' and king David is going after the bier.
 
-<sup>32</sup> And they bury Abner in Hebron, and the king lifteth up his voice, and weepeth at the grave of Abner, and all the people weep;
+**³²** And they bury Abner in Hebron, and the king lifteth up his voice, and weepeth at the grave of Abner, and all the people weep;
 
-<sup>33</sup> and the king lamenteth for Abner, and saith: — 'As the death of a fool doth Abner die?
+**³³** and the king lamenteth for Abner, and saith: — 'As the death of a fool doth Abner die?
 
-<sup>34</sup> Thy hands not bound, And thy feet to fetters not brought nigh! As one falling before sons of evil — Thou hast fallen!' and all the people add to weep over him.
+**³⁴** Thy hands not bound, And thy feet to fetters not brought nigh! As one falling before sons of evil — Thou hast fallen!' and all the people add to weep over him.
 
-<sup>35</sup> And all the people come to cause David to eat bread while yet day, and David sweareth, saying, 'Thus doth God to me, and thus He doth add, for — before the going in of the sun, I taste no bread or any other thing.'
+**³⁵** And all the people come to cause David to eat bread while yet day, and David sweareth, saying, 'Thus doth God to me, and thus He doth add, for — before the going in of the sun, I taste no bread or any other thing.'
 
-<sup>36</sup> And all the people have discerned [it], and it is good in their eyes, as all that the king hath done is good in the eyes of all the people;
+**³⁶** And all the people have discerned [it], and it is good in their eyes, as all that the king hath done is good in the eyes of all the people;
 
-<sup>37</sup> and all the people know, even all Israel, in that day, that it hath not been from the king — to put to death Abner son of Ner.
+**³⁷** and all the people know, even all Israel, in that day, that it hath not been from the king — to put to death Abner son of Ner.
 
-<sup>38</sup> And the king saith unto his servants, 'Do ye not know that a prince and a great one hath fallen this day in Israel?
+**³⁸** And the king saith unto his servants, 'Do ye not know that a prince and a great one hath fallen this day in Israel?
 
-<sup>39</sup> and I to-day [am] tender, and an anointed king: and these men, sons of Zeruiah, [are] too hard for me; Jehovah doth recompense to the doer of the evil according to his evil.'
+**³⁹** and I to-day [am] tender, and an anointed king: and these men, sons of Zeruiah, [are] too hard for me; Jehovah doth recompense to the doer of the evil according to his evil.'
