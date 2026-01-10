@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 **¹** And Balaam seeth that [it is] good in the eyes of Jehovah to bless Israel, and he hath not gone as time by time to meet enchantments, and he setteth towards the wilderness his face;

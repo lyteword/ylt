@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** And all the tribes of Israel come unto David, to Hebron, and speak, saying, 'Lo, we [are] thy bone and thy flesh;

@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Psalm 2
 
 **¹** Why have nations tumultuously assembled? And do peoples meditate vanity?

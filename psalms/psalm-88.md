@@ -1,3 +1,7 @@
+---
+weight: 88
+---
+
 # Psalm 88
 
 **¹** A Song, a Psalm, by sons of Korah, to the Overseer, 'Concerning the Sickness of Afflictions.' — An instruction, by Heman the Ezrahite. O Jehovah, God of my salvation, Daily I have cried, nightly before Thee,

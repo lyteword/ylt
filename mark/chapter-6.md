@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** And he went forth thence, and came to his own country, and his disciples do follow him,

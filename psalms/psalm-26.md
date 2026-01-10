@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Psalm 26
 
 **¹** By David. Judge me, O Jehovah, for I in mine integrity have walked, And in Jehovah I have trusted, I slide not.

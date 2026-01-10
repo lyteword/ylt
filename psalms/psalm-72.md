@@ -1,3 +1,7 @@
+---
+weight: 72
+---
+
 # Psalm 72
 
 **¹** By Solomon. O God, Thy judgments to the king give, And Thy righteousness to the king's son.

@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** For we have known that if our earthly house of the tabernacle may be thrown down, a building from God we have, an house not made with hands — age-during — in the heavens,

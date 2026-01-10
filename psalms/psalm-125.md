@@ -1,3 +1,7 @@
+---
+weight: 125
+---
+
 # Psalm 125
 
 **¹** A Song of the Ascents. Those trusting in Jehovah [are] as Mount Zion, It is not moved — to the age it abideth.

@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** Righteous [art] Thou, O Jehovah, When I plead towards thee, Only, judgments do I speak with Thee, Wherefore did the way of the wicked prosper? At rest have been all treacherous dealers.

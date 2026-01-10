@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** And Joab son of Zeruial knoweth that the heart of the king [is] on Absalom,

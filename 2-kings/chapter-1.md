@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** And Moab transgresseth against Israel after the death of Ahab,

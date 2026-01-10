@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 **¹** And Paul having earnestly beheld the sanhedrim, said, 'Men, brethren, I in all good conscience have lived to God unto this day;'

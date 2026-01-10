@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** And about that time, Herod the king put forth his hands, to do evil to certain of those of the assembly,

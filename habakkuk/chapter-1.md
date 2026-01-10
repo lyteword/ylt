@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** The burden that Habakkuk the prophet hath seen:

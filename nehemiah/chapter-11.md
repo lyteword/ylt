@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** And the heads of the people dwell in Jerusalem, and the rest of the people have caused to fall lots to bring in one out of ten to dwell in Jerusalem the holy city, and nine parts in the cities,

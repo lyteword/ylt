@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** In the beginning of God's preparing the heavens and the earth —

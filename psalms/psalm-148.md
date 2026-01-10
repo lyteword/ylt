@@ -1,3 +1,7 @@
+---
+weight: 148
+---
+
 # Psalm 148
 
 **¹** Praise ye Jah! Praise ye Jehovah from the heavens, Praise ye Him in high places.

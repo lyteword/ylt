@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And I decided this to myself, not again to come in sorrow unto you,

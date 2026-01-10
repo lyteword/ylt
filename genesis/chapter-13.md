@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** And Abram goeth up from Egypt (he and his wife, and all that he hath, and Lot with him) towards the south;

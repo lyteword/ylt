@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** Brethren, the pleasure indeed of my heart, and my supplication that [is] to God for Israel, is — for salvation;

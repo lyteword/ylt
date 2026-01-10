@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 **¹** And after these things I saw another messenger coming down out of the heaven, having great authority, and the earth was lightened from his glory,

@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** And these [are] births of the sons of Noah, Shem, Ham, and Japheth; and born to them are sons after the deluge.

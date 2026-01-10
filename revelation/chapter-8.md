@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And when he openeth the seventh seal, there came silence in the heaven about half-an-hour,

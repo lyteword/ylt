@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 **¹** A son of twenty and five years hath Amaziah reigned, and twenty and nine years he hath reigned in Jerusalem, and the name of his mother [is] Jehoaddan of Jerusalem,

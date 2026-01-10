@@ -1,3 +1,7 @@
+---
+weight: 116
+---
+
 # Psalm 116
 
 **¹** I have loved, because Jehovah heareth My voice, my supplication,

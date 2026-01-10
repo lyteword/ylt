@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Paul, an apostle of Jesus Christ, through the will of God, according to a promise of life that [is] in Christ Jesus,

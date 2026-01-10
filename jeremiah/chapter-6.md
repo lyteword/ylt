@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** Strengthen yourselves, sons of Benjamin, From the midst of Jerusalem, And in Tekoa blow ye a trumpet, And over Beth-Haccerem lift ye up a flame, For evil hath been seen from the north, And great destruction.

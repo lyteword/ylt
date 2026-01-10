@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** On that day hath the king Ahasuerus given to Esther the queen the house of Haman, adversary of the Jews, and Mordecai hath come in before the king, for Esther hath declared what he [is] to her,

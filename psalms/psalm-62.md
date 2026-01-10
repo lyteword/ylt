@@ -1,3 +1,7 @@
+---
+weight: 62
+---
+
 # Psalm 62
 
 **¹** To the Overseer, for Jeduthun. — A Psalm of David. Only — toward God [is] my soul silent, From Him [is] my salvation.

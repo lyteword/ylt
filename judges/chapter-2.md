@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And a messenger of Jehovah goeth up from Gilgal unto Bochim,

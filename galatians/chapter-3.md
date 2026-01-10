@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** O thoughtless Galatians, who did bewitch you, not to obey the truth — before whose eyes Jesus Christ was described before among you crucified?

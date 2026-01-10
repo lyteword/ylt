@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** For every chief priest — out of men taken — in behalf of men is set in things [pertaining] to God, that he may offer both gifts and sacrifices for sins,

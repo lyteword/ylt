@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** And Rehoboam goeth to Shechem, for [to] Shechem have all Israel come to cause him to reign.

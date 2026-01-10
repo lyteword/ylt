@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** My son! to my wisdom give attention, To mine understanding incline thine ear,

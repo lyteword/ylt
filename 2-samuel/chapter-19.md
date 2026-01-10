@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 **¹** And it is declared to Joab, 'Lo, the king is weeping and mourning for Absalom;'

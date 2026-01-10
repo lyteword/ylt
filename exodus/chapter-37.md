@@ -1,3 +1,7 @@
+---
+weight: 37
+---
+
 # Chapter 37
 
 **¹** And Bezaleel maketh the ark of shittim wood, two cubits and a half its length, and a cubit and a half its breadth, and a cubit and a half its height;

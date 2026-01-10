@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** And Jehovah speaketh unto Moses and unto Aaron, saying unto them,

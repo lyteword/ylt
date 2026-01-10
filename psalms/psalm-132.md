@@ -1,3 +1,7 @@
+---
+weight: 132
+---
+
 # Psalm 132
 
 **¹** A Song of the Ascents. Remember, Jehovah, for David, all his afflictions.

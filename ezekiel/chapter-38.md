@@ -1,3 +1,7 @@
+---
+weight: 38
+---
+
 # Chapter 38
 
 **¹** And there is a word of Jehovah unto me, saying:

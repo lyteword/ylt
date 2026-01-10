@@ -1,3 +1,7 @@
+---
+weight: 27
+---
+
 # Chapter 27
 
 **¹** And when our sailing to Italy was determined, they were delivering up both Paul and certain others, prisoners, to a centurion, by name Julius, of the band of Sebastus,

@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** Wisdom hath builded her house, She hath hewn out her pillars — seven.

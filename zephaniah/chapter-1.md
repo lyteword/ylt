@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** A word of Jehovah that hath been unto Zephaniah son of Cushi, son of Gedaliah, son of Amariah, son of Hezikiah, in the days of Josiah son of Amoz, king of Judah:

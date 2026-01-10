@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** My son! my law forget not, And my commands let thy heart keep,

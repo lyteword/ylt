@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** Every one who is believing that Jesus is the Christ, of God he hath been begotten, and every one who is loving Him who did beget, doth love also him who is begotten of Him:

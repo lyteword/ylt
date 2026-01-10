@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And Naomi her mother-in-law saith to her, 'My daughter, do not I seek for thee rest, that it may be well with thee?

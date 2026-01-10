@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Paul, a servant of Jesus Christ, a called apostle, having been separated to the good news of God —

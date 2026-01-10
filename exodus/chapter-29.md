@@ -1,3 +1,7 @@
+---
+weight: 29
+---
+
 # Chapter 29
 
 **¹** 'And this [is] the thing which thou dost to them, to hallow them, for being priests to Me: Take one bullock, a son of the herd, and two rams, perfect ones,

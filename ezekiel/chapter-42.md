@@ -1,3 +1,7 @@
+---
+weight: 42
+---
+
 # Chapter 42
 
 **¹** And he bringeth me forth unto the outer court, the way northward, and he bringeth me in unto the chamber that [is] over-against the separate place, and that [is] over-against the building at the north.

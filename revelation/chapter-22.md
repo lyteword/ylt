@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 **¹** And he shewed me a pure river of water of life, bright as crystal, going forth out of the throne of God and of the Lamb:

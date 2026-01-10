@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And He saith unto me, 'Son of man, that which thou findest eat, eat this roll, and go, speak unto the house of Israel.'

@@ -1,3 +1,7 @@
+---
+weight: 35
+---
+
 # Psalm 35
 
 **¹** By David. Strive, Jehovah, with my strivers, fight with my fighters,

@@ -1,3 +1,7 @@
+---
+weight: 81
+---
+
 # Psalm 81
 
 **¹** To the Overseer. — 'On the Gittith.' By Asaph. Cry aloud to God our strength, Shout to the God of Jacob.

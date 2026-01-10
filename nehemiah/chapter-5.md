@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** And there is a great cry of the people and their wives, concerning their brethren the Jews,

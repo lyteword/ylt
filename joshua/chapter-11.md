@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** And it cometh to pass when Jabin king of Hazor heareth, that he sendeth unto Jobab king of Madon, and unto the king of Shimron, and unto the king of Achshaph,

@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And Mordecai hath known all that hath been done, and Mordecai rendeth his garments, and putteth on sackcloth and ashes, and goeth forth into the midst of the city and crieth — a cry loud and bitter,

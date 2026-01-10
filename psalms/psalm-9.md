@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Psalm 9
 
 **¹** To the Overseer, 'On the Death of Labben.' — A Psalm of David. I confess, O Jehovah, with all my heart, I recount all Thy wonders,

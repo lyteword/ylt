@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 **¹** And Saul speaketh unto Jonathan his son, and unto all his servants, to put David to death,

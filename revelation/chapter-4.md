@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** After these things I saw, and lo, a door opened in the heaven, and the first voice that I heard [is] as of a trumpet speaking with me, saying, 'Come up hither, and I will shew thee what it behoveth to come to pass after these things;'

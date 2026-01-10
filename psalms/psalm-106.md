@@ -1,3 +1,7 @@
+---
+weight: 106
+---
+
 # Psalm 106
 
 **¹** Praise ye Jah, give thanks to Jehovah, For good, for to the age, [is] His kindness.

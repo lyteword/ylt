@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And Samson goeth to Gaza, and seeth there a woman, a harlot, and goeth in unto her;

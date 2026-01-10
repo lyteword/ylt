@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 **¹** And Israel dwelleth in Shittim, and the people begin to go a-whoring unto daughters of Moab,

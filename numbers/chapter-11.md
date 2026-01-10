@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** And the people is evil, as those sighing habitually in the ears of Jehovah, and Jehovah heareth, and His anger burneth, and the fire of Jehovah burneth among them, and consumeth in the extremity of the camp.

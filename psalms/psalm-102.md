@@ -1,3 +1,7 @@
+---
+weight: 102
+---
+
 # Psalm 102
 
 **¹** A Prayer of the afflicted when he is feeble, and before Jehovah poureth out his plaint. O Jehovah, hear my prayer, yea, my cry to Thee cometh.

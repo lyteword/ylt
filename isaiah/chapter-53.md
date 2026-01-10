@@ -1,3 +1,7 @@
+---
+weight: 53
+---
+
 # Chapter 53
 
 **¹** Who hath given credence to that which we heard? And the arm of Jehovah, On whom hath it been revealed?

@@ -1,3 +1,7 @@
+---
+weight: 30
+---
+
 # Chapter 30
 
 **¹** And Hezekiah sendeth unto all Israel and Judah, and also letters he hath written unto Ephraim and Manasseh, to come in to the house of Jehovah in Jerusalem, to make a passover to Jehovah, God of Israel.

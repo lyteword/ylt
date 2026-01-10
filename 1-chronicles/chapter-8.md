@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And Benjamin begat Bela his first-born, Ashbel the second, and Aharah the third,

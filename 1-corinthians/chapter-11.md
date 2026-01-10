@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** Followers of me become ye, as I also [am] of Christ.

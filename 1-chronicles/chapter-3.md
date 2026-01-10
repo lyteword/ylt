@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And these were sons of David, who were born to him in Hebron: the first-born Amnon, of Ahinoam the Jezreelitess; second Daniel, of Abigail the Carmelitess;

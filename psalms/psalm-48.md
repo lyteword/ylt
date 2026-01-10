@@ -1,3 +1,7 @@
+---
+weight: 48
+---
+
 # Psalm 48
 
 **¹** A Song, a Psalm, by sons of Korah. Great [is] Jehovah, and praised greatly, In the city of our God — His holy hill.

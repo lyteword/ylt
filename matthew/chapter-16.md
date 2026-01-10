@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And the Pharisees and Sadducees having come, tempting, did question him, to shew to them a sign from the heaven,

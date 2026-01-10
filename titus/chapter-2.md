@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And thou — be speaking what doth become the sound teaching;

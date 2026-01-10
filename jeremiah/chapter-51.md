@@ -1,3 +1,7 @@
+---
+weight: 51
+---
+
 # Chapter 51
 
 **¹** Thus said Jehovah: Lo, I am stirring up against Babylon, And the inhabitants of Leb — My withstanders, A destroying wind,

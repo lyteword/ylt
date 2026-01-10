@@ -1,3 +1,7 @@
+---
+weight: 31
+---
+
 # Chapter 31
 
 **¹** Words of Lemuel a king, a declaration that his mother taught him:

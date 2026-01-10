@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And a word of Jehovah is unto Jehu son of Hanani, against Baasha, saying,

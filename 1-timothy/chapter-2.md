@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** I exhort, then, first of all, there be made supplications, prayers, intercessions, thanksgivings, for all men:

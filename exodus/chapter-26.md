@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 **¹** 'And thou dost make the tabernacle: ten curtains of twined linen, and blue, and purple, and scarlet; [with] cherubs, work of a designer, thou dost make them;

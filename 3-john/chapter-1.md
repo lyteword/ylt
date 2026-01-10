@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** The Elder to Gaius the beloved, whom I love in truth!

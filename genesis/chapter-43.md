@@ -1,3 +1,7 @@
+---
+weight: 43
+---
+
 # Chapter 43
 
 **¹** And the famine [is] severe in the land;

@@ -1,3 +1,7 @@
+---
+weight: 101
+---
+
 # Psalm 101
 
 **¹** A Psalm of David. Kindness and judgment I sing, To Thee, O Jehovah, I sing praise.

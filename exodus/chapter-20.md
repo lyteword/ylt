@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 **¹** 'And God speaketh all these words, saying,

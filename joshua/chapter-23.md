@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 **¹** And it cometh to pass, many days after that Jehovah hath given rest to Israel from all their enemies round about, that Joshua is old, entering into days,

@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** 'And at that time stand up doth Michael, the great head, who is standing up for the sons of thy people, and there hath been a time of distress, such as hath not been since there hath been a nation till that time, and at that time do thy people escape, every one who is found written in the book.

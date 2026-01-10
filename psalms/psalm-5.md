@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Psalm 5
 
 **¹** To the Overseer, 'Concerning the Inheritances.' — A Psalm of David. My sayings hear, O Jehovah, Consider my meditation.

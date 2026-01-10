@@ -1,3 +1,7 @@
+---
+weight: 69
+---
+
 # Psalm 69
 
 **¹** To the Overseer. — 'On the Lilies,' by David. Save me, O God, for come have waters unto the soul.

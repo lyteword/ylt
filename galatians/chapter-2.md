@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** Then, after fourteen years again I went up to Jerusalem with Barnabas, having taken with me also Titus;

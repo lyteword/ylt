@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Paul, an apostle of Jesus Christ, through the will of God, and Timotheus the brother, to the assembly of God that is in Corinth, with all the saints who are in all Achaia:

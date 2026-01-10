@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** These [are] the words which Moses hath spoken unto all Israel, beyond the Jordan, in the wilderness, in the plain over-against Suph, between Paran and Tophel, and Laban, and Hazeroth, and Di-Zahab;

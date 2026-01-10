@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 **¹** And it cometh to pass, when he finisheth to speak unto Saul, that the soul of Jonathan hath been bound to the soul of David, and Jonathan loveth him as his own soul.

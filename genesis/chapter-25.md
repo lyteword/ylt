@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 **¹** And Abraham addeth and taketh a wife, and her name [is] Keturah;

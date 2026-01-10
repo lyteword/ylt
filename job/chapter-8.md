@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And Bildad the Shuhite answereth and saith: —

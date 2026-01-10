@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And Eliphaz the Temanite answereth and saith: —

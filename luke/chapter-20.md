@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 **¹** And it came to pass, on one of those days, as he is teaching the people in the temple, and proclaiming good news, the chief priests and the scribes, with the elders, came upon [him],

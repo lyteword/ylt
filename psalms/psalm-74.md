@@ -1,3 +1,7 @@
+---
+weight: 74
+---
+
 # Psalm 74
 
 **¹** An Instruction of Asaph. Why, O God, hast Thou cast off for ever? Thine anger smoketh against the flock of Thy pasture.

@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 **¹** Better [is] the poor walking in his integrity, Than the perverse [in] his lips, who [is] a fool.

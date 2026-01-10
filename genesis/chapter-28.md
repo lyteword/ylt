@@ -1,3 +1,7 @@
+---
+weight: 28
+---
+
 # Chapter 28
 
 **¹** And Isaac calleth unto Jacob, and blesseth him, and commandeth him, and saith to him, 'Thou dost not take a wife of the daughters of Caanan;

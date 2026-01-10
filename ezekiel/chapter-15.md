@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** And there is a word of Jehovah unto me, saying:

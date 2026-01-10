@@ -1,3 +1,7 @@
+---
+weight: 37
+---
+
 # Chapter 37
 
 **¹** There hath been upon me a hand of Jehovah, and He taketh me forth in the Spirit of Jehovah, and doth place me in the midst of the valley, and it is full of bones,

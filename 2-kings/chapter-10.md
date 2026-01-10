@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** And Ahab hath seventy sons in Samaria, and Jehu writeth letters, and sendeth to Samaria, unto the heads of Jezreel, the elders, and unto the supporters of Ahab, saying,

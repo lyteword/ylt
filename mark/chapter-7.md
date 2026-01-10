@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** And gathered together unto him are the Pharisees, and certain of the scribes, having come from Jerusalem,

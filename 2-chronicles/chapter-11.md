@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** And Rehoboam cometh in to Jerusalem, and assembleth the house of Judah and Benjamin, a hundred and eighty thousand chosen warriors, to fight with Israel, to bring back the kingdom to Rehoboam.

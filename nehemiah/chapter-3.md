@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And Eliashib the high priest riseth, and his brethren the priests, and they build the sheep-gate; they have sanctified it, and set up its doors, even unto the tower of Meah they have sanctified it, unto the tower of Hananeel;

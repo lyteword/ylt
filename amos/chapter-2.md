@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** Thus said Jehovah: For three transgressions of Moab, And for four, I do not reverse it, Because of his burning the bones of the king of Edom to lime,

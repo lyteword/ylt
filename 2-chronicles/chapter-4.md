@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And he maketh an altar of brass, twenty cubits its length, and twenty cubits its breadth, and ten cubits its height.

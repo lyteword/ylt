@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** And the sons of Israel add to do the evil thing in the eyes of Jehovah, and Jehovah giveth them into the hand of the Philistines forty years.

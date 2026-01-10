@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** For this cause, I Paul, the prisoner of Christ Jesus for you the nations,

@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And Joshua son of Nun sendeth from Shittim, two men, spies, silently, saying, 'Go, see the land — and Jericho;' and they go and come into the house of a woman, a harlot, and her name [is] Rahab, and they lie down there.

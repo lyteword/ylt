@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 **¹** And David and the heads of the host separate for service, of the sons of Asaph, and Heman, and Jeduthun, who are prophesying with harps, with psalteries, and with cymbals, and the number of the workmen is according to their service.

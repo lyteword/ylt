@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 **¹** And Jehoshaphat hath riches and honour in abundance, and joineth affinity to Ahab,

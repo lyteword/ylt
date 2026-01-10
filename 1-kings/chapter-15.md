@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** And in the eighteenth year of king Jeroboam son of Nebat, reigned hath Abijam over Judah;

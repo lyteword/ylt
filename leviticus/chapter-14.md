@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** And Jehovah speaketh unto Moses, saying,

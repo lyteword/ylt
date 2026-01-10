@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 **¹** 'When a man doth steal an ox or sheep, and hath slaughtered it or sold it, five of the herd he doth repay for the ox, and four of the flock for the sheep.

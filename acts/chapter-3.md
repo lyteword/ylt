@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And Peter and John were going up at the same time to the temple, at the hour of the prayer, the ninth [hour],

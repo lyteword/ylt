@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** Wherefore, holy brethren, partakers of a heavenly calling, consider the apostle and chief priest of our profession, Christ Jesus,

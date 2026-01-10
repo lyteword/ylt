@@ -1,3 +1,7 @@
+---
+weight: 77
+---
+
 # Psalm 77
 
 **¹** To the Overseer, for Jeduthun. — A Psalm of Asaph. My voice [is] to God, and I cry, my voice [is] to God, And He hath given ear unto me.

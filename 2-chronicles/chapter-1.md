@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** And strengthen himself doth Solomon son of David over his kingdom, and Jehovah his God [is] with him, and maketh him exceedingly great.

@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And having called together his twelve disciples, he gave them power and authority over all the demons, and to cure sicknesses,

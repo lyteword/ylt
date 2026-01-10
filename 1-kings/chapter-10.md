@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** And the queen of Sheba is hearing of the fame of Solomon concerning the name of Jehovah, and cometh to try him with enigmas,

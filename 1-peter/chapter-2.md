@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** Having put aside, then, all evil, and all guile, and hypocrisies, and envyings, and all evil speakings,

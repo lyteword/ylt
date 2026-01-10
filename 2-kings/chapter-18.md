@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 **¹** And it cometh to pass, in the third year of Hoshea son of Elah king of Israel, reigned hath Hezekiah son of Ahaz king of Judah;

@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** And there was given to me a reed like to a rod, and the messenger stood, saying, 'Rise, and measure the sanctuary of God, and the altar, and those worshipping in it;

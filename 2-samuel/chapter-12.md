@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** And Jehovah sendeth Nathan unto David, and he cometh unto him, and saith to him: 'Two men have been in one city; One rich and one poor;

@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And these [are] births of Aaron and Moses, in the day of Jehovah's speaking with Moses in mount Sinai.

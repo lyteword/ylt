@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** And gathered are all Israel unto David to Hebron, saying, 'Lo, thy bone and thy flesh [are] we;

@@ -1,3 +1,7 @@
+---
+weight: 40
+---
+
 # Chapter 40
 
 **¹** In the twenty and fifth year of our removal, in the beginning of the year, in the tenth of the month, in the fourteenth year after that the city was smitten, in this self-same day hath a hand of Jehovah been upon me, and He bringeth me in thither;

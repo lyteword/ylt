@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Thus said the Lord Jehovah to Edom, A report we have heard from Jehovah, And an ambassador among nations was sent, 'Rise, yea, let us rise against her for battle.'

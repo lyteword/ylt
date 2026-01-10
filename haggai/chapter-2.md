@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** In the seventh [month], in the twenty and first of the month, hath a word of Jehovah been by the hand of Haggai the prophet, saying:

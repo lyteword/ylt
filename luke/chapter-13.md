@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** And there were present certain at that time, telling him about the Galileans, whose blood Pilate did mingle with their sacrifices;

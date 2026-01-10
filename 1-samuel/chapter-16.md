@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And Jehovah saith unto Samuel, 'Till when art thou mourning for Saul, and I have rejected him from reigning over Israel? fill thy horn with oil, and go, I send thee unto Jesse the Beth-Lehemite, for I have seen among his sons for Myself a king.

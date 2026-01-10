@@ -1,3 +1,7 @@
+---
+weight: 86
+---
+
 # Psalm 86
 
 **¹** A Prayer of David. Incline, O Jehovah, Thine ear, Answer me, for I [am] poor and needy.

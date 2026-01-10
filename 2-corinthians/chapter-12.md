@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** To boast, really, is not profitable for me, for I will come to visions and revelations of the Lord.

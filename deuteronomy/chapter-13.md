@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** 'When there ariseth in your midst a prophet, or a dreamer of a dream, and he hath given unto thee a sign or wonder,

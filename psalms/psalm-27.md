@@ -1,3 +1,7 @@
+---
+weight: 27
+---
+
 # Psalm 27
 
 **¹** By David. Jehovah [is] my light and my salvation, Whom do I fear? Jehovah [is] the strength of my life, Of whom am I afraid?

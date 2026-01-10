@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** When therefore the Lord knew that the Pharisees heard that Jesus more disciples doth make and baptize than John,

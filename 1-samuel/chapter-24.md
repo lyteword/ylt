@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 **¹** And it cometh to pass when Saul hath turned back from after the Philistines, that they declare to him, saying, 'Lo, David [is] in the wilderness of En-gedi.'

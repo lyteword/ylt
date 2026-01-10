@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And Job answereth and saith: —

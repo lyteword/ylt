@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 **¹** When thou sittest to eat with a ruler, Thou considerest diligently that which [is] before thee,

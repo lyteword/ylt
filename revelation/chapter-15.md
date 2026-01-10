@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** And I saw another sign in the heaven, great and wonderful, seven messengers having the seven last plagues, because in these was completed the wrath of God,

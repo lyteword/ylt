@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** So then, my brethren, beloved and longed for, my joy and crown, so stand ye in the Lord, beloved.

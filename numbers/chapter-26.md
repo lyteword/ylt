@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 **¹** And it cometh to pass, after the plague, that Jehovah speaketh unto Moses, and unto Eleazar son of Aaron the priest, saying,

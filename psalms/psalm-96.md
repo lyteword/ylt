@@ -1,3 +1,7 @@
+---
+weight: 96
+---
+
 # Psalm 96
 
 **¹** Sing to Jehovah a new song, Sing to Jehovah all the earth.

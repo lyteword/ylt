@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And he said also unto his disciples, 'A certain man was rich, who had a steward, and he was accused to him as scattering his goods;

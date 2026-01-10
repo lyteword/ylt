@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** And Jehoshaphat lieth with his fathers, and is buried with his fathers in the city of David, and Jehoram his son reigneth in his stead.

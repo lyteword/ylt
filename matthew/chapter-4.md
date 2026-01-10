@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** Then Jesus was led up to the wilderness by the Spirit, to be tempted by the Devil,

@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** 'At the end of seven years thou dost make a release,

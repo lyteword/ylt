@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 **¹** And Jethro priest of Midian, father-in-law of Moses, heareth all that God hath done for Moses, and for Israel his people, that Jehovah hath brought out Israel from Egypt,

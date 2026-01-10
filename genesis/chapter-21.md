@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** And Jehovah hath looked after Sarah as He hath said, and Jehovah doth to Sarah as He hath spoken;

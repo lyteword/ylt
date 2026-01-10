@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** And there is a word of Jehovah unto Jonah son of Amittai, saying:

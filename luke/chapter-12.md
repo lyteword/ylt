@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** At which time the myriads of the multitude having been gathered together, so as to tread upon one another, he began to say unto his disciples, first, 'Take heed to yourselves of the leaven of the Pharisees, which is hypocrisy;

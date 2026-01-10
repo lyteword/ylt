@@ -1,3 +1,7 @@
+---
+weight: 66
+---
+
 # Chapter 66
 
 **¹** Thus said Jehovah: The heavens [are] My throne, And the earth My footstool, Where [is] this — the house that ye build for Me? And where [is] this — the place — My rest?

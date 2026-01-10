@@ -1,3 +1,7 @@
+---
+weight: 107
+---
+
 # Psalm 107
 
 **¹** 'Give ye thanks to Jehovah, For good, for to the age [is] His kindness:'

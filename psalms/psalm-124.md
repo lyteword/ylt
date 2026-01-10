@@ -1,3 +1,7 @@
+---
+weight: 124
+---
+
 # Psalm 124
 
 **¹** A Song of the Ascents, by David. Save [for] Jehovah — who hath been for us, (Pray, let Israel say),

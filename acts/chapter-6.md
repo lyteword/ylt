@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** And in these days, the disciples multiplying, there came a murmuring of the Hellenists at the Hebrews, because their widows were being overlooked in the daily ministration,

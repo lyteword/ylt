@@ -1,3 +1,7 @@
+---
+weight: 45
+---
+
 # Chapter 45
 
 **¹** And in your causing the land to fall in inheritance, ye lift up a heave-offering to Jehovah, a holy [portion] of the land: the length — five and twenty thousand [is] the length, and the breadth ten thousand; it [is] holy in all its border round about.

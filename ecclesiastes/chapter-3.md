@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** To everything — a season, and a time to every delight under the heavens:

@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** And I saw a new heaven and a new earth, for the first heaven and the first earth did pass away, and the sea is not any more;

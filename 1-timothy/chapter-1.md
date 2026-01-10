@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Paul, an apostle of Jesus Christ, according to a command of God our Saviour, and of the Lord Jesus Christ our hope,

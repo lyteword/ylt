@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Psalm 8
 
 **¹** To the Overseer, 'On the Gittith.' A Psalm of David. Jehovah, our Lord, How honourable Thy name in all the earth! Who settest thine honour on the heavens.

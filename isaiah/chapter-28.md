@@ -1,3 +1,7 @@
+---
+weight: 28
+---
+
 # Chapter 28
 
 **¹** Woe [to] the proud crown of the drunkards of Ephraim. And the fading flower of the beauty of his glory, That [is] on the head of the fat valley of the broken down of wine.

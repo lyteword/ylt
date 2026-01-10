@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** 'Take heed your kindness not to do before men, to be seen by them, and if not — reward ye have not from your Father who [is] in the heavens;

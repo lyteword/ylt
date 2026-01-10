@@ -1,3 +1,7 @@
+---
+weight: 35
+---
+
 # Chapter 35
 
 **¹** The word that hath been unto Jeremiah from Jehovah, in the days of Jehoiakim son of Josiah king of Judah, saying:

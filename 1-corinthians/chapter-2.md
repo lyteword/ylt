@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And I, having come unto you, brethren, came — not in superiority of discourse or wisdom — declaring to you the testimony of God,

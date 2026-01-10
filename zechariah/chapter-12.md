@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** The burden of a word of Jehovah on Israel. An affirmation of Jehovah, Stretching out heaven, and founding earth, And forming the spirit of man in his midst.

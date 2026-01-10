@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** And at Solomon's finishing to pray, then the fire hath come down from the heavens, and consumeth the burnt-offering and the sacrifices, and the honour of Jehovah hath filled the house,

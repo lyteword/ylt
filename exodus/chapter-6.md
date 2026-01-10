@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** And Jehovah saith unto Moses, 'Now dost thou see that which I do to Pharaoh, for with a strong hand he doth send them away, yea, with a strong hand he doth cast them out of his land.'

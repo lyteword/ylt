@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And again he entered into Capernaum, after [some] days, and it was heard that he is in the house,

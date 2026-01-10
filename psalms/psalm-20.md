@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Psalm 20
 
 **¹** To the Overseer. — A Psalm of David. Jehovah doth answer thee, In a day of adversity, The name of the God of Jacob doth set thee on high,

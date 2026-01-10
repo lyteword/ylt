@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** For lo, in those days, and in that time, When I turn back [to] the captivity of Judah and Jerusalem,

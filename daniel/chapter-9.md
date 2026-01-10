@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** In the first year of Darius, son of Ahasuerus, of the seed of the Medes, who hath been made king over the kingdom of the Chaldeans,

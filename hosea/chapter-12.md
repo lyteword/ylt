@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** Ephraim is enjoying wind, And is pursuing an east wind, All the day lying and spoiling he multiplieth, And a covenant with Asshur they make, And oil to Egypt is carried.

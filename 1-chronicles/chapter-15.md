@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** And he maketh for himself houses in the city of David, and prepareth a place for the ark of God, and stretcheth out for it a tent.

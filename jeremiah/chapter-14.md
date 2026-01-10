@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** That which hath been the word of Jehovah unto Jeremiah concerning the matters of the dearths:

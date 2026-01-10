@@ -1,3 +1,7 @@
+---
+weight: 44
+---
+
 # Chapter 44
 
 **¹** And he commandeth him who [is] over his house, saying, 'Fill the bags of the men [with] food, as they are able to bear, and put the money of each in the mouth of his bag;

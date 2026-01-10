@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** And Jehovah speaketh unto Moses, and unto Aaron, saying,

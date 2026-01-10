@@ -1,3 +1,7 @@
+---
+weight: 92
+---
+
 # Psalm 92
 
 **¹** A Psalm. — A Song for the sabbath-day. Good to give thanks to Jehovah, And to sing praises to Thy name, O Most High,

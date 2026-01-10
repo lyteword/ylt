@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And Jehovah saith unto me, 'Take to thee a great tablet, and write upon it with a graving tool of man, To haste spoil, enjoy prey.'

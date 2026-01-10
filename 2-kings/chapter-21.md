@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** A son of twelve years [is] Manasseh in his reigning, and fifty and five years he hath reigned in Jerusalem, and the name of his mother [is] Hephzi-Bah;

@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** And lift me up doth a spirit, and it bringeth me in unto the east gate of the house of Jehovah, that is facing the east, and lo, at the opening of the gate twenty and five men, and I see in their midst Jaazaniah son of Azzur, and Pelatiah son of Benaiah, heads of the people.

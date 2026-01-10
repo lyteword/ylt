@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** My son! keep my sayings, And my commands lay up with thee.

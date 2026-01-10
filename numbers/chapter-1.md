@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** And Jehovah speaketh unto Moses in the wilderness of Sinai, in the tent of meeting, on the first of the second month, in the second year of their going out of the land of Egypt, saying:

@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** And upon Azariah son of Oded hath been the Spirit of God,

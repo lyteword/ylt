@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** How doth the Lord cloud in His anger the daughter of Zion, He hath cast from heaven [to] earth the beauty of Israel, And hath not remembered His footstool in the day of His anger.

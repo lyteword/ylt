@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** In the twenty and seventh year of Jeroboam king of Israel reigned hath Azariah son of Amaziah king of Judah,

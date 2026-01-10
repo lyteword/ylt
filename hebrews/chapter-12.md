@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** Therefore, we also having so great a cloud of witnesses set around us, every weight having put off, and the closely besetting sin, through endurance may we run the contest that is set before us,

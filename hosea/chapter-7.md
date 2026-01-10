@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** 'When I give healing to Israel, Then revealed is the iniquity of Ephraim, And the wickedness of Samaria, For they have wrought falsehood, And a thief doth come in, Stript off hath a troop in the street,

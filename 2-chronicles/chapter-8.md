@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And it cometh to pass, at the end of twenty years, that Solomon hath built the house of Jehovah, and his own house.

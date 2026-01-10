@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 **¹** And David fleeth from Naioth in Ramah, and cometh, and saith before Jonathan, 'What have I done? what [is] mine iniquity? and what my sin before thy father, that he is seeking my life?'

@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And the seventh month cometh, and the sons of Israel [are] in the cities, and the people are gathered, as one men, unto Jerusalem.

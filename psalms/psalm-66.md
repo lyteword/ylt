@@ -1,3 +1,7 @@
+---
+weight: 66
+---
+
 # Psalm 66
 
 **¹** To the Overseer. — A Song, a Psalm. Shout ye to God, all the earth.

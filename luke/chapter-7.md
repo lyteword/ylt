@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** And when he completed all his sayings in the ears of the people, he went into Capernaum;

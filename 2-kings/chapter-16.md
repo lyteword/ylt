@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** In the seventeenth year of Pekah son of Remaliah reigned hath Ahaz son of Jotham king of Judah.

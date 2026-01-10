@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** Rivulets of waters [is] the heart of a king in the hand of Jehovah, Wherever He pleaseth He inclineth it.

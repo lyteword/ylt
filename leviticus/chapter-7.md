@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** 'And this [is] a law of the guilt-offering: it [is] most holy;

@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** Let every soul to the higher authorities be subject, for there is no authority except from God, and the authorities existing are appointed by God,

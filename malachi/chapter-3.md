@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** Lo, I am sending My messenger, And he hath prepared a way before Me, And suddenly come in unto his temple Doth the Lord whom ye are seeking, Even the messenger of the covenant, Whom ye are desiring, Lo, he is coming, said Jehovah of Hosts.

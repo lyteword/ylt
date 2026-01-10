@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 **¹** And having gone forth, Jesus departed from the temple, and his disciples came near to show him the buildings of the temple,

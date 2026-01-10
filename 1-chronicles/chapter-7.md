@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** And sons of Issachar; Tola, and Puah, Jashub, and Shimron, four.

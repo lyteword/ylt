@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** And the sons of Israel do the evil thing in the eyes of Jehovah, and Jehovah giveth them into the hand of Midian seven years,

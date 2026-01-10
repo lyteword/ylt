@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** As the former time made light The land of Zebulun and the land of Naphtali, So the latter hath honoured the way of the sea, Beyond the Jordan, Galilee of the nations.

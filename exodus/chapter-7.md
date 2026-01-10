@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** And Jehovah saith unto Moses, 'See, I have given thee a god to Pharaoh, and Aaron thy brother is thy prophet;

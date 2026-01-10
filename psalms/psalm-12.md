@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Psalm 12
 
 **¹** To the Overseer, on the octave. — A Psalm of David. Save, Jehovah, for the saintly hath failed, For the stedfast have ceased From the sons of men:

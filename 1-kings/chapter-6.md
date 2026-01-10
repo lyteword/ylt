@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** And it cometh to pass, in the four hundred and eightieth year of the going out of the sons of Israel from the land of Egypt, in the fourth year — in the month of Zif, it [is] the second month — of the reigning of Solomon over Israel, that he buildeth the house for Jehovah.

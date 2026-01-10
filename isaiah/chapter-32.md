@@ -1,3 +1,7 @@
+---
+weight: 32
+---
+
 # Chapter 32
 
 **¹** Lo, for righteousness doth a king reign, As to princes, for judgment they rule.

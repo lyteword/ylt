@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** Who [is] as the wise? and who knoweth the interpretation of a thing? The wisdom of man causeth his face to shine, and the hardness of his face is changed.

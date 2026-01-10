@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** What, then, shall we say? shall we continue in the sin that the grace may abound?

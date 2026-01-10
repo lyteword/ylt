@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And I heard a great voice out of the sanctuary saying to the seven messengers, 'Go away, and pour out the vials of the wrath of God to the earth;'

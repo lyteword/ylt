@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** Because of this it behoveth [us] more abundantly to take heed to the things heard, lest we may glide aside,

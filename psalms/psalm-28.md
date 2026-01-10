@@ -1,3 +1,7 @@
+---
+weight: 28
+---
+
 # Psalm 28
 
 **¹** By David. Unto Thee, O Jehovah, I call, My rock, be not silent to me! Lest Thou be silent to me, And I have been compared With those going down to the pit.

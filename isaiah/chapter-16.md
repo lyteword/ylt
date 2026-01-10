@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** Send ye a lamb [to] the ruler of the land, From Selah in the wilderness, Unto the mount of the daughter of Zion.

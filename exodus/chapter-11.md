@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** And Jehovah saith unto Moses, 'One plague more I do bring in on Pharaoh, and on Egypt, afterwards he doth send you away from this; when he is sending you away, he surely casteth you out altogether from this [place];

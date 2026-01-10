@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 **¹** 'Thou dost not lift up a vain report; thou dost not put thy hand with a wicked man to be a violent witness.

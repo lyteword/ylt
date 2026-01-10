@@ -1,3 +1,7 @@
+---
+weight: 82
+---
+
 # Psalm 82
 
 **¹** — A Psalm of Asaph. God hath stood in the company of God, In the midst God doth judge.

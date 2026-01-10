@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** My son! if thou hast been surety for thy friend, Hast stricken for a stranger thy hand,

@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And all Israel have reckoned themselves by genealogy, and lo, they are written on the book of the kings of Israel and Judah — they were removed to Babylon for their trespass.

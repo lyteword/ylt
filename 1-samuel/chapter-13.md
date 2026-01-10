@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** A son of a year [is] Saul in his reigning, yea, two years he hath reigned over Israel,

@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** And the apostles and the brethren who are in Judea heard that also the nations did receive the word of God,

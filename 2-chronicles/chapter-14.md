@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** And Abijah lieth with his fathers, and they bury him in the city of David, and reign doth Asa his son in his stead: in his days was the land quiet ten years.

@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 **¹** And Abraham [is] old, he hath entered into days, and Jehovah hath blessed Abraham in all [things];

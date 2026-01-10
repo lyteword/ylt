@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And the man knew Eve his wife, and she conceiveth and beareth Cain, and saith, 'I have gotten a man by Jehovah;'

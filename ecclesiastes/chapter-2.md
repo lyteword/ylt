@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** I said in my heart, 'Pray, come, I try thee with mirth, and look thou on gladness;' and lo, even it [is] vanity.

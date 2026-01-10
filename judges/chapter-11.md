@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** And Jephthah the Gileadite hath been a mighty man of valour, and he [is] son of a woman, a harlot; and Gilead begetteth Jephthah,

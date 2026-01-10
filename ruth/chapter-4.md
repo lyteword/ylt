@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And Boaz hath gone up to the gate, and sitteth there, and lo, the redeemer is passing by of whom Boaz had spoken, and he saith, 'Turn aside, sit down here, such a one, such a one;' and he turneth aside and sitteth down.

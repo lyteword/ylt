@@ -1,3 +1,7 @@
+---
+weight: 27
+---
+
 # Chapter 27
 
 **¹** And morning having come, all the chief priests and the elders of the people took counsel against Jesus, so as to put him to death;

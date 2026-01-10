@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** And the Philistines have taken the ark of God, and bring it in from Eben-Ezer to Ashdod,

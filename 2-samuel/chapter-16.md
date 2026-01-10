@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And David hath passed on a little from the top, and lo, Ziba, servant of Mephibosheth — to meet him, and a couple of asses saddled, and upon them two hundred loaves, and a hundred bunches of raisins, and a hundred [of] summer-fruit, and a bottle of wine.

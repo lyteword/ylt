@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And I say, so long time as the heir is a babe, he differeth nothing from a servant — being lord of all,

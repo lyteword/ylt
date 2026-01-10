@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 **¹** A son of seven years [is] Joash in his reigning, and forty years he hath reigned in Jerusalem, and the name of his mother [is] Zibiah of Beer-Sheba.

@@ -1,3 +1,7 @@
+---
+weight: 34
+---
+
 # Chapter 34
 
 **¹** And there is a word of Jehovah unto me, saying,

@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 **¹** And Jehovah appeareth unto him among the oaks of Mamre, and he is sitting at the opening of the tent, about the heat of the day;

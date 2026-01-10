@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 **¹** And having risen, the whole multitude of them did lead him to Pilate,

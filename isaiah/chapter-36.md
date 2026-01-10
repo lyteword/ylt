@@ -1,3 +1,7 @@
+---
+weight: 36
+---
+
 # Chapter 36
 
 **¹** And it cometh to pass, in the fourteenth year of king Hezekiah, come up hath Sennacherib king of Asshur against all the fenced cities of Judah, and seizeth them.

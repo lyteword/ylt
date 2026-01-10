@@ -1,3 +1,7 @@
+---
+weight: 28
+---
+
 # Chapter 28
 
 **¹** And it cometh to pass in those days, that the Philistines gather their camps for the war, to fight against Israel, and Achish saith unto David, 'Thou dost certainly know that with me thou dost go out into the camp, thou and thy men.'

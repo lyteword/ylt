@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** Hear, ye sons, the instruction of a father, And give attention to know understanding.

@@ -1,3 +1,7 @@
+---
+weight: 40
+---
+
 # Chapter 40
 
 **¹** The word that hath been unto Jeremiah from Jehovah, after Nebuzar-Adan, chief of the executioners, hath sent him from Ramah, in his taking him — and he a prisoner in chains — in the midst of all the removal of Jerusalem and of Judah, who are removed to Babylon.

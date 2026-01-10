@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** And the Philistines have fought with Israel, and the men of Israel flee from the face of the Philistines, and fall wounded in mount Gilboa,

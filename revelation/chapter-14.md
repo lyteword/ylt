@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** And I saw, and lo, a Lamb having stood upon the mount Sion, and with him an hundred forty-four thousands, having the name of his Father written upon their foreheads;

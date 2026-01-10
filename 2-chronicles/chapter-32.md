@@ -1,3 +1,7 @@
+---
+weight: 32
+---
+
 # Chapter 32
 
 **¹** After these things and this truth, come hath Sennacherib king of Asshur, yea, he cometh in to Judah, and encampeth against the cities of the bulwarks, and saith to rend them unto himself.

@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** See ye what love the Father hath given to us, that children of God we may be called; because of this the world doth not know us, because it did not know Him;

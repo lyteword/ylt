@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** As to the rest, then, brethren, we request you, and call upon you in the Lord Jesus, as ye did receive from us how it behoveth you to walk and to please God, that ye may abound the more,

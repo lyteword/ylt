@@ -1,3 +1,7 @@
+---
+weight: 147
+---
+
 # Psalm 147
 
 **¹** Praise ye Jah! For [it is] good to praise our God, For pleasant — comely [is] praise.

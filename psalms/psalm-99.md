@@ -1,3 +1,7 @@
+---
+weight: 99
+---
+
 # Psalm 99
 
 **¹** Jehovah hath reigned, peoples tremble, The Inhabitant of the cherubs, the earth shaketh.

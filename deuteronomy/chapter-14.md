@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** 'Sons ye [are] to Jehovah your God; ye do not cut yourselves, nor make baldness between your eyes for the dead;

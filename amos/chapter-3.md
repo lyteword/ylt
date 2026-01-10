@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** Hear ye this word that Jehovah hath spoken concerning you, O sons of Israel, concerning all the family that I brought up from the land of Egypt, saying:

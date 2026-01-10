@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And the queen of Sheba hath heard of the fame of Solomon, and cometh in to try Solomon with acute sayings, to Jerusalem, with a very great company, and camels bearing spices and gold in abundance, and precious stone; and she cometh in unto Solomon, and speaketh with him all that hath been with her heart,

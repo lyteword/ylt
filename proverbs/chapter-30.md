@@ -1,3 +1,7 @@
+---
+weight: 30
+---
+
 # Chapter 30
 
 **¹** Words of a Gatherer, son of an obedient one, the declaration, an affirmation of the man: — I have wearied myself [for] God, I have wearied myself [for] God, and am consumed.

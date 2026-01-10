@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** Come up hath a scatterer to thy face, Keep the bulwark, watch the way, Strengthen the loins, strengthen power mightily.

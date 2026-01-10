@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 **¹** And David saith, 'This is the house of Jehovah God, and this the altar for burnt-offering for Israel.'

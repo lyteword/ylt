@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** Having, then, these promises, beloved, may we cleanse ourselves from every pollution of flesh and spirit, perfecting sanctification in the fear of God;

@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Psalm 25
 
 **¹** By David. Unto Thee, O Jehovah, my soul I lift up.

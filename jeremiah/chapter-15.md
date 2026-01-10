@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** And Jehovah saith unto me: Though Moses and Samuel should stand before Me, My soul is not toward this people, Send from before My face, and they go out.

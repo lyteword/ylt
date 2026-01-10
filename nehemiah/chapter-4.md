@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And it cometh to pass, when Sanballat hath heard that we are building the wall, that it is displeasing to him, and he is very angry and mocketh at the Jews,

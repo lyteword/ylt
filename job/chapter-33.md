@@ -1,3 +1,7 @@
+---
+weight: 33
+---
+
 # Chapter 33
 
 **¹** And yet, I pray thee, O Job, Hear my speech and [to] all my words give ear.

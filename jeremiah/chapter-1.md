@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Words of Jeremiah son of Hilkiah, of the priests who [are] in Anathoth, in the land of Benjamin,

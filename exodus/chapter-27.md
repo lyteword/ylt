@@ -1,3 +1,7 @@
+---
+weight: 27
+---
+
 # Chapter 27
 
 **¹** 'And thou hast made the altar of shittim wood, five cubits the length, and five cubits the breadth — the altar is square — and three cubits its height.

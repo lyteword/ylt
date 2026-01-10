@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** Woe [to] those devising iniquity, And working evil on their beds, In the light of the morning they do it, For their hand is — to God.

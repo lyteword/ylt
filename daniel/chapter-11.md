@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** 'And I, in the first year of Darius the Mede, my standing [is] for a strengthener, and for a stronghold to him;

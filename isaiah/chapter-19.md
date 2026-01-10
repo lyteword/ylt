@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 **¹** The burden of Egypt. Lo, Jehovah is riding on a swift thick cloud, And He hath entered Egypt, And moved have been the idols of Egypt at His presence, And the heart of Egypt melteth in its midst.

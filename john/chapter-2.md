@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And the third day a marriage happened in Cana of Galilee, and the mother of Jesus was there,

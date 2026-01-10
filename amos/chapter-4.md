@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** Hear this word, ye kine of Bashan, Who [are] in the mountain of Samaria, Who are oppressing the poor, Who are bruising the needy, Who are saying to their lords: 'Bring in, and we do drink.'

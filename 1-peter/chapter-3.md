@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** In like manner, the wives, be ye subject to your own husbands, that even if certain are disobedient to the word, through the conversation of the wives, without the word, they may be won,

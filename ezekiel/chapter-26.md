@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 **¹** And it cometh to pass, in the eleventh year, in the first of the month, there hath been a word of Jehovah unto me, saying: 'Son of man,

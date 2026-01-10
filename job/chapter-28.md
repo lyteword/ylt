@@ -1,3 +1,7 @@
+---
+weight: 28
+---
+
 # Chapter 28
 
 **¹** Surely there is for silver a source, And a place for the gold they refine;

@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** As the chorus of 'Mahanaim.' How beautiful were thy feet with sandals, O daughter of Nadib. The turnings of thy sides [are] as ornaments, Work of the hands of an artificer.

@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 **¹** Then Joshua calleth for the Reubenite, and for the Gadite, and for the half of the tribe of Manasseh,

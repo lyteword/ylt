@@ -1,3 +1,7 @@
+---
+weight: 33
+---
+
 # Psalm 33
 
 **¹** Sing, ye righteous, in Jehovah, For upright ones praise [is] comely.

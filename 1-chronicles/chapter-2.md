@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** These [are] sons of Israel: Reuben, Simeon, Levi, and Judah, Issachar, and Zebulun,

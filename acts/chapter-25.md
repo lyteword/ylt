@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 **¹** Festus, therefore, having come into the province, after three days went up to Jerusalem from Caesarea,

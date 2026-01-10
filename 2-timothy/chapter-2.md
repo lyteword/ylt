@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** Thou, therefore, my child, be strong in the grace that [is] in Christ Jesus,

@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Psalm 16
 
 **¹** A Secret Treasure of David. Preserve me, O God, for I did trust in Thee.

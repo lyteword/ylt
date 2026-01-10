@@ -1,3 +1,7 @@
+---
+weight: 28
+---
+
 # Chapter 28
 
 **¹** And David assembleth all the heads of Israel, heads of the tribes, and heads of the courses who are serving the king, and heads of the thousands, and heads of the hundreds, and heads of all the substance and possessions of the king, and of his sons, with the officers and the mighty ones, even to every mighty one of valour — unto Jerusalem.

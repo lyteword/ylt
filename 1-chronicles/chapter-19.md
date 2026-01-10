@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 **¹** And it cometh to pass after this, that Nahash king of the sons of Ammon dieth, and his son reigneth in his stead,

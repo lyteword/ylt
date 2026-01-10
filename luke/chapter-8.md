@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And it came to pass thereafter, that he was going through every city and village, preaching and proclaiming good news of the reign of God, and the twelve [are] with him,

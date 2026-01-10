@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** And Athaliah [is] mother of Ahaziah, and she hath seen that her son [is] dead, and she riseth, and destroyeth all the seed of the kingdom;

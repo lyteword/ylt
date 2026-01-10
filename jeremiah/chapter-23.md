@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 **¹** Woe to shepherds destroying, And scattering the flock of My pasture, An affirmation of Jehovah.

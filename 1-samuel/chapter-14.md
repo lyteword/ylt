@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** And the day cometh that Jonathan son of Saul saith unto the young man bearing his weapons, 'Come, and we pass over unto the station of the Philistines, which [is] on the other side of this;' and to his father he hath not declared [it].

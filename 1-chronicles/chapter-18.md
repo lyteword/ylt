@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 **¹** And it cometh to pass after this, that David smiteth the Philistines, and humbleth them, and taketh Gath and its small towns out of the hand of the Philistines;

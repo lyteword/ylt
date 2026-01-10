@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** And Nahash the Ammonite cometh up, and encampeth against Jabesh-Gilead, and all the men of Jabesh say unto Nahash, 'Make with us a covenant, and we serve thee.'

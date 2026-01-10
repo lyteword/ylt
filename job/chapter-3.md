@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** After this hath Job opened his mouth, and revileth his day.

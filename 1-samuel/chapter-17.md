@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** And the Philistines gather their camps to battle, and are gathered to Shochoh, which [is] to Judah, and encamp between Shochoh and Azekah, in Ephes-Dammim;

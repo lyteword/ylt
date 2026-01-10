@@ -1,3 +1,7 @@
+---
+weight: 104
+---
+
 # Psalm 104
 
 **¹** Bless, O my soul, Jehovah! Jehovah, my God, Thou hast been very great, Honour and majesty Thou hast put on.

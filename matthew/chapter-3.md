@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And in those days cometh John the Baptist, proclaiming in the wilderness of Judea,

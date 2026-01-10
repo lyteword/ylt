@@ -1,3 +1,7 @@
+---
+weight: 38
+---
+
 # Chapter 38
 
 **¹** In those days hath Hezekiah been sick unto death, and come in unto him doth Isaiah son of Amoz, the prophet, and saith unto him, 'Thus said Jehovah: Give a charge to thy house, for thou [art] dying, and dost not live.'

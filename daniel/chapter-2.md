@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And in the second year of the reign of Nebuchadnezzar, dreamed hath Nebuchadnezzar dreams, and his spirit doth move itself, and his sleep hath been against him;

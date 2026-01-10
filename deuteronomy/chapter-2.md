@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** 'And we turn, and journey into the wilderness, the way of the Red Sea, as Jehovah hath spoken unto me, and we go round the mount of Seir many days.

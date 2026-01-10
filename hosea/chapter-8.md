@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** 'Unto thy mouth — a trumpet, As an eagle against the house of Jehovah, Because they transgressed My covenant, And against My law they have rebelled.

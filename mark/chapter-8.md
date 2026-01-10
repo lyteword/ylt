@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** In those days the multitude being very great, and not having what they may eat, Jesus having called near his disciples, saith to them,

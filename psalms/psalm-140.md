@@ -1,3 +1,7 @@
+---
+weight: 140
+---
+
 # Psalm 140
 
 **¹** To the Overseer. — A Psalm of David. Deliver me, O Jehovah, from an evil man, From one of violence Thou keepest me.

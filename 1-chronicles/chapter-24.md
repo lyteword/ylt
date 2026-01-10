@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 **¹** And to the sons of Aaron [are] their courses: sons of Aaron [are] Nadab, and Abihu, Eleazar, and Ithamar,

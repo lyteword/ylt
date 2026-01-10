@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** And it cometh to pass that mankind have begun to multiply on the face of the ground, and daughters have been born to them,

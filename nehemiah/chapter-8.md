@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And all the people are gathered as one man unto the broad place that [is] before the water-gate, and they say to Ezra the scribe to bring the book of the law of Moses, that Jehovah commanded Israel.

@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** And it cometh to pass afterwards, that Absalom prepareth for himself a chariot, and horses, and fifty men are running before him;

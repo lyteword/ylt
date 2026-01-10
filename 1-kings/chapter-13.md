@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** And lo, a man of God hath come from Judah, by the word of Jehovah, unto Beth-El, and Jeroboam is standing by the altar — to make perfume;

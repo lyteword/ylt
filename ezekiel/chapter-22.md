@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 **¹** And there is a word of Jehovah unto me, saying,

@@ -1,3 +1,7 @@
+---
+weight: 47
+---
+
 # Psalm 47
 
 **¹** To the Overseer. — By sons of Korah. A Psalm. All ye peoples, clap the hand, Shout to God with a voice of singing,

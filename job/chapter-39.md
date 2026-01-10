@@ -1,3 +1,7 @@
+---
+weight: 39
+---
+
 # Chapter 39
 
 **¹** Hast thou known the time of The bearing of the wild goats of the rock? The bringing forth of hinds thou dost mark!

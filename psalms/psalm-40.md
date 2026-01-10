@@ -1,3 +1,7 @@
+---
+weight: 40
+---
+
 # Psalm 40
 
 **¹** To the Overseer. — A Psalm of David. I have diligently expected Jehovah, And He inclineth to me, and heareth my cry,

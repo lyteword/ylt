@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** Balances of deceit [are] an abomination to Jehovah, And a perfect weight [is] His delight.

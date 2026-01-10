@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** 'Rejoice not, O Israel, be not joyful like the peoples, For thou hast gone a-whoring from thy God, Thou hast loved a gift near all floors of corn.

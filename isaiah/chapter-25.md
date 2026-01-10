@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 **¹** O Jehovah, my God [art] Thou, I exalt Thee, I confess Thy name, For Thou hast done a wonderful thing, Counsels of old, stedfastness, O stedfast One.

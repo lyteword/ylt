@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 **¹** 'When there is a strife between men, and they have come nigh unto the judgment, and they have judged, and declared righteous the righteous, and declared wrong the wrong-doer,

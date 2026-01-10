@@ -1,3 +1,7 @@
+---
+weight: 34
+---
+
 # Chapter 34
 
 **¹** And Moses goeth up from the plains of Moab unto mount Nebo, the top of Pisgah, which [is] on the front of Jericho, and Jehovah sheweth him all the land — Gilead unto Dan,

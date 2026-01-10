@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** Christ, then, having suffered for us in the flesh, ye also with the same mind arm yourselves, because he who did suffer in the flesh hath done with sin,

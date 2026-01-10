@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** And working together also we call upon [you] that ye receive not in vain the grace of God —

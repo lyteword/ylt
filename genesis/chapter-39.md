@@ -1,3 +1,7 @@
+---
+weight: 39
+---
+
 # Chapter 39
 
 **¹** And Joseph hath been brought down to Egypt, and Potiphar, a eunuch of Pharaoh, head of the executioners, an Egyptian man, buyeth him out of the hands of the Ishmaelites who have brought him thither.

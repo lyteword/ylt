@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And Saul was assenting to his death, and there came in that day a great persecution upon the assembly in Jerusalem, all also were scattered abroad in the regions of Judea and Samaria, except the apostles;

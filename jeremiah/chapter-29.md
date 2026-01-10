@@ -1,3 +1,7 @@
+---
+weight: 29
+---
+
 # Chapter 29
 
 **¹** And these [are] words of the letter that Jeremiah the prophet sent from Jerusalem unto the remnant of the elders of the removal, and unto the priests, and unto the prophets, and unto all the people — whom Nebuchadnezzar removed from Jerusalem to Babylon,

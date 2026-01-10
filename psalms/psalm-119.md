@@ -1,3 +1,7 @@
+---
+weight: 119
+---
+
 # Psalm 119
 
 **¹** [Aleph.] O the happiness of those perfect in the way, They are walking in the law of Jehovah,

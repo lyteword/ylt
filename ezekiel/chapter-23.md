@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 **¹** And there is a word of Jehovah unto me, saying, 'Son of man,

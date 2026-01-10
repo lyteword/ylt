@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** 'And thou hast loved Jehovah thy God, and kept His charge, and His statutes, and His judgments, and His commands, all the days;

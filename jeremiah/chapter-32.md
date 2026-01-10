@@ -1,3 +1,7 @@
+---
+weight: 32
+---
+
 # Chapter 32
 
 **¹** The word that hath been unto Jeremiah from Jehovah, in the tenth year of Zedekiah king of Judah — it [is] the eighteenth year of Nebuchadrezzar,

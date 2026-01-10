@@ -1,3 +1,7 @@
+---
+weight: 29
+---
+
 # Chapter 29
 
 **¹** Hezekiah hath reigned — a son of twenty and five years, and twenty and nine years he hath reigned in Jerusalem, and the name of his mother [is] Abijah daughter of Zechariah;

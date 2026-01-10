@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 **¹** And Jehovah saith unto Aaron, 'Thou, and thy sons, and the house of thy father with thee, do bear the iniquity of the sanctuary; and thou, and thy sons with thee, do bear the iniquity of your priesthood;

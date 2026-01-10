@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 **¹** And thou, lift up a lamentation unto princes of Israel,

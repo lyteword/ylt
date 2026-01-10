@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** The burden of Damascus. Lo, Damascus is taken away from [being] a city, And it hath been a heap — a ruin.

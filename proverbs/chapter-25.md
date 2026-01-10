@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 **¹** Also these are Proverbs of Solomon, that men of Hezekiah king of Judah transcribed: —

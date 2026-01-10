@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And a certain woman of the wives of the sons of the prophets hath cried unto Elisha, saying, 'Thy servant, my husband, is dead, and thou hast known that thy servant was fearing Jehovah, and the lender hath come to take my two children to him for servants.'

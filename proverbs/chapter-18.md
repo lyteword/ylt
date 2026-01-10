@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 **¹** For [an object of] desire he who is separated doth seek, With all wisdom he intermeddleth.

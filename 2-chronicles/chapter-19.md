@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 **¹** And Jehoshaphat king of Judah turneth back unto his house in peace to Jerusalem,

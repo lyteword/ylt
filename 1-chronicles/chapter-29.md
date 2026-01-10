@@ -1,3 +1,7 @@
+---
+weight: 29
+---
+
 # Chapter 29
 
 **¹** And David the king saith to all the assembly, 'Solomon my son — the one on whom God hath fixed — [is] young and tender, and the work [is] great, for not for man is the palace, but for Jehovah God;

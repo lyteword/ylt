@@ -1,3 +1,7 @@
+---
+weight: 129
+---
+
 # Psalm 129
 
 **¹** A Song of the Ascents. Often they distressed me from my youth, Pray, let Israel say:

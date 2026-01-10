@@ -1,3 +1,7 @@
+---
+weight: 35
+---
+
 # Chapter 35
 
 **¹** And Josiah maketh in Jerusalem a passover to Jehovah, and they slaughter the passover-offering on the fourteenth of the first month,

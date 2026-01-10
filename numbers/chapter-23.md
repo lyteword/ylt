@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 **¹** And Balaam saith unto Balak, 'Build for me in this [place] seven altars, and make ready for me in this [place] seven bullocks and seven rams.'

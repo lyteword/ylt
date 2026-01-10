@@ -1,3 +1,7 @@
+---
+weight: 59
+---
+
 # Chapter 59
 
 **¹** Lo, the hand of Jehovah Hath not been shortened from saving, Nor heavy his ear from hearing.

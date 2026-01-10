@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** At that time did Herod the tetrarch hear the fame of Jesus,

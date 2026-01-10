@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** My little children, these things I write to you, that ye may not sin: and if any one may sin, an advocate we have with the Father, Jesus Christ, a righteous one,

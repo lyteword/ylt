@@ -1,3 +1,7 @@
+---
+weight: 146
+---
+
 # Psalm 146
 
 **¹** Praise ye Jah! Praise, O my soul, Jehovah.

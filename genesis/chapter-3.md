@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And the serpent hath been subtile above every beast of the field which Jehovah God hath made, and he saith unto the woman, 'Is it true that God hath said, Ye do not eat of every tree of the garden?'

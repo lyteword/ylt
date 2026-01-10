@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 **¹** And all the sons of Israel go out, and the company is assembled as one man, from Dan even unto Beer-Sheba, and the land of Gilead, unto Jehovah, at Mizpeh.

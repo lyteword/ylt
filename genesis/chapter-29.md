@@ -1,3 +1,7 @@
+---
+weight: 29
+---
+
 # Chapter 29
 
 **¹** And Jacob lifteth up his feet, and goeth towards the land of the sons of the east;

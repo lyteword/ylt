@@ -1,3 +1,7 @@
+---
+weight: 31
+---
+
 # Chapter 31
 
 **¹** And it cometh to pass, in the eleventh year, in the third [month], in the first of the month, hath a word of Jehovah been unto me, saying:

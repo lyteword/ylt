@@ -1,3 +1,7 @@
+---
+weight: 31
+---
+
 # Chapter 31
 
 **¹** At that time, an affirmation of Jehovah, I am for God to all families of Israel, And they — they are to Me for a people.

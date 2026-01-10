@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** 'Nebuchadnezzar the king to all peoples, nations, and languages, who are dwelling in all the earth: Your peace be great!

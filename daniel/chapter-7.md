@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** In the first year of Belshazzar king of Babylon, Daniel hath seen a dream, and the visions of his head on his bed, then the dream he hath written, the chief of the things he hath said.

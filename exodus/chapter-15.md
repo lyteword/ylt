@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** Then singeth Moses and the sons of Israel this song to Jehovah, and they speak, saying: — 'I sing to Jehovah, For triumphing He hath triumphed; The horse and its rider He hath thrown into the sea.

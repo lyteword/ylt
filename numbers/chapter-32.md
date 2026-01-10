@@ -1,3 +1,7 @@
+---
+weight: 32
+---
+
 # Chapter 32
 
 **¹** And much cattle hath been to the sons of Reuben and to the sons of Gad, very many; and they see the land of Jazer, and the land of Gilead, and lo, the place [is] a place [for] cattle;

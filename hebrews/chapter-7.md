@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** For this Melchisedek, king of Salem, priest of God Most High, who did meet Abraham turning back from the smiting of the kings, and did bless him,

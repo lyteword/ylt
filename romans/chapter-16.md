@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And I commend you to Phebe our sister — being a ministrant of the assembly that [is] in Cenchrea —

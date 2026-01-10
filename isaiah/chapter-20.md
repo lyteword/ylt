@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 **¹** In the year of the coming in of Tartan to Ashdod, when Sargon king of Asshur sendeth him, and he fighteth against Ashdod, and captureth it,

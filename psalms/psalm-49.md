@@ -1,3 +1,7 @@
+---
+weight: 49
+---
+
 # Psalm 49
 
 **¹** To the Overseer. — By sons of Korah. A Psalm. Hear this, all ye peoples, Give ear, all ye inhabitants of the world.

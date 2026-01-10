@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And Jonah prayeth unto Jehovah his God from the bowels of the fish.

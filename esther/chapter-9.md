@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And in the twelfth month — it [is] the month of Adar — on the thirteenth day of it, in which the word of the king, even his law, hath come to be done, in the day that the enemies of the Jews had hoped to rule over them, and it is turned that the Jews rule over those hating them —

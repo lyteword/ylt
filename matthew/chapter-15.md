@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** Then come unto Jesus do they from Jerusalem — scribes and Pharisees — saying,

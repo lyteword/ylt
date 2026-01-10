@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 **¹** And two of the messengers come towards Sodom at even, and Lot is sitting at the gate of Sodom, and Lot seeth, and riseth to meet them, and boweth himself — face to the earth,

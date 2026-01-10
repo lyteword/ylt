@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** And the passover and the unleavened food were after two days, and the chief priests and the scribes were seeking how, by guile, having taken hold of him, they might kill him;

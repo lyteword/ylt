@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And he entered again into the synagogue, and there was there a man having the hand withered,

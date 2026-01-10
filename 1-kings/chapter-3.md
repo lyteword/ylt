@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And Solomon joineth in marriage with Pharaoh king of Egypt, and taketh the daughter of Pharaoh, and bringeth her in unto the city of David, till he completeth to build his own house, and the house of Jehovah, and the wall of Jerusalem round about.

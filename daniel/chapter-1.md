@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** In the third year of the reign of Jehoiakim king of Judah, come hath Nebuchadnezzar king of Babylon to Jerusalem, and layeth siege against it;

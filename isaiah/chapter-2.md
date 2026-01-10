@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** The thing that Isaiah son of Amoz hath seen concerning Judah and Jerusalem:

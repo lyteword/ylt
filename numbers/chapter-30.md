@@ -1,3 +1,7 @@
+---
+weight: 30
+---
+
 # Chapter 30
 
 **¹** And Moses speaketh unto the heads of the tribes of the sons of Israel, saying, 'This [is] the thing which Jehovah hath commanded:

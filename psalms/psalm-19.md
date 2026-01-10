@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Psalm 19
 
 **¹** To the Overseer. — A Psalm of David. The heavens [are] recounting the honour of God, And the work of His hands The expanse [is] declaring.

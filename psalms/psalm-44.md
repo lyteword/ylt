@@ -1,3 +1,7 @@
+---
+weight: 44
+---
+
 # Psalm 44
 
 **¹** To the Overseer. — By sons of Korah. An Instruction. O God, with our ears we have heard, Our fathers have recounted to us, The work Thou didst work in their days, In the days of old.

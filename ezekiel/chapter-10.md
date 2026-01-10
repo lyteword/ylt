@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** And I look, and lo, on the expanse that [is] above the head of the cherubs, as a sapphire stone, as the appearance of the likeness of a throne, He hath been seen over them.

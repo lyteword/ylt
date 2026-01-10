@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** Elders who [are] among you, I exhort, who [am] a fellow-elder, and a witness of the sufferings of the Christ, and of the glory about to be revealed a partaker,

@@ -1,3 +1,7 @@
+---
+weight: 32
+---
+
 # Chapter 32
 
 **¹** 'Give ear, O heavens, and I speak; And thou dost hear, O earth, sayings of my mouth!

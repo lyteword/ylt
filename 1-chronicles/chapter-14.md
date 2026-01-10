@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** And Huram king of Tyre sendeth messengers unto David, and cedar-wood, and artificers of walls, and artificers of wood, to build to him a house.

@@ -1,3 +1,7 @@
+---
+weight: 48
+---
+
 # Chapter 48
 
 **¹** Hear ye this, O house of Jacob, Who are called by the name of Israel, And from the waters of Judah came out, Who are swearing by the name of Jehovah, And of the God of Israel make mention, Not in truth nor in righteousness.

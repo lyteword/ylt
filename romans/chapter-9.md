@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** Truth I say in Christ, I lie not, my conscience bearing testimony with me in the Holy Spirit,

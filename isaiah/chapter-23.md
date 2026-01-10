@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 **¹** The Burden of Tyre. Howl, ye ships of Tarshish, For it hath been destroyed, Without house, without entrance, From the land of Chittim it was revealed to them.

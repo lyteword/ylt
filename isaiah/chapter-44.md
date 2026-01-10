@@ -1,3 +1,7 @@
+---
+weight: 44
+---
+
 # Chapter 44
 
 **¹** And now, hear, O Jacob, My servant, And Israel, whom I have fixed on:

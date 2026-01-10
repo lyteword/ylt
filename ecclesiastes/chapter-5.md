@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** Keep thy feet when thou goest unto a house of God, and draw near to hear rather than to give of fools the sacrifice, for they do not know they do evil.

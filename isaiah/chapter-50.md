@@ -1,3 +1,7 @@
+---
+weight: 50
+---
+
 # Chapter 50
 
 **¹** Thus said Jehovah: 'Where [is] this — the bill of your mother's divorce, Whom I sent away? Or to which of My creditors have I sold you? Lo, for your iniquities ye have been sold, And for your transgressions Hath your mother been sent away.

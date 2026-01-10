@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** A wise son — the instruction of a father, And a scorner — he hath not heard rebuke.

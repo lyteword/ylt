@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** 'And thou, son of man, take to thee a brick, and thou hast put it before thee, and hast graven on it a city — Jerusalem,

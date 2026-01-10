@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** This, now, beloved, a second letter to you I write, in both which I stir up your pure mind in reminding [you],

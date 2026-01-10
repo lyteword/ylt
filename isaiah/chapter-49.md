@@ -1,3 +1,7 @@
+---
+weight: 49
+---
+
 # Chapter 49
 
 **¹** Hearken, O isles, unto me, And attend, O peoples, from afar, Jehovah from the womb hath called me, From the bowels of my mother He hath made mention of my name.

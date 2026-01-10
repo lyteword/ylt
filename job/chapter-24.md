@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 **¹** Wherefore from the Mighty One Times have not been hidden, And those knowing Him have not seen His days.

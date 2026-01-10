@@ -1,3 +1,7 @@
+---
+weight: 40
+---
+
 # Chapter 40
 
 **¹** And Jehovah speaketh unto Moses, saying,

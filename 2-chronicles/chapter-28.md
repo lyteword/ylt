@@ -1,3 +1,7 @@
+---
+weight: 28
+---
+
 # Chapter 28
 
 **¹** A son of twenty years [is] Ahaz in his reigning, and sixteen years he hath reigned in Jerusalem, and he hath not done that which is right in the eyes of Jehovah, as David his father,

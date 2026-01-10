@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 **¹** And after the ceasing of the tumult, Paul having called near the disciples, and having embraced [them], went forth to go on to Macedonia;

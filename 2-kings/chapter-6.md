@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** And sons of the prophet say unto Elisha, 'Lo, we pray thee, the place where we are dwelling before thee is too strait for us;

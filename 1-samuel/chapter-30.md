@@ -1,3 +1,7 @@
+---
+weight: 30
+---
+
 # Chapter 30
 
 **¹** And it cometh to pass, in the coming in of David and his men to Ziklag, on the third day, that the Amalekites have pushed unto the south, and unto Ziklag, and smite Ziklag, and burn it with fire,

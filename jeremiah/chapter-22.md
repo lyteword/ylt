@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 **¹** Thus said Jehovah, 'Go down [to] the house of the king of Judah, and thou hast spoken there this word, and hast said,

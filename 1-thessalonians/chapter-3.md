@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** Wherefore no longer forbearing, we thought good to be left in Athens alone,

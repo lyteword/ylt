@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** Hear this word that I am bearing to you, A lamentation, O house of Israel:

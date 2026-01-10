@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** And there is a word of Jehovah unto me, saying, 'And thou, son of man, Thus said the Lord Jehovah to the ground of Israel:

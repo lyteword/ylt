@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** Go, now, ye rich! weep, howling over your miseries that are coming upon [you];

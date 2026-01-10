@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** For yourselves have known, brethren, our entrance in unto you, that it did not become vain,

@@ -1,3 +1,7 @@
+---
+weight: 98
+---
+
 # Psalm 98
 
 **¹** A Psalm. Sing ye to Jehovah a new song, For wonders He hath done, Given salvation to Him hath His right hand and His holy arm.

@@ -1,3 +1,7 @@
+---
+weight: 27
+---
+
 # Chapter 27
 
 **¹** And daughters of Zelophehad son of Hepher, son of Gilead, son of Machir, son of Manasseh, of the families of Manasseh son of Joseph, draw near — and these [are] the names of his daughters, Mahlah, Noah, and Hoglah, and Milcah, and Tirzah —

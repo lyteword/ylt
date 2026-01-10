@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** And it cometh to pass afterwards, that the king of the Bene-Ammon dieth, and Hanun his son reigneth in his stead,

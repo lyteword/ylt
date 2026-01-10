@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** And he said unto the disciples, 'It is impossible for the stumbling blocks not to come, but woe [to him] through whom they come;

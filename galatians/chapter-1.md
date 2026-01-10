@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Paul, an apostle — not from men, nor through man, but through Jesus Christ, and God the Father, who did raise him out of the dead —

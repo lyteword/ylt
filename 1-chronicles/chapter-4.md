@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** Sons of Judah: Pharez, Hezron, and Carmi, and Hur, and Shobal.

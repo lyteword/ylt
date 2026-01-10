@@ -1,3 +1,7 @@
+---
+weight: 27
+---
+
 # Chapter 27
 
 **¹** In the beginning of the reign of Jehoiakim son of Josiah, king of Judah, hath this word been unto Jeremiah from Jehovah, saying,

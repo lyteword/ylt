@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** And it cometh to pass, after these things, a vineyard hath been to Naboth the Jezreelite, that [is] in Jezreel, near the palace of Ahab king of Samaria,

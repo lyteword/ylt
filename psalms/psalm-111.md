@@ -1,3 +1,7 @@
+---
+weight: 111
+---
+
 # Psalm 111
 
 **¹** Praise ye Jah! I thank Jehovah with the whole heart, In the secret meeting of the upright, And of the company.

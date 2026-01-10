@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And it cometh to pass, at Solomon's finishing to build the house of Jehovah, and the house of the king, and all the desire of Solomon that he delighted to do,

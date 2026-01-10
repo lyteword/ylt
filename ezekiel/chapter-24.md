@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 **¹** And there is a word of Jehovah unto me, in the ninth year, in the tenth month, in the tenth of the month, saying,

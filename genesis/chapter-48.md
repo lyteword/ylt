@@ -1,3 +1,7 @@
+---
+weight: 48
+---
+
 # Chapter 48
 
 **¹** And it cometh to pass, after these things, that [one] saith to Joseph, 'Lo, thy father is sick;' and he taketh his two sons with him, Manasseh and Ephraim.

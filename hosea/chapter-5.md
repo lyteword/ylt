@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** 'Hear this, O priests, and attend, O house of Israel, And, O house of the king, give ear, For the judgment [is] for you, For, a snare ye have been on Mizpah, And a net spread out on Tabor.

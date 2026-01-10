@@ -1,3 +1,7 @@
+---
+weight: 114
+---
+
 # Psalm 114
 
 **¹** In the going out of Israel from Egypt, The house of Jacob from a strange people,

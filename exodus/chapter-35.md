@@ -1,3 +1,7 @@
+---
+weight: 35
+---
+
 # Chapter 35
 
 **¹** And Moses assembleth all the company of the sons of Israel, and saith unto them, 'These [are] the things which Jehovah hath commanded — to do them:

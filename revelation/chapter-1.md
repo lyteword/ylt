@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** A revelation of Jesus Christ, that God gave to him, to shew to his servants what things it behoveth to come to pass quickly; and he did signify [it], having sent through his messenger to his servant John,

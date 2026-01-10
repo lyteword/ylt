@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** It had, indeed, then (even the first tabernacle) ordinances of service, also a worldly sanctuary,

@@ -1,3 +1,7 @@
+---
+weight: 95
+---
+
 # Psalm 95
 
 **¹** Come, we sing to Jehovah, We shout to the rock of our salvation.

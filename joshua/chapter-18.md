@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 **¹** And all the company of the sons of Israel are assembled [at] Shiloh, and they cause the tent of meeting to tabernacle there, and the land hath been subdued before them.

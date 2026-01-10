@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 **¹** And the king sendeth, and they gather unto him all the elders of Judah and Jerusalem,

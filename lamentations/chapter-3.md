@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** I [am] the man [who] hath seen affliction By the rod of His wrath.

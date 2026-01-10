@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And he came to Derbe and Lystra, and lo, a certain disciple was there, by name Timotheus son of a certain woman, a believing Jewess, but of a father, a Greek,

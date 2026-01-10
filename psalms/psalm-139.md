@@ -1,3 +1,7 @@
+---
+weight: 139
+---
+
 # Psalm 139
 
 **¹** To the Overseer. — A Psalm by David. Jehovah, Thou hast searched me, and knowest.

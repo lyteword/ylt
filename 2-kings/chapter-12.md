@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** In the seventh year of Jehu reigned hath Jehoash, and forty years he hath reigned in Jerusalem, and the name of his mother [is] Zibiah of Beer-Sheba,

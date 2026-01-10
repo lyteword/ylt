@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** 'Observe the month of Abib — and thou hast made a passover to Jehovah thy God, for in the month of Abib hath Jehovah thy God brought thee out of Egypt by night;

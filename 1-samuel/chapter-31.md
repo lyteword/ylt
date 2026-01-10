@@ -1,3 +1,7 @@
+---
+weight: 31
+---
+
 # Chapter 31
 
 **¹** And the Philistines are fighting against Israel, and the men of Israel flee from the face of the Philistines, and fall wounded in mount Gilboa,

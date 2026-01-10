@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** And we ought — we who are strong — to bear the infirmities of the weak, and not to please ourselves;

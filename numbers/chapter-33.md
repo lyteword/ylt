@@ -1,3 +1,7 @@
+---
+weight: 33
+---
+
 # Chapter 33
 
 **¹** These [are] journeys of the sons of Israel who have come out of the land of Egypt, by their hosts, by the hand of Moses and Aaron;

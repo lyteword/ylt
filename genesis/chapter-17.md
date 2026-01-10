@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** And Abram is a son of ninety and nine years, and Jehovah appeareth unto Abram, and saith unto him, 'I [am] God Almighty, walk habitually before Me, and be thou perfect;

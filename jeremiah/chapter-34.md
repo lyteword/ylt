@@ -1,3 +1,7 @@
+---
+weight: 34
+---
+
 # Chapter 34
 
 **¹** The word that hath been unto Jeremiah from Jehovah — and Nebuchadnezzar king of Babylon, and all his force, and all kingdoms of the land of the dominion of his hand, and all the peoples are fighting against Jerusalem, and against all its cities — saying:

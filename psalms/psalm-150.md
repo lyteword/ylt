@@ -1,3 +1,7 @@
+---
+weight: 150
+---
+
 # Psalm 150
 
 **¹** Praise ye Jah! Praise ye God in His holy place, Praise Him in the expanse of His strength.

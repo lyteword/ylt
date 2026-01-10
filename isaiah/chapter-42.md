@@ -1,3 +1,7 @@
+---
+weight: 42
+---
+
 # Chapter 42
 
 **¹** Lo, My servant, I take hold on him, My chosen one — My soul hath accepted, I have put My Spirit upon him, Judgment to nations he bringeth forth.

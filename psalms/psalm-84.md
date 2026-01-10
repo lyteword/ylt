@@ -1,3 +1,7 @@
+---
+weight: 84
+---
+
 # Psalm 84
 
 **¹** To the Overseer. — 'On the Gittith By sons of Korah.' — A Psalm. How beloved Thy tabernacles, Jehovah of Hosts!

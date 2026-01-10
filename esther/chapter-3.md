@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** After these things hath the king Ahasuerus exalted Haman son of Hammedatha the Agagite, and lifteth him up, and setteth his throne above all the heads who [are] with him,

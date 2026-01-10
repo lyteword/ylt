@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And Naomi hath an acquaintance of her husband's, a man mighty in wealth, of the family of Elimelech, and his name [is] Boaz.

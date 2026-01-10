@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** A soft answer turneth back fury, And a grievous word raiseth up anger.

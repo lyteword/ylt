@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Proverbs of Solomon, son of David, king of Israel:

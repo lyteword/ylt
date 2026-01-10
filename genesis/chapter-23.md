@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 **¹** And the life of Sarah is a hundred and twenty and seven years — years of the life of Sarah;

@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** For, indeed, concerning the ministration that [is] for the saints, it is superfluous for me to write to you,

@@ -1,3 +1,7 @@
+---
+weight: 144
+---
+
 # Psalm 144
 
 **¹** By David. Blessed [is] Jehovah my rock, who is teaching My hands for war, my fingers for battle.

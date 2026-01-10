@@ -1,3 +1,7 @@
+---
+weight: 32
+---
+
 # Chapter 32
 
 **¹** And Jacob hath gone on his way, and messengers of God come upon him;

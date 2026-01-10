@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Psalm 1
 
 **¹** O the happiness of that one, who Hath not walked in the counsel of the wicked. And in the way of sinners hath not stood, And in the seat of scorners hath not sat;

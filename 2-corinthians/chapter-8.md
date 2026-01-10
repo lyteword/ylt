@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And we make known to you, brethren, the grace of God, that hath been given in the assemblies of Macedonia,

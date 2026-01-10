@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 **¹** In that day sung is this song in the land of Judah: 'We have a strong city, Salvation He doth make walls and bulwark.

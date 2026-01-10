@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** And Samson goeth down to Timnath, and seeth a woman in Timnath of the daughters of the Philistines,

@@ -1,3 +1,7 @@
+---
+weight: 29
+---
+
 # Chapter 29
 
 **¹** And the Philistines gather all their camps to Aphek, and the Israelites are encamping at a fountain which [is] in Jezreel,

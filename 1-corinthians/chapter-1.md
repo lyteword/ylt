@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Paul, a called apostle of Jesus Christ, through the will of God, and Sosthenes the brother,

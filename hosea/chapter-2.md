@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** 'Say ye to your brethren — Ammi, And to your sisters — Ruhamah.

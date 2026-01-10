@@ -1,3 +1,7 @@
+---
+weight: 135
+---
+
 # Psalm 135
 
 **¹** Praise ye Jah! Praise ye the name of Jehovah, Praise, ye servants of Jehovah,

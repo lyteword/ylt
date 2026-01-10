@@ -1,3 +1,7 @@
+---
+weight: 61
+---
+
 # Chapter 61
 
 **¹** The Spirit of the Lord Jehovah [is] on me, Because Jehovah did anoint me To proclaim tidings to the humble, He sent me to bind the broken of heart, To proclaim to captives liberty, And to bound ones an opening of bands.

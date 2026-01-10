@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** Every wise woman hath builded her house, And the foolish with her hands breaketh it down.

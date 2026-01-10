@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** They asked of Jehovah rain in a time of latter rain, Jehovah is making lightnings, And rain [in] showers He doth give to them. To each — the herb in the field.

@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** And Jehovah saith unto Abram, 'Go for thyself, from thy land, and from thy kindred, and from the house of thy father, unto the land which I shew thee.

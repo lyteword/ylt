@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** Let a man so reckon us as officers of Christ, and stewards of the secrets of God,

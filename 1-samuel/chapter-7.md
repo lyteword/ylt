@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** And the men of Kirjath-Jearim come and bring up the ark of Jehovah, and bring it in unto the house of Abinadab, in the height, and Eleazar his son they have sanctified to keep the ark of Jehovah.

@@ -1,3 +1,7 @@
+---
+weight: 58
+---
+
 # Psalm 58
 
 **¹** To the Overseer. — 'Destroy not.' — A secret treasure, by David. Is it true, O dumb one, righteously ye speak? Uprightly ye judge, O sons of men?

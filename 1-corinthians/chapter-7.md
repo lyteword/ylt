@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** And concerning the things of which ye wrote to me: good [it is] for a man not to touch a woman,

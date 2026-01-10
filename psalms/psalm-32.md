@@ -1,3 +1,7 @@
+---
+weight: 32
+---
+
 # Psalm 32
 
 **¹** By David. — An Instruction. O the happiness of him whose transgression [is] forgiven, Whose sin is covered.

@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** Turn back, O Israel, unto Jehovah thy God, For thou hast stumbled by thine iniquity.

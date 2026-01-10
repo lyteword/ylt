@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** And king Solomon hath loved many strange women, and the daughter of Pharaoh, females of Moab, Ammon, Edom, Zidon, [and] of the Hittites,

@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** In the year of the death of king Uzziah — I see the Lord, sitting on a throne, high and lifted up, and His train is filling the temple.

@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** After these things, at the ceasing of the fury of the king Ahasuerus, he hath remembered Vashti, and that which she did, and that which hath been decreed concerning her;

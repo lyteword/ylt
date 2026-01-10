@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** And there came one of the seven messengers, who were having the seven vials, and he spake with me, saying to me, 'Come, I will shew to thee the judgment of the great whore, who is sitting upon the many waters,

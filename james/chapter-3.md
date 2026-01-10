@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** Many teachers become not, my brethren, having known that greater judgment we shall receive,

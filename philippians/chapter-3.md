@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** As to the rest, my brethren, rejoice in the Lord; the same things to write to you to me indeed is not tiresome, and for you [is] sure;

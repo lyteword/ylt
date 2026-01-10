@@ -1,3 +1,7 @@
+---
+weight: 71
+---
+
 # Psalm 71
 
 **¹** In Thee, O Jehovah, I have trusted, Let me not be ashamed to the age.

@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** Hear ye the word, O house of Israel, That Jehovah hath spoken for you.

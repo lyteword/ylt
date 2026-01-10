@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Psalm 22
 
 **¹** To the Overseer, on 'The Hind of the Morning.' — A Psalm of David. My God, my God, why hast Thou forsaken me? Far from my salvation, The words of my roaring?

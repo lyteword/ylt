@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** And thou hast said in that day: 'I thank thee, O Jehovah, Though Thou hast been angry with me, Turn back doth Thine anger, And Thou dost comfort me.

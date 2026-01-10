@@ -1,3 +1,7 @@
+---
+weight: 36
+---
+
 # Chapter 36
 
 **¹** And the people of the land take Jehoahaz son of Josiah, and cause him to reign instead of his father in Jerusalem.

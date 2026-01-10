@@ -1,3 +1,7 @@
+---
+weight: 134
+---
+
 # Psalm 134
 
 **¹** A Song of the Ascents. Lo, bless Jehovah, all servants of Jehovah, Who are standing in the house of Jehovah by night.

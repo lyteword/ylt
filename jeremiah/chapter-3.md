@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** Saying, 'Lo, one sendeth away his wife, And she hath gone from him, And she hath been to another man, Doth he turn back unto her again? Greatly defiled is not that land? And thou hast committed whoredom with many lovers, And turn again to Me, an affirmation of Jehovah.

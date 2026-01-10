@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** Hear, I pray you, that which Jehovah is saying: 'Rise — strive thou with the mountains, And cause thou the hills to hear thy voice.'

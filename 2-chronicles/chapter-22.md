@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 **¹** And the inhabitants of Jerusalem cause Ahaziah his youngest son to reign in his stead, (for all the elder had the troop slain that came in with the Arabians to the camp,) and Ahaziah son of Jehoram king of Judah reigneth.

@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 **¹** 'And there is a word of Jehovah unto me, saying:

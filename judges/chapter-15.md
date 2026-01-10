@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** And it cometh to pass, after [some] days, in the days of wheat-harvest, that Samson looketh after his wife, with a kid of the goats, and saith, 'I go in unto my wife, to the inner chamber;' and her father hath not permitted him to go in,

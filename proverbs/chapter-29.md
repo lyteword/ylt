@@ -1,3 +1,7 @@
+---
+weight: 29
+---
+
 # Chapter 29
 
 **¹** A man often reproved, hardening the neck, Is suddenly broken, and there is no healing.

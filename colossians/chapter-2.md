@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** For I wish you to know how great a conflict I have for you and those in Laodicea, and as many as have not seen my face in the flesh,

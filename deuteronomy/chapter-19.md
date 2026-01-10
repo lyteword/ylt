@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 **¹** 'When Jehovah thy God doth cut off the nations, whose land Jehovah thy God is giving to thee, and thou hast succeeded them, and dwelt in their cities, and in their houses,

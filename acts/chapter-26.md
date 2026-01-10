@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 **¹** And Agrippa said unto Paul, 'It is permitted to thee to speak for thyself;' then Paul having stretched forth the hand, was making a defence:

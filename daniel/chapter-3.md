@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** Nebuchadnezzar the king hath made an image of gold, its height sixty cubits, its breadth six cubits; he hath raised it up in the valley of Dura, in the province of Babylon;

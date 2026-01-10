@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** And Jehoshaphat his son reigneth in his stead, and he strengtheneth himself against Israel,

@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Psalm 4
 
 **¹** To the Overseer with Stringed Instruments. — A Psalm of David. In my calling answer Thou me, O God of my righteousness. In adversity Thou gavest enlargement to me; Favour me, and hear my prayer.

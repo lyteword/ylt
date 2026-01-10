@@ -1,3 +1,7 @@
+---
+weight: 34
+---
+
 # Chapter 34
 
 **¹** Come near, ye nations, to hear, And ye peoples, give attention, Hear doth the earth and its fulness, The world, and all its productions.

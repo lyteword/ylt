@@ -1,3 +1,7 @@
+---
+weight: 56
+---
+
 # Chapter 56
 
 **¹** Thus said Jehovah: 'Keep ye judgment, and do righteousness, For near [is] My salvation to come, And My righteousness to be revealed.'

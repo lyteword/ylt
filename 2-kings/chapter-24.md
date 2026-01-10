@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 **¹** In his days hath Nebuchadnezzar king of Babylon come up, and Jehoiakim is to him a servant three years; and he turneth and rebelleth against him,

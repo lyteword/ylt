@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 **¹** The burden of the Valley of Vision. What — to thee, now, that thou hast gone up, All of thee — to the roofs?

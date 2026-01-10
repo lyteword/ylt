@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** And having passed through Amphipolis, and Apollonia, they came to Thessalonica, where was the synagogue of the Jews,

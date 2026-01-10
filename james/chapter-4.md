@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** Whence [are] wars and fightings among you? not thence — out of your passions, that are as soldiers in your members?

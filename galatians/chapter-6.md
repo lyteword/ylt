@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** Brethren, if a man also may be overtaken in any trespass, ye who [are] spiritual restore such a one in a spirit of meekness, considering thyself — lest thou also may be tempted;

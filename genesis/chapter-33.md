@@ -1,3 +1,7 @@
+---
+weight: 33
+---
+
 # Chapter 33
 
 **¹** And Jacob lifteth up his eyes, and looketh, and lo, Esau is coming, and with him four hundred men; and he divideth the children unto Leah, and unto Rachel, and unto the two maid-servants;

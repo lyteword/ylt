@@ -1,3 +1,7 @@
+---
+weight: 38
+---
+
 # Chapter 38
 
 **¹** And he maketh the altar of burnt-offering of shittim wood, five cubits its length, and five cubits its breadth (square), and three cubits its height;

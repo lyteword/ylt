@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** Now gather thyself together, O daughter of troops, A siege he hath laid against us, With a rod they smite on the cheek the judge of Israel.

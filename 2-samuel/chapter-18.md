@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 **¹** And David inspecteth the people who [are] with him, and setteth over them heads of thousands and heads of hundreds,

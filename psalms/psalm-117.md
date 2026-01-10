@@ -1,3 +1,7 @@
+---
+weight: 117
+---
+
 # Psalm 117
 
 **¹** Praise Jehovah, all ye nations, Glorify Him, all ye peoples.

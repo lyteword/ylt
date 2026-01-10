@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** Having been declared righteous, then, by faith, we have peace toward God through our Lord Jesus Christ,

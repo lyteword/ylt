@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 **¹** And Ahab declareth to Jezebel all that Elijah did, and all how he slew all the prophets by the sword,

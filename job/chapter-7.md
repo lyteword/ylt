@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** Is there not a warfare to man on earth? And as the days of an hireling his days?

@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Paul, an apostle of Jesus Christ through the will of God, and Timotheus the brother,

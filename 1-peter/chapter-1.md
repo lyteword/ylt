@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Peter, an apostle of Jesus Christ, to the choice sojourners of the dispersion of Pontus, Galatia, Cappadocia, Asia, and Bithynia,

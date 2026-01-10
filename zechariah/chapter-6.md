@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** And I turn back, and lift up mine eyes, and look, and lo, four chariots are coming forth from between two of the mountains, and the mountains [are] mountains of brass.

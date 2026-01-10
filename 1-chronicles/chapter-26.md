@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 **¹** For the courses of the gatekeepers: of the Korhites [is] Meshelemiah son of Kore, of the sons of Asaph;

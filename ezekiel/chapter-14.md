@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** And come in unto me do certain of the elders of Israel, and sit before me.

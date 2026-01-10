@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** Sons of Levi: Gershon, Kohath, and Merari.

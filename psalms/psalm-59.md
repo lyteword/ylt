@@ -1,3 +1,7 @@
+---
+weight: 59
+---
+
 # Psalm 59
 
 **¹** To the Overseer. — 'Destroy not,' by David. — A secret treasure, in Saul's sending, and they watch the house to put him to death. Deliver me from mine enemies, O my God, From my withstanders set me on high.

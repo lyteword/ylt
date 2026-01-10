@@ -1,3 +1,7 @@
+---
+weight: 37
+---
+
 # Chapter 37
 
 **¹** And reign doth king Zedekiah son of Josiah instead of Coniah son of Jehoiakim whom Nebuchadrezzar king of Babylon had caused to reign in the land of Judah,

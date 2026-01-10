@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And Jehoram son of Ahab hath reigned over Israel, in Samaria, in the eighteenth year of Jehoshaphat king of Judah, and he reigneth twelve years,

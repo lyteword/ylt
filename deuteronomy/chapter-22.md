@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 **¹** 'Thou dost not see the ox of thy brother or his sheep driven away, and hast hidden thyself from them, thou dost certainly turn them back to thy brother;

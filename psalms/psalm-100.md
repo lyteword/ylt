@@ -1,3 +1,7 @@
+---
+weight: 100
+---
+
 # Psalm 100
 
 **¹** A Psalm of Thanksgiving. Shout to Jehovah, all the earth.

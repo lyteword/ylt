@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 **¹** 'Ye do not make to yourselves idols; and graven image or standing image ye do not set up to yourselves; and a stone of imagery ye do not put in your land, to bow yourselves to it; for I [am] Jehovah your God.

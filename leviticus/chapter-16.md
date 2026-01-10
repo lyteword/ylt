@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And Jehovah speaketh unto Moses, after the death of the two sons of Aaron, in their drawing near before Jehovah, and they die;

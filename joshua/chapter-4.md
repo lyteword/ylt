@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And it cometh to pass, when all the nation hath completed to pass over the Jordan, that Jehovah speaketh unto Joshua, saying,

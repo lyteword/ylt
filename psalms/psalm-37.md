@@ -1,3 +1,7 @@
+---
+weight: 37
+---
+
 # Psalm 37
 
 **¹** By David. Do not fret because of evil doers, Be not envious against doers of iniquity,

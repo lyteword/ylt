@@ -1,3 +1,7 @@
+---
+weight: 50
+---
+
 # Chapter 50
 
 **¹** The word that Jehovah hath spoken concerning Babylon, concerning the land of the Chaldeans, by the hand of Jeremiah the prophet:

@@ -1,3 +1,7 @@
+---
+weight: 46
+---
+
 # Psalm 46
 
 **¹** To the Overseer. — By sons of Korah. 'For the Virgins.' — A song. God [is] to us a refuge and strength, A help in adversities found most surely.

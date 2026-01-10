@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** 'These [are] the statutes and the judgments which ye observe to do in the land which Jehovah, God of thy fathers, hath given to thee to possess it, all the days that ye are living on the ground:

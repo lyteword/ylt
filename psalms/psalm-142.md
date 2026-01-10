@@ -1,3 +1,7 @@
+---
+weight: 142
+---
+
 # Psalm 142
 
 **¹** An Instruction of David, a Prayer when he is in the cave. My voice [is] unto Jehovah, I cry, My voice [is] unto Jehovah, I entreat grace.

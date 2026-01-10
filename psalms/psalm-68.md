@@ -1,3 +1,7 @@
+---
+weight: 68
+---
+
 # Psalm 68
 
 **¹** To the Overseer. — A Psalm, a song of David. Rise doth God — scattered are His enemies! And those hating Him flee from His face.

@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Words of Amos — who hath been among herdsmen of Tekoa — that he hath seen concerning Israel, in the days of Uzziah king of Judah, and in the days of Jeroboam son of Joash king of Israel, two years before the shaking;

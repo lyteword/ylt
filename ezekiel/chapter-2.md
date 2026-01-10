@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** It [is] the appearance of the likeness of the honour of Jehovah, and I see, and fall on my face, and I hear a voice speaking, and He saith unto me, 'Son of man, stand on thy feet, and I speak with thee.'

@@ -1,3 +1,7 @@
+---
+weight: 32
+---
+
 # Chapter 32
 
 **¹** And it cometh to pass, in the twelfth year, in the twelfth month, in the first of the month, hath a word of Jehovah been unto me, saying,

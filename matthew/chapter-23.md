@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 **¹** Then Jesus spake to the multitudes, and to his disciples,

@@ -1,3 +1,7 @@
+---
+weight: 42
+---
+
 # Chapter 42
 
 **¹** And they come nigh — all the heads of the forces, and Johanan son of Kareah, and Jezaniah son of Hoshaiah, and all the people from the least even unto the greatest —

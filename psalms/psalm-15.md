@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Psalm 15
 
 **¹** A Psalm of David. Jehovah, who doth sojourn in Thy tent? Who doth dwell in Thy holy hill?

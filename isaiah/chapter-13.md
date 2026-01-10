@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** The burden of Babylon that Isaiah son of Amoz hath seen:

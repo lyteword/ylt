@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** The burden of a word of Jehovah unto Israel by the hand of Malachi:

@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** And it came to pass, at our sailing, having been parted from them, having run direct, we came to Coos, and the succeeding [day] to Rhodes, and thence to Patara,

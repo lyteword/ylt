@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** And it cometh to pass afterwards that Absalom son of David hath a fair sister, and her name [is] Tamar, and Amnon son of David loveth her.

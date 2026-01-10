@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 **¹** In the beginning of the reign of Jehoiakim son of Josiah, king of Judah, hath this word been from Jehovah, saying:

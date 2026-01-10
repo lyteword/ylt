@@ -1,3 +1,7 @@
+---
+weight: 50
+---
+
 # Psalm 50
 
 **¹** A Psalm of Asaph. The God of gods — Jehovah — hath spoken, And He calleth to the earth From the rising of the sun unto its going in.

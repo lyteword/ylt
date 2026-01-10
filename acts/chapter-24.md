@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 **¹** And after five days came down the chief priest Ananias, with the elders, and a certain orator — Tertullus, and they made manifest to the governor [the things] against Paul;

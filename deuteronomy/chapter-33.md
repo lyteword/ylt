@@ -1,3 +1,7 @@
+---
+weight: 33
+---
+
 # Chapter 33
 
 **¹** And this [is] the blessing [with] which Moses the man of God blessed the sons of Israel before his death,

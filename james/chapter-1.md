@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** James, of God and of the Lord Jesus Christ a servant, to the Twelve Tribes who are in the dispersion: Hail!

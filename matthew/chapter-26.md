@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 **¹** And it came to pass, when Jesus finished all these words, he said to his disciples,

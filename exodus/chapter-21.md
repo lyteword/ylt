@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** 'And these [are] the judgments which thou dost set before them:

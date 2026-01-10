@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** And Jehovah calleth unto Moses, and speaketh unto him out of the tent of meeting, saying,

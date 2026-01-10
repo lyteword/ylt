@@ -1,3 +1,7 @@
+---
+weight: 38
+---
+
 # Chapter 38
 
 **¹** And Shephatiah son of Mattan, and Gedaliah son of Pashhur, and Jucal son of Shelemiah, and Pashhur son of Malchiah, hear the words that Jeremiah is speaking unto all the people, saying,

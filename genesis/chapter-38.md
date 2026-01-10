@@ -1,3 +1,7 @@
+---
+weight: 38
+---
+
 # Chapter 38
 
 **¹** And it cometh to pass, at that time, that Judah goeth down from his brethren, and turneth aside unto a man, an Adullamite, whose name [is] Hirah;

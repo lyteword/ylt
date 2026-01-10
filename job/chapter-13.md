@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** Lo, all — hath mine eye seen, Heard hath mine ear, and it attendeth to it.

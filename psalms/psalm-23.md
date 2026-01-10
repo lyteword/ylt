@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Psalm 23
 
 **¹** A Psalm of David. Jehovah [is] my shepherd, I do not lack,

@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** And the heads of the fathers of the Levites draw nigh unto Eleazar the priest, and unto Joshua son of Nun, and unto the heads of the fathers of the tribes of the sons of Israel,

@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** And Jehovah saith unto Moses, 'Speak unto the priests, sons of Aaron, and thou hast said unto them, For [any] person [a priest] is not defiled among his people,

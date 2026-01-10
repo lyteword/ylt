@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And the sons of Israel add to do the evil thing in the eyes of Jehovah when Ehud is dead,

@@ -1,3 +1,7 @@
+---
+weight: 32
+---
+
 # Chapter 32
 
 **¹** And these three men cease from answering Job, for he [is] righteous in his own eyes,

@@ -1,3 +1,7 @@
+---
+weight: 38
+---
+
 # Psalm 38
 
 **¹** A Psalm of David, 'To cause to remember.' Jehovah, in Thy wrath reprove me not, Nor in Thy fury chastise me.

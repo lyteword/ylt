@@ -1,3 +1,7 @@
+---
+weight: 94
+---
+
 # Psalm 94
 
 **¹** God of vengeance — Jehovah! God of vengeance, shine forth.

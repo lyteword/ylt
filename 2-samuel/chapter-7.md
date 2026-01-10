@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** And it cometh to pass, when the king sat in his house, and Jehovah hath given rest to him round about, from all his enemies,

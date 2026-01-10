@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** Because of this, having this ministration, according as we did receive kindness, we do not faint,

@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And I, brethren, was not able to speak to you as to spiritual, but as to fleshly — as to babes in Christ;

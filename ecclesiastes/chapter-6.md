@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** There is an evil that I have seen under the sun, and it [is] great on man:

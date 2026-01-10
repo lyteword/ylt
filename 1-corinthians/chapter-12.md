@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** And concerning the spiritual things, brethren, I do not wish you to be ignorant;

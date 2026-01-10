@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** On that night hath the sleep of the king fled away, and he saith to bring in the book of memorials of the Chronicles, and they are read before the king,

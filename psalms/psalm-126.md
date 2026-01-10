@@ -1,3 +1,7 @@
+---
+weight: 126
+---
+
 # Psalm 126
 
 **¹** A Song of the Ascents. In Jehovah's turning back [to] the captivity of Zion, We have been as dreamers.

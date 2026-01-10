@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** Woe [to] the rebellious and polluted, The oppressing city!

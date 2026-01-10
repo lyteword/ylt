@@ -1,3 +1,7 @@
+---
+weight: 115
+---
+
 # Psalm 115
 
 **¹** Not to us, O Jehovah, not to us, But to Thy name give honour, For Thy kindness, for Thy truth.

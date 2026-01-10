@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** And having seen the multitudes, he went up to the mount, and he having sat down, his disciples came to him,

@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** And these [are] the priests and the Levites who came up with Zerubbabel son of Shealtiel, and Jeshua; Seraiah, Jeremiah, Ezra,

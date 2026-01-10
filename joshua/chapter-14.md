@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** And these [are] they [of] the sons of Israel who inherited in the land of Canaan, whom Eleazar the priest, and Joshua son of Nun, and the heads of the fathers of the tribes of the sons of Israel, caused to inherit;

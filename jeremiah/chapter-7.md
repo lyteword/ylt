@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** The word that hath been unto Jeremiah from Jehovah, saying,

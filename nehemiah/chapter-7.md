@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** And it cometh to pass, when the wall hath been built, that I set up the doors, and the gatekeepers are appointed, and the singers, and the Levites,

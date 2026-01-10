@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** I have seen the Lord standing by the altar, and He saith: 'Smite the knob, and the thresholds shake, And cut them off by the head — all of them, And their posterity with a sword I do slay, Not flee to them doth the fleer, Nor escape to them doth a fugitive.

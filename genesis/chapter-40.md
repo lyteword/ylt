@@ -1,3 +1,7 @@
+---
+weight: 40
+---
+
 # Chapter 40
 
 **¹** And it cometh to pass, after these things — the butler of the king of Egypt and the baker have sinned against their lord, against the king of Egypt;

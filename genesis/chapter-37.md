@@ -1,3 +1,7 @@
+---
+weight: 37
+---
+
 # Chapter 37
 
 **¹** And Jacob dwelleth in the land of his father's sojournings — in the land of Canaan.

@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** 'Come, and we turn back unto Jehovah, For He hath torn, and He doth heal us, He doth smite, and He bindeth us up.

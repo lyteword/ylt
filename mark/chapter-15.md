@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** And immediately, in the morning, the chief priests having made a consultation, with the elders, and scribes, and the whole sanhedrim, having bound Jesus, did lead away, and delivered [him] to Pilate;

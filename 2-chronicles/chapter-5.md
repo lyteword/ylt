@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** And all the work that Solomon made for the house of Jehovah is finished, and Solomon bringeth in the sanctified things of David his father, and the silver, and the gold, and all the vessels he hath put among the treasures of the house of God.

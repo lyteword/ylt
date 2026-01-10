@@ -1,3 +1,7 @@
+---
+weight: 29
+---
+
 # Psalm 29
 
 **¹** A Psalm of David. Ascribe to Jehovah, ye sons of the mighty, Ascribe to Jehovah honour and strength.

@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And the messenger who is speaking with me doth turn back, and stir me up as one who is stirred up out of his sleep,

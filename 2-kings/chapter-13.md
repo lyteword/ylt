@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** In the twenty and third year of Joash son of Ahaziah king of Judah, hath Jehoahaz son of Jehu reigned over Israel, in Samaria — seventeen years,

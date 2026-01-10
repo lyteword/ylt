@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** And it cometh to pass, after the death of Saul, that David hath returned from smiting the Amalekite, and David dwelleth in Ziklag two days,

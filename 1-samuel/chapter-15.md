@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** And Samuel saith unto Saul, 'Me did Jehovah send to anoint thee for king over His people, over Israel; and now, hearken to the voice of the words of Jehovah:

@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Paul, a prisoner of Christ Jesus, and Timotheus the brother, to Philemon our beloved and fellow-worker,

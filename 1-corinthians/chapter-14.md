@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** Pursue the love, and seek earnestly the spiritual things, and rather that ye may prophecy,

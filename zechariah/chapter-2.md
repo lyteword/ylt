@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And I lift up mine eyes, and look, and lo, a man, and in his hand a measuring line.

@@ -1,3 +1,7 @@
+---
+weight: 79
+---
+
 # Psalm 79
 
 **¹** A Psalm of Asaph. O God, nations have come into Thy inheritance, They have defiled Thy holy temple, They made Jerusalem become heaps,

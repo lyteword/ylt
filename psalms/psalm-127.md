@@ -1,3 +1,7 @@
+---
+weight: 127
+---
+
 # Psalm 127
 
 **¹** A Song of the Ascents, by Solomon. If Jehovah doth not build the house, In vain have its builders laboured at it, If Jehovah doth not watch a city, In vain hath a watchman waked.

@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** Am not I an apostle? am not I free? Jesus Christ our Lord have I not seen? my work are not ye in the Lord?

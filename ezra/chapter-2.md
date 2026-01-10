@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And these [are] sons of the province who are going up — of the captives of the removal that Nebuchadnezzar king of Babylon removed to Babylon, and they turn back to Jerusalem and Judah, each to his city —

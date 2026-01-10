@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And concerning the collection that [is] for the saints, as I directed to the assemblies of Galatia, so also ye — do ye;

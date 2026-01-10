@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 **¹** 'One wounded, bruised, or cut in the member doth not enter into the assembly of Jehovah;

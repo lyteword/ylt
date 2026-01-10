@@ -1,3 +1,7 @@
+---
+weight: 33
+---
+
 # Chapter 33
 
 **¹** A son of twelve years is Manasseh in his reigning, and fifty and five years he hath reigned in Jerusalem;

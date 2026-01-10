@@ -1,3 +1,7 @@
+---
+weight: 28
+---
+
 # Chapter 28
 
 **¹** 'And it hath been, if thou dost hearken diligently to the voice of Jehovah thy God, to observe to do all His commands which I am commanding thee to-day, that Jehovah thy God hath made thee uppermost above all the nations of the earth,

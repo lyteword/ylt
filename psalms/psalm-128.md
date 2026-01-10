@@ -1,3 +1,7 @@
+---
+weight: 128
+---
+
 # Psalm 128
 
 **¹** A Song of the Ascents. O the happiness of every one fearing Jehovah, Who is walking in His ways.

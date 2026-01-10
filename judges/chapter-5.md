@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** And Deborah singeth — also Barak son of Abinoam — on that day, saying: —

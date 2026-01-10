@@ -1,3 +1,7 @@
+---
+weight: 45
+---
+
 # Psalm 45
 
 **¹** To the Overseer. — 'On the Lilies.' — By sons of Korah. — An Instruction. — A song of loves. My heart hath indited a good thing, I am telling my works to a king, My tongue [is] the pen of a speedy writer.

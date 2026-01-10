@@ -1,3 +1,7 @@
+---
+weight: 36
+---
+
 # Chapter 36
 
 **¹** And these [are] births of Esau, who [is] Edom.

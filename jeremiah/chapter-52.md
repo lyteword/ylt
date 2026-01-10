@@ -1,3 +1,7 @@
+---
+weight: 52
+---
+
 # Chapter 52
 
 **¹** A son of twenty and one years [is] Zedekiah in his reigning, and eleven years he hath reigned in Jerusalem, and the name of his mother [is] Hamutal daughter of Jeremiah of Libnah.

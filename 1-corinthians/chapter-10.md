@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** And I do not wish you to be ignorant, brethren, that all our fathers were under the cloud, and all passed through the sea,

@@ -1,3 +1,7 @@
+---
+weight: 41
+---
+
 # Chapter 41
 
 **¹** And he bringeth me in unto the temple, and he measureth the posts, six cubits the breadth on this side, and six cubits the breadth on that side — the breadth of the tent.

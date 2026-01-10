@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** In the twelfth year of Ahaz king of Judah reigned hath Hoshea son of Elah in Samaria, over Israel — nine years,

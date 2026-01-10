@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 **¹** And it cometh to pass after this, the sons of Moab have come in, and the sons of Ammon, and with them of the peoples, against Jehoshaphat to battle.

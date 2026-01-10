@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** An aged person thou mayest not rebuke, but be entreating as a father; younger persons as brethren;

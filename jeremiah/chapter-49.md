@@ -1,3 +1,7 @@
+---
+weight: 49
+---
+
 # Chapter 49
 
 **¹** Concerning the sons of Ammon: 'Thus said Jehovah: Sons — hath Israel none? heir — hath he none? Wherefore hath Malcam possessed Gad? And his people in its cities have dwelt?

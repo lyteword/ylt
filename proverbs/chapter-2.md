@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** My son, if thou dost accept my sayings, And my commands dost lay up with thee,

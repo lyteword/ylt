@@ -1,3 +1,7 @@
+---
+weight: 42
+---
+
 # Chapter 42
 
 **¹** And Job answereth Jehovah and saith: —

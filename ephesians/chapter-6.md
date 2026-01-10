@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** The children! obey your parents in the Lord, for this is righteous;

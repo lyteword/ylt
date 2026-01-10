@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** Stedfast [is] the word: If any one the oversight doth long for, a right work he desireth;

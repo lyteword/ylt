@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Burden of Nineveh. The Book of the Vision of Nahum the Elkoshite.

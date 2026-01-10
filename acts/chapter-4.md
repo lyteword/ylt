@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And as they are speaking unto the people, there came to them the priests, and the magistrate of the temple, and the Sadducees —

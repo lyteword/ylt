@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** And prophesied have the prophets, (Haggai the prophet, and Zechariah son of Iddo) unto the Jews who [are] in Judah and in Jerusalem, in the name of the God of Israel — unto them.

@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And God blesseth Noah, and his sons, and saith to them, 'Be fruitful, and multiply, and fill the earth;

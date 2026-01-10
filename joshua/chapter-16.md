@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And the lot for the sons of Joseph goeth out from Jordan [by] Jericho, to the waters of Jericho on the east, to the wilderness going up from Jericho in the hill-country of Beth-El,

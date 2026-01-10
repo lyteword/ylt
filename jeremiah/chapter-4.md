@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** If thou dost turn back, O Israel, An affirmation of Jehovah, unto Me turn back, And if thou dost turn aside Thine abominations from My face, Then thou dost not bemoan.

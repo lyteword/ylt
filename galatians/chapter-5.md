@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** In the freedom, then, with which Christ did make you free — stand ye, and be not held fast again by a yoke of servitude;

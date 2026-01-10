@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** And it cometh to pass, in the fourth year of Darius the king hath a word of Jehovah been unto Zechariah, in the fourth of the ninth month, in Chisleu.

@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** These things spake Jesus, and lifted up his eyes to the heaven, and said — 'Father, the hour hath come, glorify Thy Son, that Thy Son also may glorify Thee,

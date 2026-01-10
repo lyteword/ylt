@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And I say, 'Hear, I pray you, heads of Jacob, And ye judges of the house of Israel, Is it not for you to know the judgment?

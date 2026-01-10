@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** A beginning of the good news of Jesus Christ, Son of God.

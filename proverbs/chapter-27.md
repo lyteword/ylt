@@ -1,3 +1,7 @@
+---
+weight: 27
+---
+
 # Chapter 27
 
 **¹** Boast not thyself of to-morrow, For thou knowest not what a day bringeth forth.

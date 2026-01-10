@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And it hath come to pass, In the latter end of the days, The mount of the house of Jehovah Is established above the top of the mounts, And it hath been lifted up above the hills, And flowed unto it have peoples.

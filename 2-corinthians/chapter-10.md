@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** And I, Paul, myself, do call upon you — through the meekness and gentleness of the Christ — who in presence, indeed [am] humble among you, and being absent, have courage toward you,

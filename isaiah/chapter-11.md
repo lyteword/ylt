@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Chapter 11
 
 **¹** And a rod hath come out from the stock of Jesse, And a branch from his roots is fruitful.

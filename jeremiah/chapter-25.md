@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 **¹** The word that hath been unto Jeremiah concerning all the people of Judah, in the fourth year of Jehoiakim son of Josiah king of Judah, — it [is] the first year of Nebuchadrezzar king of Babylon, —

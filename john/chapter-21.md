@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** After these things did Jesus manifest himself again to the disciples on the sea of Tiberias, and he did manifest himself thus:

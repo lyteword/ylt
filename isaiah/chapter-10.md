@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** Woe [to] those decreeing decrees of iniquity, And writers who have prescribed perverseness.

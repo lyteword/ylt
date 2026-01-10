@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And it came to pass in those days, there went forth a decree from Caesar Augustus, that all the world be enrolled —

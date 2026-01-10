@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And Jehovah saith unto Joshua, 'Fear not, nor be affrighted, take with thee all the people of war, and rise, go up to Ai; see, I have given into thy hand the king of Ai, and his people, and his city, and his land,

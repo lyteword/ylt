@@ -1,3 +1,7 @@
+---
+weight: 49
+---
+
 # Chapter 49
 
 **¹** And Jacob calleth unto his sons and saith, 'Be gathered together, and I declare to you that which doth happen with you in the latter end of the days.

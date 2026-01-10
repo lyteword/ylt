@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** Dare any one of you, having a matter with the other, go to be judged before the unrighteous, and not before the saints?

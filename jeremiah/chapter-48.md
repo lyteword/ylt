@@ -1,3 +1,7 @@
+---
+weight: 48
+---
+
 # Chapter 48
 
 **¹** Concerning Moab: 'Thus said Jehovah of Hosts, God of Israel: Woe unto Nebo, for it is spoiled, Put to shame, captured hath been Kiriathaim, Put to shame hath been the high tower, Yea, it hath been broken down.

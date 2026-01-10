@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** If, then, any exhortation [is] in Christ, if any comfort of love, if any fellowship of spirit, if any bowels and mercies,

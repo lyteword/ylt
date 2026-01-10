@@ -1,3 +1,7 @@
+---
+weight: 36
+---
+
 # Chapter 36
 
 **¹** And Bezaleel, and Aholiab, and every wise-hearted man, in whom Jehovah hath given wisdom and understanding to know to do every work of the service of the sanctuary, have done according to all that Jehovah commanded.

@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** And these [are] the names of the sons of Israel who are coming into Egypt with Jacob; a man and his household have they come;

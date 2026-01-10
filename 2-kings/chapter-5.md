@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** And Naaman, head of the host of the king of Aram, was a great man before his lord, and accepted of face, for by him had Jehovah given salvation to Aram, and the man was mighty in valour — leprous.

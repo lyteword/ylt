@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And David saith, 'Is there yet any left to the house of Saul, and I do with him kindness because of Jonathan?'

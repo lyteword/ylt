@@ -1,3 +1,7 @@
+---
+weight: 87
+---
+
 # Psalm 87
 
 **¹** By sons of Korah. — A Psalm, a song. His foundation [is] in holy mountains.

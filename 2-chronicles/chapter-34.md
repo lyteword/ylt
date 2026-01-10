@@ -1,3 +1,7 @@
+---
+weight: 34
+---
+
 # Chapter 34
 
 **¹** A son of eight years [is] Josiah in his reigning, and thirty and one years he hath reigned in Jerusalem,

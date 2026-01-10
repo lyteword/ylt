@@ -1,3 +1,7 @@
+---
+weight: 19
+---
+
 # Chapter 19
 
 **¹** And it cometh to pass, in those days, when there is no king in Israel, that there is a man a Levite, a sojourner in the sides of the hill-country of Ephraim, and he taketh to him a wife, a concubine, out of Beth-Lehem-Judah;

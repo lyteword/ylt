@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And the sum concerning the things spoken of [is]: we have such a chief priest, who did sit down at the right hand of the throne of the greatness in the heavens,

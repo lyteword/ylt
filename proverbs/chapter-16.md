@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** Of man [are] arrangements of the heart, And from Jehovah an answer of the tongue.

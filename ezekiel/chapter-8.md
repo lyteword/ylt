@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And it cometh to pass, in the sixth year, in the sixth [month], in the fifth of the month, I am sitting in my house, and elders of Judah are sitting before me, and fall on me there doth a hand of the Lord Jehovah,

@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 **¹** And all the people of Judah take Uzziah (and he [is] a son of sixteen years), and cause him to reign instead of his father Amaziah.

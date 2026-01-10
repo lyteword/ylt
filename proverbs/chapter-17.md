@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** Better [is] a dry morsel, and rest with it, Than a house full of the sacrifices of strife.

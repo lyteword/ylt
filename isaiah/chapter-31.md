@@ -1,3 +1,7 @@
+---
+weight: 31
+---
+
 # Chapter 31
 
 **¹** Woe [to] those going down to Egypt for help, And on horses lean, And trust on chariots, because many, And on horsemen, because very strong, And have not looked on the Holy One of Israel, And Jehovah have not sought.

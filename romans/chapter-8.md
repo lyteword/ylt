@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** There is, then, now no condemnation to those in Christ Jesus, who walk not according to the flesh, but according to the Spirit;

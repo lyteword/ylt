@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 **¹** And Joshua gathereth all the tribes of Israel to Shechem, and calleth for the elders of Israel, and for its heads, and for its judges, and for its authorities, and they station themselves before God.

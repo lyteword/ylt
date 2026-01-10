@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** And a certain man, Ananias by name, with Sapphira his wife, sold a possession,

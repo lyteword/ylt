@@ -1,3 +1,7 @@
+---
+weight: 34
+---
+
 # Chapter 34
 
 **¹** And Dinah, daughter of Leah, whom she hath borne to Jacob, goeth out to look on the daughters of the land,

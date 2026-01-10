@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And taken hold have seven women on one man, In that day, saying, 'Our own bread we do eat, And our own raiment we put on, Only, let thy name be called over us, Remove thou our reproach.'

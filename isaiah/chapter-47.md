@@ -1,3 +1,7 @@
+---
+weight: 47
+---
+
 # Chapter 47
 
 **¹** Come down, and sit on the dust, O virgin daughter of Babylon, Sit on the earth, there is no throne, O daughter of the Chaldeans, For no more do they cry to thee, 'O tender and delicate one.'

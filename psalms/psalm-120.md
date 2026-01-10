@@ -1,3 +1,7 @@
+---
+weight: 120
+---
+
 # Psalm 120
 
 **¹** A Song of the Ascents. Unto Jehovah in my distress I have called, And He answereth me.

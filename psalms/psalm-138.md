@@ -1,3 +1,7 @@
+---
+weight: 138
+---
+
 # Psalm 138
 
 **¹** By David. I confess Thee, with all my heart, Before the gods I do praise Thee.

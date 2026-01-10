@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 **¹** And it cometh to pass after these things that God hath tried Abraham, and saith unto him, 'Abraham;' and he saith, 'Here [am] I.'

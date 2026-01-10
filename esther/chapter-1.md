@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** And it cometh to pass, in the days of Ahasuerus — he [is] Ahasuerus who is reigning from Hodu even unto Cush, seven and twenty and a hundred provinces —

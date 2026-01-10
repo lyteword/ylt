@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** In the second year of Joash son of Jehoahaz king of Israel reigned hath Amaziah son of Joash king of Judah;

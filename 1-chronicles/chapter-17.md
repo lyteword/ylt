@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** And it cometh to pass as David sat in his house, that David saith unto Nathan the prophet, 'Lo, I am dwelling in a house of cedars, and the ark of the covenant of Jehovah [is] under curtains;'

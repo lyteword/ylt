@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** The sin of Judah is written with a pen of iron, With the point of a diamond, Graven on the tablet of their heart, And on the horns of your altars,

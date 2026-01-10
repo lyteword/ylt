@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** 'In the third year of the reign of Belshazzar the king, a vision hath appeared unto me — I Daniel — after that which had appeared unto me at the beginning.

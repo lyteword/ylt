@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** When Ephraim speaketh tremblingly, He hath been lifted up in Israel, When he becometh guilty in Baal he dieth.

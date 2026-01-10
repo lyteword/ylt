@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** And the sons of Aaron, Nadab and Abihu, take each his censer, and put in them fire, and put on it perfume, and bring near before Jehovah strange fire, which He hath not commanded them;

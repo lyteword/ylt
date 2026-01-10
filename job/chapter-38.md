@@ -1,3 +1,7 @@
+---
+weight: 38
+---
+
 # Chapter 38
 
 **¹** And Jehovah answereth Job out of the whirlwind, and saith: —

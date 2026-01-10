@@ -1,3 +1,7 @@
+---
+weight: 46
+---
+
 # Chapter 46
 
 **¹** That which hath been the word of Jehovah unto Jeremiah the prophet concerning the nations,

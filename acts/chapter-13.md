@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** And there were certain in Antioch, in the assembly there, prophets and teachers; both Barnabas, and Simeon who is called Niger, and Lucius the Cyrenian, Manaen also — Herod the tetrarch's foster-brother — and Saul;

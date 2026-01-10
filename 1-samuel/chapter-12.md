@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** And Samuel saith unto all Israel, 'Lo, I have hearkened to your voice, to all that ye said to me, and I cause to reign over you a king,

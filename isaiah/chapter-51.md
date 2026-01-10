@@ -1,3 +1,7 @@
+---
+weight: 51
+---
+
 # Chapter 51
 
 **¹** Hearken unto Me, ye pursuing righteousness, Seeking Jehovah, Look attentively unto the rock — ye have been hewn, And unto the hole of the pit — ye have been digged.

@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** 'And when a person doth sin, and hath heard the voice of an oath, and he [is] witness, or hath seen, or hath known — if he declare not, then he hath borne his iniquity:

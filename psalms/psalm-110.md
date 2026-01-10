@@ -1,3 +1,7 @@
+---
+weight: 110
+---
+
 # Psalm 110
 
 **¹** A Psalm of David. The affirmation of Jehovah to my Lord: 'Sit at My right hand, Till I make thine enemies thy footstool.'

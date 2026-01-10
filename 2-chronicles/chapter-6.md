@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** Then said Solomon, 'Jehovah said — to dwell in thick darkness,

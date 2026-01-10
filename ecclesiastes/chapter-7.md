@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** Better [is] a name than good perfume, And the day of death than the day of birth.

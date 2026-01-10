@@ -1,3 +1,7 @@
+---
+weight: 30
+---
+
 # Chapter 30
 
 **¹** Woe [to] apostate sons, The affirmation of Jehovah! To do counsel, and not from Me, And to spread out a covering, and not of My spirit, So as to add sin to sin.

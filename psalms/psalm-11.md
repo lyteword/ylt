@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Psalm 11
 
 **¹** To the Overseer. — By David. In Jehovah I trusted, how say ye to my soul, 'They moved [to] Thy mountain for the bird?

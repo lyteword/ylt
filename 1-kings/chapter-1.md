@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** And king David [is] old, entering into days, and they cover him with garments, and he hath no heat,

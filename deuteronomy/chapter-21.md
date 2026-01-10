@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** 'When one is found slain on the ground which Jehovah thy God is giving to thee to possess it — fallen in a field — it is not known who hath smitten him,

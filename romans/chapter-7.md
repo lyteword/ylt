@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** Are ye ignorant, brethren — for to those knowing law I speak — that the law hath lordship over the man as long as he liveth?

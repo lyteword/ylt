@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And Jehovah saith unto Moses, 'Go in unto Pharaoh, and thou hast spoken unto him, Thus said Jehovah, God of the Hebrews, Send My people away, and they serve me,

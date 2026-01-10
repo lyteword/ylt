@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And Jehovah saith unto Moses, 'Go in unto Pharaoh: and thou hast said unto him, Thus said Jehovah, Send My people away, and they serve Me;

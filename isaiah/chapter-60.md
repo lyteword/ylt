@@ -1,3 +1,7 @@
+---
+weight: 60
+---
+
 # Chapter 60
 
 **¹** Arise, be bright, for come hath thy light, And the honour of Jehovah hath risen on thee.

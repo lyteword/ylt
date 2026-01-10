@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** And Hiram king of Tyre sendeth his servants unto Solomon, for he heard that they had anointed him for king instead of his father, for Hiram was a lover of David all the days;

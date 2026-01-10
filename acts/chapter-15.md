@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** And certain having come down from Judea, were teaching the brethren — 'If ye be not circumcised after the custom of Moses, ye are not able to be saved;'

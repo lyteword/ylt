@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** On that day there was read in the book of Moses, in the ears of the people, and it hath been found written in it that an Ammonite and Moabite doth not come into the assembly of God — unto the age,

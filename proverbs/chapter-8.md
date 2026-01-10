@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** Doth not wisdom call? And understanding give forth her voice?

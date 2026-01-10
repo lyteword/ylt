@@ -1,3 +1,7 @@
+---
+weight: 33
+---
+
 # Chapter 33
 
 **¹** And there is a word of Jehovah unto Jeremiah a second time — and he [is] yet detained in the court of the prison — saying:

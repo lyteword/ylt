@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And these [are] the nations which Jehovah left, to try Israel by them, all who have not known all the wars of Canaan;

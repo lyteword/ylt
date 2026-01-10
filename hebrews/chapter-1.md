@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** In many parts, and many ways, God of old having spoken to the fathers in the prophets,

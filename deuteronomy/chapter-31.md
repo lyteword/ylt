@@ -1,3 +1,7 @@
+---
+weight: 31
+---
+
 # Chapter 31
 
 **¹** And Moses goeth and speaketh these words unto all Israel,

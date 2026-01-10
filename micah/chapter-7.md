@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** My woe [is] to me, for I have been As gatherings of summer-fruit, As gleanings of harvest, There is no cluster to eat, The first-ripe fruit desired hath my soul.

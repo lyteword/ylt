@@ -1,3 +1,7 @@
+---
+weight: 93
+---
+
 # Psalm 93
 
 **¹** Jehovah hath reigned, Excellency He hath put on, Jehovah put on strength, He girded Himself, Also — established is the world, unmoved.

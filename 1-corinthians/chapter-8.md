@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And concerning the things sacrificed to idols, we have known that we all have knowledge: knowledge puffeth up, but love buildeth up;

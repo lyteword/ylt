@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** And the king cometh in, and Haman, to drink with Esther the queen,

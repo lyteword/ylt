@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** Proverbs of Solomon. A wise son causeth a father to rejoice, And a foolish son [is] an affliction to his mother.

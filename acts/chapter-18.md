@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 **¹** And after these things, Paul having departed out of Athens, came to Corinth,

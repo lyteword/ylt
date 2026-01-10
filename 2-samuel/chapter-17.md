@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** And Ahithophel said unto Absalom, 'Let me choose, I pray thee, twelve thousand men, and I arise and pursue after David to-night,

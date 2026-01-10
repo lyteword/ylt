@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 **¹** And David goeth thence, and is escaped unto the cave of Adullam, and his brethren hear, and all the house of his father, and go down unto him thither;

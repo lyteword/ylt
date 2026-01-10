@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Chapter 26
 
 **¹** As snow in summer, and as rain in harvest, So honour [is] not comely for a fool.

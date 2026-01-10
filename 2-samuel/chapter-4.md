@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And the son of Saul heareth that Abner [is] dead in Hebron, and his hands are feeble, and all Israel have been troubled.

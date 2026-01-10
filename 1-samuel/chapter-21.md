@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** And David cometh in to Nob, unto Ahimelech the priest, and Ahimelech trembleth at meeting David, and saith to him, 'Wherefore [art] thou thyself alone, and no man with thee?'

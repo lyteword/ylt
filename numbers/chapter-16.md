@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And Korah, son of Izhar, son of Kohath, son of Levi, taketh both Dathan and Abiram sons of Eliab, and On son of Peleth, sons of Reuben,

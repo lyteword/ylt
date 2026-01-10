@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** We may fear, then, lest a promise being left of entering into His rest, any one of you may seem to have come short,

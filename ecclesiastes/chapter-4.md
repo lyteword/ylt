@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And I have turned, and I see all the oppressions that are done under the sun, and lo, the tear of the oppressed, and they have no comforter; and at the hand of their oppressors [is] power, and they have no comforter.

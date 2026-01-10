@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** 'Hear, Israel, thou art passing over to-day the Jordan, to go in to possess nations greater and mightier than thyself; cities great and fenced in the heavens;

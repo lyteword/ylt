@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** And it cometh to pass when all the kings of the Amorite which [are] beyond the Jordan, towards the sea, and all the kings of the Canaanite which [are] by the sea, hear how that Jehovah hath dried up the waters of the Jordan at the presence of the sons of Israel till their passing over, that their heart is melted, and there hath not been in them any more spirit because of the presence of the sons of Israel.

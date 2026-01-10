@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** Wherefore, having left the word of the beginning of the Christ, unto the perfection we may advance, not again a foundation laying of reformation from dead works, and of faith on God,

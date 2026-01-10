@@ -1,3 +1,7 @@
+---
+weight: 67
+---
+
 # Psalm 67
 
 **¹** To the Overseer, with stringed instruments. — A Psalm, a Song. God doth favour us and bless us, Doth cause His face to shine with us. Selah.

@@ -1,3 +1,7 @@
+---
+weight: 41
+---
+
 # Chapter 41
 
 **¹** Keep silent towards Me, O isles, And the peoples pass on [to] power, They come nigh, then they speak, 'Together — to judgment we draw near.'

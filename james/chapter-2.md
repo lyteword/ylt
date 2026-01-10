@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** My brethren, hold not, in respect of persons, the faith of the glory of our Lord Jesus Christ,

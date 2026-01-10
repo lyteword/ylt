@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** Go to and fro in streets of Jerusalem, And see, I pray you, and know, And seek in her broad places, if ye find a man, If there be one doing judgment, seeking stedfastness — Then am I propitious to her.

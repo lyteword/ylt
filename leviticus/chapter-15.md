@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** And Jehovah speaketh unto Moses, and unto Aaron, saying,

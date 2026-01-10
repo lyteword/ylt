@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** And the ark of Jehovah is in the field of the Philistines seven months,

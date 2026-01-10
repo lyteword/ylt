@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** And there is a famine in the days of David three years, year after year, and David seeketh the face of Jehovah, and Jehovah saith, 'For Saul and for the bloody house, because that he put to death the Gibeonites.'

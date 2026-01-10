@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And it cometh to pass on the eighth day, Moses hath called for Aaron and for his sons, and for the elders of Israel,

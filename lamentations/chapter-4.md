@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** How is the gold become dim, Changed the best — the pure gold? Poured out are stones of the sanctuary At the head of all out-places.

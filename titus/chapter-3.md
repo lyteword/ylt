@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** Remind them to be subject to principalities and authorities, to obey rule, unto every good work to be ready,

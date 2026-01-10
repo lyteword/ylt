@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 **¹** 'For the reign of the heavens is like to a man, a householder, who went forth with the morning to hire workmen for his vineyard,

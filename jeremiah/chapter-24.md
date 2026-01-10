@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 **¹** Jehovah hath shewed me, and lo, two baskets of figs, appointed before the temple of Jehovah, — after the removing by Nebuchadrezzar king of Babylon, of Jeconiah, son of Jehoiakim king of Judah, and the heads of Judah, and the artisan, and the smith, from Jerusalem, when he bringeth them into Babylon —

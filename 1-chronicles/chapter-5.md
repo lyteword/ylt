@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** As to sons of Reuben, first-born of Israel — for he [is] the first-born, and on account of his profaning the couch of his father hath his birthright been given to the sons of Joseph son of Israel, and [he is] not to be reckoned by genealogy for the birthright,

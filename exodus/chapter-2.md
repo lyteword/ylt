@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And there goeth a man of the house of Levi, and he taketh the daughter of Levi,

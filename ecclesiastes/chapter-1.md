@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Words of a preacher, son of David, king in Jerusalem:

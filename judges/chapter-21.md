@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** And the men of Israel have sworn in Mizpeh, saying, 'None of us doth give his daughter to Benjamin for a wife.'

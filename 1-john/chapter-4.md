@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** Beloved, every spirit believe not, but prove the spirits, if of God they are, because many false prophets have gone forth to the world;

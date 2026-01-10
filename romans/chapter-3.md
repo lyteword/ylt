@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** What, then, [is] the superiority of the Jew? or what the profit of the circumcision?

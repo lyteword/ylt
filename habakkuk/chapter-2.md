@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** On my charge I stand, and I station myself on a bulwark, and I watch to see what He doth speak against me, and what I do reply to my reproof.

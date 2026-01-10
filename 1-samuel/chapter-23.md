@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Chapter 23
 
 **¹** And they declare to David, saying, 'Lo, the Philistines are fighting against Keilah, and they are spoiling the threshing-floors.'

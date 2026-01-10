@@ -1,3 +1,7 @@
+---
+weight: 42
+---
+
 # Psalm 42
 
 **¹** To the Overseer. — An Instruction. By sons of Korah. As a hart doth pant for streams of water, So my soul panteth toward Thee, O God.

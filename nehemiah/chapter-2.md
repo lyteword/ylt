@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And it cometh to pass, in the month of Nisan, the twentieth year of Artaxerxes the king, wine [is] before him, and I lift up the wine, and give to the king, and I had not been sad before him;

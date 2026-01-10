@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** And Miriam speaketh — Aaron also — against Moses concerning the circumstance of the Cushite woman whom he had taken: for a Cushite woman he had taken;

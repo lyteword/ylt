@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** 'At that time hath Jehovah said unto me, Grave for thee two tables of stone, like the first, and come up unto Me, into the mount, and thou hast made for thee an ark of wood,

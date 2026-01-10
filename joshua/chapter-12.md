@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** And these [are] kings of the land whom the sons of Israel have smitten, and possess their land, beyond the Jordan, at the sun-rising, from the brook Arnon unto mount Hermon, and all the plain eastward.

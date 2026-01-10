@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** On my couch by night, I sought him whom my soul hath loved; I sought him, and I found him not!

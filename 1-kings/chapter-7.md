@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** And his own house hath Solomon built thirteen years, and he finisheth all his house.

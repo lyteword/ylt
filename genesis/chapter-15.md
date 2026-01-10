@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** After these things hath the word of Jehovah been unto Abram in a vision, saying, 'Fear not, Abram, I [am] a shield to thee, thy reward [is] exceeding great.'

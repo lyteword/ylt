@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And Hannah prayeth, and saith: 'My heart hath exulted in Jehovah, My horn hath been high in Jehovah, My mouth hath been large over mine enemies, For I have rejoiced in Thy salvation.

@@ -1,3 +1,7 @@
+---
+weight: 47
+---
+
 # Chapter 47
 
 **¹** That which hath been the word of Jehovah unto Jeremiah concerning the Philistines, before Pharaoh smiteth Gaza:

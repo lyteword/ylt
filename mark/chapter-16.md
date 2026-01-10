@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And the sabbath having past, Mary the Magdalene, and Mary of James, and Salome, bought spices, that having come, they may anoint him,

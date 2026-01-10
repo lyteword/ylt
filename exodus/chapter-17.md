@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** And all the company of the sons of Israel journey from the wilderness of Sin, on their journeyings, by the command of Jehovah, and encamp in Rephidim, and there is no water for the people to drink;

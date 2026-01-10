@@ -1,3 +1,7 @@
+---
+weight: 31
+---
+
 # Chapter 31
 
 **¹** And at the completion of all this, gone out have all Israel who are found present to the cities of Judah, and break the standing-pillars, and cut down the shrines, and break down the high places and the altars, out of all Judah and Benjamin, and in Ephraim and Manasseh, even to completion, and all the sons of Israel turn back, each to his Possession, to their cities.

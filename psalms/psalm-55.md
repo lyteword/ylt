@@ -1,3 +1,7 @@
+---
+weight: 55
+---
+
 # Psalm 55
 
 **¹** To the Overseer with stringed instruments. — An instruction, by David. Give ear, O God, [to] my prayer, And hide not from my supplication.

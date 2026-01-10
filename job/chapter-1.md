@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** A man there hath been in the land of Uz — Job his name — and that man hath been perfect and upright — both fearing God, and turning aside from evil.

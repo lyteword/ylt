@@ -1,3 +1,7 @@
+---
+weight: 29
+---
+
 # Chapter 29
 
 **¹** In the tenth year, in the tenth [month], in the twelfth of the month, hath a word of Jehovah been unto me, saying,

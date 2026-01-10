@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And he said to them, 'Verily I say to you, That there are certain of those standing here, who may not taste of death till they see the reign of God having come in power.'

@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** The word that hath been unto Jeremiah from Jehovah, in the king Zedekiah's sending unto him Pashhur son of Malchiah, and Zephaniah son of Maaseiah the priest, saying,

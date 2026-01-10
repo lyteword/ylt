@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** And Samuel taketh the vial of the oil, and poureth on his head, and kisseth him, and saith, 'Is it not because Jehovah hath appointed thee over His inheritance for leader?

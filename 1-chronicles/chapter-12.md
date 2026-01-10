@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** And these [are] those coming in unto David to Ziklag, while shut up because of Saul son of Kish, and they [are] among the mighty ones, helping the battle,

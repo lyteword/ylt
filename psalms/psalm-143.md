@@ -1,3 +1,7 @@
+---
+weight: 143
+---
+
 # Psalm 143
 
 **¹** A Psalm of David. O Jehovah, hear my prayer, Give ear unto my supplications, In Thy faithfulness answer me — in Thy righteousness.

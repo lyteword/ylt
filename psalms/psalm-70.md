@@ -1,3 +1,7 @@
+---
+weight: 70
+---
+
 # Psalm 70
 
 **¹** To the Overseer, by David. — 'To cause to remember.' O God, to deliver me, O Jehovah, for my help, haste.

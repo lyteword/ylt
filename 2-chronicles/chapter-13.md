@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** In the eighteenth year of king Jeroboam — Abijah reigneth over Judah;

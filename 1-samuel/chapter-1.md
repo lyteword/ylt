@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** And there is a certain man of Ramathaim-Zophim, of the hill-country of Ephraim, and his name [is] Elkanah, son of Jeroham, son of Elihu, son of Tohu, son of Zuph, and Ephrathite,

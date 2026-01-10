@@ -1,3 +1,7 @@
+---
+weight: 58
+---
+
 # Chapter 58
 
 **¹** Call with the throat, restrain not, As a trumpet lift up thy voice, And declare to My people their transgression, And to the house of Jacob their sins;

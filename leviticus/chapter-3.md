@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** 'And if his offering [is] a sacrifice of peace-offerings, if out of the herd he is bringing near, whether male or female, a perfect one he doth bring near before Jehovah,

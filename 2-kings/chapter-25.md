@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 **¹** And it cometh to pass, in the ninth year of his reign, in the tenth month, in the tenth of the month, come hath Nebuchadnezzar king of Babylon, he and all his force, against Jerusalem, and encampeth against it, and buildeth against it a fortification round about.

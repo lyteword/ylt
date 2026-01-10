@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And it cometh to pass afterwards, that David asketh at Jehovah, saying, 'Do I go up into one of the cities of Judah?' and Jehovah saith unto him, 'Go up.' And David saith, 'Whither do I go up?' and He saith, 'To Hebron.'

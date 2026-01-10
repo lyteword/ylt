@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Psalm 21
 
 **¹** To the Overseer. — A Psalm of David. Jehovah, in Thy strength is the king joyful, In Thy salvation how greatly he rejoiceth.

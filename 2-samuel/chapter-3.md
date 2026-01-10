@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And the war is long between the house of Saul and the house of David, and David is going on and [is] strong, and the house of Saul are going on and [are] weak.

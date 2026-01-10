@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** And Rehoboam goeth to Shechem, for to Shechem hath all Israel come to make him king.

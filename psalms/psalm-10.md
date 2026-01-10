@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Psalm 10
 
 **¹** Why, Jehovah, dost Thou stand at a distance? Thou dost hide in times of adversity,

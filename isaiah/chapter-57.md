@@ -1,3 +1,7 @@
+---
+weight: 57
+---
+
 # Chapter 57
 
 **¹** The righteous hath perished, And there is none laying [it] to heart, And men of kindness are gathered, Without any considering that from the face of evil Gathered is the righteous one.

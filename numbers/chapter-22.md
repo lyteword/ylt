@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 **¹** And the sons of Israel journey and encamp in the plains of Moab, beyond the Jordan, [by] Jericho.

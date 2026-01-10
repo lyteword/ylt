@@ -1,3 +1,7 @@
+---
+weight: 113
+---
+
 # Psalm 113
 
 **¹** Praise ye Jah! Praise, ye servants of Jehovah. Praise the name of Jehovah.

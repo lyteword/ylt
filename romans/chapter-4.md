@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** What, then, shall we say Abraham our father, to have found, according to flesh?

@@ -1,3 +1,7 @@
+---
+weight: 36
+---
+
 # Psalm 36
 
 **¹** To the Overseer. — By a servant of Jehovah, by David. The transgression of the wicked Is affirming within my heart, 'Fear of God is not before his eyes,

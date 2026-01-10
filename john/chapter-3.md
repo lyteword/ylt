@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And there was a man of the Pharisees, Nicodemus his name, a ruler of the Jews,

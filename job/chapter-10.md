@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** My soul hath been weary of my life, I leave off my talking to myself, I speak in the bitterness of my soul.

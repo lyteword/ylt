@@ -1,3 +1,7 @@
+---
+weight: 35
+---
+
 # Chapter 35
 
 **¹** And Jehovah speaketh unto Moses, in the plains of Moab, by Jordan, [near] Jericho, saying,

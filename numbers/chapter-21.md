@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** And the Canaanite — king Arad — dwelling in the south, heareth that Israel hath come the way of the Atharim, and he fighteth against Israel, and taketh [some] of them captive.

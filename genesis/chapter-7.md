@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Chapter 7
 
 **¹** And Jehovah saith to Noah, 'Come in, thou and all thy house, unto the ark, for thee I have seen righteous before Me in this generation;

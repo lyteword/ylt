@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And Jehovah speaketh unto Moses, and unto Aaron, saying,

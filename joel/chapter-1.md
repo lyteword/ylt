@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** A word of Jehovah that hath been unto Joel, son of Pethuel:

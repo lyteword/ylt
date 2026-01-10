@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 **¹** The word that hath been unto Jeremiah from Jehovah, saying,

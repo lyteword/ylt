@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Words of Nehemiah son of Hachaliah. And it cometh to pass, in the month of Chisleu, the twentieth year, and I have been in Shushan the palace,

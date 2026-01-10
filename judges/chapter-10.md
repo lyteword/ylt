@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** And there riseth after Abimelech, to save Israel, Tola son of Puah, son of Dodo, a man of Issachar, and he is dwelling in Shamir, in the hill-country of Ephraim,

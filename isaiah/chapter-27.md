@@ -1,3 +1,7 @@
+---
+weight: 27
+---
+
 # Chapter 27
 
 **¹** In that day lay a charge doth Jehovah, With his sword — the sharp, and the great, and the strong, On leviathan — a fleeing serpent, And on leviathan — a crooked serpent, And He hath slain the dragon that [is] in the sea.

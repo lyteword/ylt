@@ -1,3 +1,7 @@
+---
+weight: 145
+---
+
 # Psalm 145
 
 **¹** Praise by David. I exalt Thee, my God, O king, And bless Thy name to the age and for ever.

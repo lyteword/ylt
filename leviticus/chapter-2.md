@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** 'And when a person bringeth near an offering, a present to Jehovah, of flour is his offering, and he hath poured on it oil, and hath put on it frankincense;

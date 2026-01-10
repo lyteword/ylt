@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** For, lo, the day hath come, burning as a furnace, And all the proud, and every wicked doer, have been stubble, And burnt them hath the day that came, Said Jehovah of Hosts, That there is not left to them root or branch,

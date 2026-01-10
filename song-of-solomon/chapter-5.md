@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** I have come in to my garden, my sister-spouse, I have plucked my myrrh with my spice, I have eaten my comb with my honey, I have drunk my wine with my milk. Eat, O friends, drink, Yea, drink abundantly, O beloved ones!

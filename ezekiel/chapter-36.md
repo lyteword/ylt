@@ -1,3 +1,7 @@
+---
+weight: 36
+---
+
 # Chapter 36
 
 **¹** And thou, son of man, prophesy unto mountains of Israel, and thou hast said, O mountains of Israel, hear a word of Jehovah.

@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** As to the rest, pray ye, brethren, concerning us, that the word of the Lord may run and may be glorified, as also with you,

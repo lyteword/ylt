@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** 'And thou, son of man, take to thee a sharp weapon, the barber's razor thou dost take to thee, and thou hast caused [it] to pass over thy head, and over thy beard, and thou hast taken to thee weighing scales, and apportioned them.

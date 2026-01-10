@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And He crieth in mine ears — a loud voice — saying, 'Drawn near have inspectors of the city, and each his destroying weapon in his hand.'

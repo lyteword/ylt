@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** And the king Ahasuerus setteth a tribute on the land and the isles of the sea;

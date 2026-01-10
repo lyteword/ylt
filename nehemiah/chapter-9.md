@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And in the twenty and fourth day of this month have the sons of Israel been gathered, with fasting, and with sackcloth, and earth upon them;

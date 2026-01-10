@@ -1,3 +1,7 @@
+---
+weight: 108
+---
+
 # Psalm 108
 
 **¹** A Song, a Psalm of David. Prepared is my heart, O God, I sing, yea, I sing praise, also my honour.

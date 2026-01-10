@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** And Elijah the Tishbite, of the inhabitants of Gilead, saith unto Ahab, 'Jehovah, God of Israel, liveth, before whom I have stood, there is not these years dew and rain, except according to my word.'

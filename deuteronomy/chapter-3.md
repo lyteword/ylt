@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** 'And we turn, and go up the way to Bashan, and Og king of Bashan cometh out to meet us, he and all his people, to battle, [to] Edrei.

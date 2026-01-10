@@ -1,3 +1,7 @@
+---
+weight: 44
+---
+
 # Chapter 44
 
 **¹** The word that hath been unto Jeremiah concerning all the Jews who are dwelling in the land of Egypt — who are dwelling in Migdol, and in Tahpanhes, and in Noph, and in the land of Pathros — saying,

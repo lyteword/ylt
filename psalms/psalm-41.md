@@ -1,3 +1,7 @@
+---
+weight: 41
+---
+
 # Psalm 41
 
 **¹** To the Overseer. — A Psalm of David. O the happiness of him Who is acting wisely unto the poor, In a day of evil doth Jehovah deliver him.

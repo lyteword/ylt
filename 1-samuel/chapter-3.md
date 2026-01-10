@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And the youth Samuel is serving Jehovah before Eli, and the word of Jehovah hath been precious in those days — there is no vision broken forth.

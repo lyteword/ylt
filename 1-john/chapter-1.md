@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** That which was from the beginning, that which we have heard, that which we have seen with our eyes, that which we did behold, and our hands did handle, concerning the Word of the Life —

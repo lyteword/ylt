@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** And there is a man of the hill-country of Ephraim, and his name [is] Micah,

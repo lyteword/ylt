@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And there is a man of Benjamin, and his name [is] Kish, son of Abiel, son of Zeror, son of Bechorath, son of Aphiah, a Benjamite, mighty of valour,

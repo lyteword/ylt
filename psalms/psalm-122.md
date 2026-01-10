@@ -1,3 +1,7 @@
+---
+weight: 122
+---
+
 # Psalm 122
 
 **¹** A Song of the Ascents, by David. I have rejoiced in those saying to me, 'To the house of Jehovah we go.'

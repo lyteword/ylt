@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** After these things Jesus went away beyond the sea of Galilee (of Tiberias),

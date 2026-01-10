@@ -1,3 +1,7 @@
+---
+weight: 97
+---
+
 # Psalm 97
 
 **¹** Jehovah hath reigned, The earth is joyful, many isles rejoice.

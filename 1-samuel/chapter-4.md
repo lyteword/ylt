@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And the word of Samuel is to all Israel, and Israel goeth out to meet the Philistines for battle, and they encamp by Eben-Ezer, and the Philistines have encamped in Aphek,

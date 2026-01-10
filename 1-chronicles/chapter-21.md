@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Chapter 21
 
 **¹** And there standeth up an adversary against Israel, and persuadeth David to number Israel,

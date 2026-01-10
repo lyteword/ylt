@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** 'Thou dost not sacrifice to Jehovah thy God ox or sheep in which there is a blemish — any evil thing; for it [is] the abomination of Jehovah thy God.

@@ -1,3 +1,7 @@
+---
+weight: 64
+---
+
 # Psalm 64
 
 **¹** To the Overseer. — A Psalm of David. Hear, O God, my voice, in my meditation, From the fear of an enemy Thou keepest my life,

@@ -1,3 +1,7 @@
+---
+weight: 30
+---
+
 # Chapter 30
 
 **¹** 'And thou hast made an altar [for] making perfume; [of] shittim wood thou dost make it;

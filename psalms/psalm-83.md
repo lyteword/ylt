@@ -1,3 +1,7 @@
+---
+weight: 83
+---
+
 # Psalm 83
 
 **¹** A Song, — A Psalm of Asaph. O God, let there be no silence to Thee, Be not silent, nor be quiet, O God.

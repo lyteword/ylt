@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And Jehovah speaketh unto Moses, in the wilderness of Sinai, in the second year of their going out of the land of Egypt, in the first month, saying,

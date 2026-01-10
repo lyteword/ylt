@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** Thus hath the Lord Jehovah shewed me, and, lo, a basket of summer-fruit.

@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And Sarai, Abram's wife, hath not borne to him, and she hath an handmaid, an Egyptian, and her name [is] Hagar;

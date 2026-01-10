@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** And it cometh to pass, at the establishing of the kingdom of Rehoboam, and at his strengthening himself, he hath forsaken the law of Jehovah, and all Israel with him.

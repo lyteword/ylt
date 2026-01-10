@@ -1,3 +1,7 @@
+---
+weight: 46
+---
+
 # Chapter 46
 
 **¹** And Israel journeyeth, and all that he hath, and cometh in to Beer-Sheba, and sacrificeth sacrifices to the God of his father Isaac;

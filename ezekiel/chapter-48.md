@@ -1,3 +1,7 @@
+---
+weight: 48
+---
+
 # Chapter 48
 
 **¹** And these [are] the names of the tribes: From the north end unto the side of the way of Hethlon, at the coming in to Hamath, Hazar-Enan, the border of Damascus northward, unto the side of Hamath, and they have been his — side east and west, Dan one,

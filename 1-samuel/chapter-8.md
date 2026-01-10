@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And it cometh to pass, when Samuel [is] aged, that he maketh his sons judges over Israel.

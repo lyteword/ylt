@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Chapter 15
 
 **¹** And I make known to you, brethren, the good news that I proclaimed to you, which also ye did receive, in which also ye have stood,

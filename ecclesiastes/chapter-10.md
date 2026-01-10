@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** Dead flies cause a perfumer's perfume To send forth a stink; The precious by reason of wisdom — By reason of honour — a little folly!

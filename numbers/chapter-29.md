@@ -1,3 +1,7 @@
+---
+weight: 29
+---
+
 # Chapter 29
 
 **¹** 'And in the seventh month, in the first of the month, a holy convocation ye have, ye do no servile work; a day of shouting it is to you;

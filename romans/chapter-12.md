@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** I call upon you, therefore, brethren, through the compassions of God, to present your bodies a sacrifice — living, sanctified, acceptable to God — your intelligent service;

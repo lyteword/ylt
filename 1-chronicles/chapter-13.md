@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** And David consulteth with the heads of the thousands, and of the hundreds, every leader,

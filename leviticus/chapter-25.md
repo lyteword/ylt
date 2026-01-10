@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Chapter 25
 
 **¹** And Jehovah speaketh unto Moses, in mount Sinai, saying,

@@ -1,3 +1,7 @@
+---
+weight: 27
+---
+
 # Chapter 27
 
 **¹** 'And Moses — the elders of Israel also — commandeth the people, saying, Keep all the command which I am commanding you to-day;

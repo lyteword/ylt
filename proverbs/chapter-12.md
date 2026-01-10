@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Chapter 12
 
 **¹** Whoso is loving instruction, is loving knowledge, And whoso is hating reproof [is] brutish.

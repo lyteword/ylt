@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And Elisha spake unto the woman whose son he had revived, saying, 'Rise and go, thou and thy household, and sojourn where thou dost sojourn, for Jehovah hath called for a famine, and also, it is coming unto the land seven years.'

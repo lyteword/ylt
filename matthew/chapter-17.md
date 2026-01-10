@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Chapter 17
 
 **¹** And after six days Jesus taketh Peter, and James, and John his brother, and doth bring them up to a high mount by themselves,

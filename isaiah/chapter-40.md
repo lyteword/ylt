@@ -1,3 +1,7 @@
+---
+weight: 40
+---
+
 # Chapter 40
 
 **¹** Comfort ye, comfort ye, My people, saith your God.

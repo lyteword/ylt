@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Chapter 14
 
 **¹** Lo, a day hath come to Jehovah, And divided hath been thy spoil in thy midst.

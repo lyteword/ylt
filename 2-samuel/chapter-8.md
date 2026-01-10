@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And it cometh to pass afterwards that David smiteth the Philistines, and humbleth them, and David taketh the bridle of the metropolis out of the hand of the Philistines.

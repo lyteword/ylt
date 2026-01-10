@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 **¹** Lo, Jehovah is emptying the land, And is making it waste, And hath overturned [it on] its face, And hath scattered its inhabitants.

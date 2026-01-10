@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 **¹** A son of eight years [is] Josiah in his reigning, and thirty and one years he hath reigned in Jerusalem, and the name of his mother [is] Jedidah daughter of Adaiah of Boskath,

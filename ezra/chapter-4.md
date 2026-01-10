@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** And adversaries of Judah and Benjamin hear that the sons of the captivity are building a temple to Jehovah, God of Israel,

@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 **¹** And David speaketh to Jehovah the words of this song in the day Jehovah hath delivered him out of the hand of all his enemies, and out of the hand of Saul,

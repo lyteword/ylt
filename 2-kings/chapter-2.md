@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And it cometh to pass, at Jehovah's taking up Elijah in a whirlwind to the heavens, that Elijah goeth, and Elisha, from Gilgal,

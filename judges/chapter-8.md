@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Chapter 8
 
 **¹** And the men of Ephraim say unto him, 'What [is] this thing thou hast done to us — not to call for us when thou didst go to fight with Midian?' and they strive with him severely;

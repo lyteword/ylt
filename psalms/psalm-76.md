@@ -1,3 +1,7 @@
+---
+weight: 76
+---
+
 # Psalm 76
 
 **¹** To the Overseer with stringed instruments. — A Psalm of Asaph. — A Song. In Judah [is] God known, in Israel His name [is] great.

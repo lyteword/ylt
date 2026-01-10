@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** Do we begin again to recommend ourselves, except we need, as some, letters of recommendation unto you, or from you?

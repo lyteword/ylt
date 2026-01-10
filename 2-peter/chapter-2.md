@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And there did come also false prophets among the people, as also among you there shall be false teachers, who shall bring in besides destructive sects, and the Master who bought them denying, bringing to themselves quick destruction,

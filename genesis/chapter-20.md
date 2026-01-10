@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Chapter 20
 
 **¹** And Abraham journeyeth from thence toward the land of the south, and dwelleth between Kadesh and Shur, and sojourneth in Gerar;

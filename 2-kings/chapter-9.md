@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** And Elisha the prophet hath called to one of the sons of the prophets, and saith to him, 'Gird up thy loins, and take this vial of oil in thy hand, and go to Ramoth-Gilead,

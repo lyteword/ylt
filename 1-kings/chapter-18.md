@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Chapter 18
 
 **¹** And the days are many, and the word of Jehovah hath been unto Elijah in the third year, saying, 'Go, appear unto Ahab, and I give rain on the face of the ground;'

@@ -1,3 +1,7 @@
+---
+weight: 43
+---
+
 # Chapter 43
 
 **¹** And he causeth me to go to the gate, the gate that is looking eastward.

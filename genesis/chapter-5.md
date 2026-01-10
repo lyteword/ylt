@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Chapter 5
 
 **¹** This [is] an account of the births of Adam: In the day of God's preparing man, in the likeness of God He hath made him;

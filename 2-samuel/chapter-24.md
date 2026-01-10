@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Chapter 24
 
 **¹** And the anger of Jehovah addeth to burn against Israel, and [an adversary] moveth David about them, saying, 'Go, number Israel and Judah.'

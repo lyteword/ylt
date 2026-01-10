@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** And I saw when the Lamb opened one of the seals, and I heard one of the four living creatures saying, as it were a voice of thunder, 'Come and behold!'

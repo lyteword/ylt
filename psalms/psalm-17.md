@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Psalm 17
 
 **¹** A Prayer of David. Hear, O Jehovah, righteousness, attend my cry, Give ear [to] my prayer, without lips of deceit.

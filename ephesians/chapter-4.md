@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Chapter 4
 
 **¹** Call upon you, then, do I — the prisoner of the Lord — to walk worthily of the calling with which ye were called,

@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** Seeing that many did take in hand to set in order a narration of the matters that have been fully assured among us,

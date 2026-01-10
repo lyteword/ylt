@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** Woe [to] those secure in Zion, And those confident in the mount of Samaria, The marked of the chief of the nations, And come to them have the house of Israel.

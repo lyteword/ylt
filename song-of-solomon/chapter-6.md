@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** Whither hath thy beloved gone, O fair among women? Whither hath thy beloved turned, And we seek him with thee?

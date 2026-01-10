@@ -1,3 +1,7 @@
+---
+weight: 78
+---
+
 # Psalm 78
 
 **¹** An Instruction of Asaph. Give ear, O my people, to my law, Incline your ear to sayings of my mouth.

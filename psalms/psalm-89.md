@@ -1,3 +1,7 @@
+---
+weight: 89
+---
+
 # Psalm 89
 
 **¹** An instruction, by Ethan the Ezrahite. Of the kind acts of Jehovah, to the age I sing, To all generations I make known Thy faithfulness with my mouth,

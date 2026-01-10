@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** A prayer of Habakkuk the prophet concerning erring ones:

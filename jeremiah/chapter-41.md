@@ -1,3 +1,7 @@
+---
+weight: 41
+---
+
 # Chapter 41
 
 **¹** And it cometh to pass, in the seventh month, come hath Ishmael son of Nethaniah, son of Elishama, of the seed royal, and of the chiefs of the king, and ten men with him, unto Gedaliah son of Ahikam, to Mizpah, and they eat there bread together in Mizpah.

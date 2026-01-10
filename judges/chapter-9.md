@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Chapter 9
 
 **¹** and Abimelech son of Jerubbaal goeth to Shechem, unto his mother's brethren, and speaketh unto them, and unto all the family of the house of his mother's father, saying,

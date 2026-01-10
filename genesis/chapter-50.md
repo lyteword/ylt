@@ -1,3 +1,7 @@
+---
+weight: 50
+---
+
 # Chapter 50
 
 **¹** And Joseph falleth on his father's face, and weepeth over him, and kisseth him;

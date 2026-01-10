@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Chapter 10
 
 **¹** And over those sealed [are] Nehemiah the Tirshatha, son of Hachaliah, and Zidkijah,

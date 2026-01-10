@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Psalm 3
 
 **¹** A Psalm of David, in his fleeing from the face of Absalom his son. Jehovah, how have my distresses multiplied! Many are rising up against me.

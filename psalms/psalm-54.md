@@ -1,3 +1,7 @@
+---
+weight: 54
+---
+
 # Psalm 54
 
 **¹** To the Overseer with stringed instruments. — An instruction, by David, in the coming in of the Ziphim, and they say to Saul, 'Is not David hiding himself with us?' O God, by Thy name save me, and by Thy might judge me.

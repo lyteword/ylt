@@ -1,3 +1,7 @@
+---
+weight: 13
+---
+
 # Chapter 13
 
 **¹** And Joshua is old, entering into days, and Jehovah saith unto him, 'Thou hast become aged, thou hast entered into days; as to the land, very much hath been left to possess.

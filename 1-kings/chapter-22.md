@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Chapter 22
 
 **¹** And they sit still three years, there is no war between Aram and Israel,

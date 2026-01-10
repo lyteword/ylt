@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Chapter 2
 
 **¹** And Solomon saith to build a house for the name of Jehovah, and a house for his kingdom,

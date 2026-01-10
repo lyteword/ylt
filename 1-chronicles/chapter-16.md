@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Chapter 16
 
 **¹** And they bring in the ark of God, and set it up in the midst of the tent that David hath stretched out for it, and they bring near burnt-offerings and peace-offerings before God;

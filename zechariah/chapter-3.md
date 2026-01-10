@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Chapter 3
 
 **¹** And he sheweth me Joshua the high priest standing before the messenger of Jehovah, and the Adversary standing at his right hand, to be an adversary to him.

@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Chapter 1
 
 **¹** And it cometh to pass after the death of Moses, servant of Jehovah, that Jehovah speaketh unto Joshua son of Nun, minister of Moses, saying,

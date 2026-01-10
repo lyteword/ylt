@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Chapter 6
 
 **¹** (And Jericho shutteth itself up, and is shut up, because of the presence of the sons of Israel — none going out, and none coming in;)
