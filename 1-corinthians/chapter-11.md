@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 11 YLT | Read the Bible Online"
+linkTitle: "11"
+description: "Read 1 Corinthians 11 Online | Followers of me become ye, as I also [am] of Christ..."
 weight: 11
 ---
 
-# Chapter 11
+# 1 Corinthians 11 
 
 **¹** Followers of me become ye, as I also [am] of Christ.
 

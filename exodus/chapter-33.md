@@ -1,8 +1,11 @@
 ---
+title: "Exodus 33 YLT | Read the Bible Online"
+linkTitle: "33"
+description: "Read Exodus 33 Online | And Jehovah speaketh unto Moses, 'Go, ascend from this [place], thou and the people, whom thou hast brought up out of the land of Egypt, unto the land which I have sworn to Abraham, to Isaac, and to Jacob, saying, To thy seed I give it,..."
 weight: 33
 ---
 
-# Chapter 33
+# Exodus 33 
 
 **¹** And Jehovah speaketh unto Moses, 'Go, ascend from this [place], thou and the people, whom thou hast brought up out of the land of Egypt, unto the land which I have sworn to Abraham, to Isaac, and to Jacob, saying, To thy seed I give it,'
 

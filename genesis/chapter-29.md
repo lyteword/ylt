@@ -1,8 +1,11 @@
 ---
+title: "Genesis 29 YLT | Read the Bible Online"
+linkTitle: "29"
+description: "Read Genesis 29 Online | And Jacob lifteth up his feet, and goeth towards the land of the sons of the east..."
 weight: 29
 ---
 
-# Chapter 29
+# Genesis 29 
 
 **¹** And Jacob lifteth up his feet, and goeth towards the land of the sons of the east;
 

@@ -1,8 +1,11 @@
 ---
+title: "Psalm 43 YLT | Read the Bible Online"
+linkTitle: "43"
+description: "Read Psalm 43 Online | Judge me, O God, And plead my cause against a nation not pious, From a man of deceit and perverseness Thou dost deliver me..."
 weight: 43
 ---
 
-# Psalm 43
+# Psalm 43 
 
 **¹** Judge me, O God, And plead my cause against a nation not pious, From a man of deceit and perverseness Thou dost deliver me,
 

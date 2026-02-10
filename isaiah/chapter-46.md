@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 46 YLT | Read the Bible Online"
+linkTitle: "46"
+description: "Read Isaiah 46 Online | Bowed down hath Bel, stooping is Nebo, Their idols have been for the beast and for cattle, Your burdens are loaded, a burden to the weary..."
 weight: 46
 ---
 
-# Chapter 46
+# Isaiah 46 
 
 **¹** Bowed down hath Bel, stooping is Nebo, Their idols have been for the beast and for cattle, Your burdens are loaded, a burden to the weary.
 

@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 11 YLT | Read the Bible Online"
+linkTitle: "11"
+description: "Read Nehemiah 11 Online | And the heads of the people dwell in Jerusalem, and the rest of the people have caused to fall lots to bring in one out of ten to dwell in Jerusalem the holy city, and nine parts in the cities..."
 weight: 11
 ---
 
-# Chapter 11
+# Nehemiah 11 
 
 **¹** And the heads of the people dwell in Jerusalem, and the rest of the people have caused to fall lots to bring in one out of ten to dwell in Jerusalem the holy city, and nine parts in the cities,
 

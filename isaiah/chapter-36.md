@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 36 YLT | Read the Bible Online"
+linkTitle: "36"
+description: "Read Isaiah 36 Online | And it cometh to pass, in the fourteenth year of king Hezekiah, come up hath Sennacherib king of Asshur against all the fenced cities of Judah, and seizeth them..."
 weight: 36
 ---
 
-# Chapter 36
+# Isaiah 36 
 
 **¹** And it cometh to pass, in the fourteenth year of king Hezekiah, come up hath Sennacherib king of Asshur against all the fenced cities of Judah, and seizeth them.
 

@@ -1,8 +1,11 @@
 ---
+title: "Joshua 15 YLT | Read the Bible Online"
+linkTitle: "15"
+description: "Read Joshua 15 Online | And the lot for the tribe of the sons of Judah, for their families, is unto the border of Edom; the wilderness of Zin southward, at the extremity of the south..."
 weight: 15
 ---
 
-# Chapter 15
+# Joshua 15 
 
 **¹** And the lot for the tribe of the sons of Judah, for their families, is unto the border of Edom; the wilderness of Zin southward, at the extremity of the south;
 

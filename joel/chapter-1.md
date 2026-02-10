@@ -1,8 +1,11 @@
 ---
+title: "Joel 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Joel 1 Online | A word of Jehovah that hath been unto Joel, son of Pethuel..."
 weight: 1
 ---
 
-# Chapter 1
+# Joel 1 
 
 **¹** A word of Jehovah that hath been unto Joel, son of Pethuel:
 

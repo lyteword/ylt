@@ -1,8 +1,11 @@
 ---
+title: "John 17 YLT | Read the Bible Online"
+linkTitle: "17"
+description: "Read John 17 Online | These things spake Jesus, and lifted up his eyes to the heaven, and said — 'Father, the hour hath come, glorify Thy Son, that Thy Son also may glorify Thee..."
 weight: 17
 ---
 
-# Chapter 17
+# John 17 
 
 **¹** These things spake Jesus, and lifted up his eyes to the heaven, and said — 'Father, the hour hath come, glorify Thy Son, that Thy Son also may glorify Thee,
 

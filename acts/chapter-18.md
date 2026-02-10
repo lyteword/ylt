@@ -1,8 +1,11 @@
 ---
+title: "Acts 18 YLT | Read the Bible Online"
+linkTitle: "18"
+description: "Read Acts 18 Online | And after these things, Paul having departed out of Athens, came to Corinth..."
 weight: 18
 ---
 
-# Chapter 18
+# Acts 18 
 
 **¹** And after these things, Paul having departed out of Athens, came to Corinth,
 

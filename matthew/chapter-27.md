@@ -1,8 +1,11 @@
 ---
+title: "Matthew 27 YLT | Read the Bible Online"
+linkTitle: "27"
+description: "Read Matthew 27 Online | And morning having come, all the chief priests and the elders of the people took counsel against Jesus, so as to put him to death..."
 weight: 27
 ---
 
-# Chapter 27
+# Matthew 27 
 
 **¹** And morning having come, all the chief priests and the elders of the people took counsel against Jesus, so as to put him to death;
 

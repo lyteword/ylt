@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 60 YLT | Read the Bible Online"
+linkTitle: "60"
+description: "Read Isaiah 60 Online | Arise, be bright, for come hath thy light, And the honour of Jehovah hath risen on thee..."
 weight: 60
 ---
 
-# Chapter 60
+# Isaiah 60 
 
 **¹** Arise, be bright, for come hath thy light, And the honour of Jehovah hath risen on thee.
 

@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 16 YLT | Read the Bible Online"
+linkTitle: "16"
+description: "Read 2 Chronicles 16 Online | In the thirty and sixth year of the reign of Asa, come up hath Baasha king of Israel, against Judah, and buildeth Ramah, so as not to permit any going out and coming in to Asa king of Judah..."
 weight: 16
 ---
 
-# Chapter 16
+# 2 Chronicles 16 
 
 **¹** In the thirty and sixth year of the reign of Asa, come up hath Baasha king of Israel, against Judah, and buildeth Ramah, so as not to permit any going out and coming in to Asa king of Judah.
 

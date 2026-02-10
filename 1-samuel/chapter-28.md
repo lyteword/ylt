@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 28 YLT | Read the Bible Online"
+linkTitle: "28"
+description: "Read 1 Samuel 28 Online | And it cometh to pass in those days, that the Philistines gather their camps for the war, to fight against Israel, and Achish saith unto David, 'Thou dost certainly know that with me thou dost go out into the camp, thou and thy men...."
 weight: 28
 ---
 
-# Chapter 28
+# 1 Samuel 28 
 
 **¹** And it cometh to pass in those days, that the Philistines gather their camps for the war, to fight against Israel, and Achish saith unto David, 'Thou dost certainly know that with me thou dost go out into the camp, thou and thy men.'
 

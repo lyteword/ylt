@@ -1,8 +1,11 @@
 ---
+title: "Joshua 11 YLT | Read the Bible Online"
+linkTitle: "11"
+description: "Read Joshua 11 Online | And it cometh to pass when Jabin king of Hazor heareth, that he sendeth unto Jobab king of Madon, and unto the king of Shimron, and unto the king of Achshaph..."
 weight: 11
 ---
 
-# Chapter 11
+# Joshua 11 
 
 **¹** And it cometh to pass when Jabin king of Hazor heareth, that he sendeth unto Jobab king of Madon, and unto the king of Shimron, and unto the king of Achshaph,
 

@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 18 YLT | Read the Bible Online"
+linkTitle: "18"
+description: "Read Isaiah 18 Online | Ho, land shadowed [with] wings, That [is] beyond the rivers of Cush..."
 weight: 18
 ---
 
-# Chapter 18
+# Isaiah 18 
 
 **¹** Ho, land shadowed [with] wings, That [is] beyond the rivers of Cush,
 

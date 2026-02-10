@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read 1 Corinthians 5 Online | Whoredom is actually heard of among you, and such whoredom as is not even named among the nations — as that one hath the wife of the father! ..."
 weight: 5
 ---
 
-# Chapter 5
+# 1 Corinthians 5 
 
 **¹** Whoredom is actually heard of among you, and such whoredom as is not even named among the nations — as that one hath the wife of the father! —
 

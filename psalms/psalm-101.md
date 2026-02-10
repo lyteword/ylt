@@ -1,8 +1,11 @@
 ---
+title: "Psalm 101 YLT | Read the Bible Online"
+linkTitle: "101"
+description: "Read Psalm 101 Online | A Psalm of David. Kindness and judgment I sing, To Thee, O Jehovah, I sing praise..."
 weight: 101
 ---
 
-# Psalm 101
+# Psalm 101 
 
 **¹** A Psalm of David. Kindness and judgment I sing, To Thee, O Jehovah, I sing praise.
 

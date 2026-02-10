@@ -1,8 +1,11 @@
 ---
+title: "Psalm 106 YLT | Read the Bible Online"
+linkTitle: "106"
+description: "Read Psalm 106 Online | Praise ye Jah, give thanks to Jehovah, For good, for to the age, [is] His kindness..."
 weight: 106
 ---
 
-# Psalm 106
+# Psalm 106 
 
 **¹** Praise ye Jah, give thanks to Jehovah, For good, for to the age, [is] His kindness.
 

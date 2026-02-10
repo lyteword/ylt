@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read 1 Corinthians 12 Online | And concerning the spiritual things, brethren, I do not wish you to be ignorant..."
 weight: 12
 ---
 
-# Chapter 12
+# 1 Corinthians 12 
 
 **¹** And concerning the spiritual things, brethren, I do not wish you to be ignorant;
 

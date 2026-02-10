@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read Ezekiel 9 Online | And He crieth in mine ears — a loud voice — saying, 'Drawn near have inspectors of the city, and each his destroying weapon in his hand...."
 weight: 9
 ---
 
-# Chapter 9
+# Ezekiel 9 
 
 **¹** And He crieth in mine ears — a loud voice — saying, 'Drawn near have inspectors of the city, and each his destroying weapon in his hand.'
 

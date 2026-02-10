@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read 2 Samuel 3 Online | And the war is long between the house of Saul and the house of David, and David is going on and [is] strong, and the house of Saul are going on and [are] weak..."
 weight: 3
 ---
 
-# Chapter 3
+# 2 Samuel 3 
 
 **¹** And the war is long between the house of Saul and the house of David, and David is going on and [is] strong, and the house of Saul are going on and [are] weak.
 

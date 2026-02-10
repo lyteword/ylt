@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 62 YLT | Read the Bible Online"
+linkTitle: "62"
+description: "Read Isaiah 62 Online | For Zion's sake I am not silent, And for Jerusalem's sake I do not rest, Till her righteousness go out as brightness, And her salvation, as a torch that burneth..."
 weight: 62
 ---
 
-# Chapter 62
+# Isaiah 62 
 
 **¹** For Zion's sake I am not silent, And for Jerusalem's sake I do not rest, Till her righteousness go out as brightness, And her salvation, as a torch that burneth.
 

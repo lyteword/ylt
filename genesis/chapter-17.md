@@ -1,8 +1,11 @@
 ---
+title: "Genesis 17 YLT | Read the Bible Online"
+linkTitle: "17"
+description: "Read Genesis 17 Online | And Abram is a son of ninety and nine years, and Jehovah appeareth unto Abram, and saith unto him, 'I [am] God Almighty, walk habitually before Me, and be thou perfect..."
 weight: 17
 ---
 
-# Chapter 17
+# Genesis 17 
 
 **¹** And Abram is a son of ninety and nine years, and Jehovah appeareth unto Abram, and saith unto him, 'I [am] God Almighty, walk habitually before Me, and be thou perfect;
 

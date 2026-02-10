@@ -1,8 +1,11 @@
 ---
+title: "Revelation 19 YLT | Read the Bible Online"
+linkTitle: "19"
+description: "Read Revelation 19 Online | And after these things I heard a great voice of a great multitude in the heaven, saying, 'Alleluia! the salvation, and the glory, and the honour, and the power, [is] to the Lord our God..."
 weight: 19
 ---
 
-# Chapter 19
+# Revelation 19 
 
 **¹** And after these things I heard a great voice of a great multitude in the heaven, saying, 'Alleluia! the salvation, and the glory, and the honour, and the power, [is] to the Lord our God;
 

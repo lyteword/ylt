@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 18 YLT | Read the Bible Online"
+linkTitle: "18"
+description: "Read Ezekiel 18 Online | 'And there is a word of Jehovah unto me, saying..."
 weight: 18
 ---
 
-# Chapter 18
+# Ezekiel 18 
 
 **¹** 'And there is a word of Jehovah unto me, saying:
 

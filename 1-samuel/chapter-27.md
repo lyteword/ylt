@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 27 YLT | Read the Bible Online"
+linkTitle: "27"
+description: "Read 1 Samuel 27 Online | And David saith unto his heart, 'Now am I consumed one day by the hand of Saul; there is nothing for me better than that I diligently escape unto the land of the Philistines, and Saul hath been despairing of me — of seeking me any more in all the border of Israel, and I have escaped out of his hand...."
 weight: 27
 ---
 
-# Chapter 27
+# 1 Samuel 27 
 
 **¹** And David saith unto his heart, 'Now am I consumed one day by the hand of Saul; there is nothing for me better than that I diligently escape unto the land of the Philistines, and Saul hath been despairing of me — of seeking me any more in all the border of Israel, and I have escaped out of his hand.'
 

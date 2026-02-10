@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 14 YLT | Read the Bible Online"
+linkTitle: "14"
+description: "Read 2 Kings 14 Online | In the second year of Joash son of Jehoahaz king of Israel reigned hath Amaziah son of Joash king of Judah..."
 weight: 14
 ---
 
-# Chapter 14
+# 2 Kings 14 
 
 **¹** In the second year of Joash son of Jehoahaz king of Israel reigned hath Amaziah son of Joash king of Judah;
 

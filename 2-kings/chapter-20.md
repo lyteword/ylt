@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read 2 Kings 20 Online | In those days hath Hezekiah been sick unto death, and come unto him doth Isaiah son of Amoz the prophet, and saith unto him, 'Thus said Jehovah: Give a charge to thy house, for thou art dying, and dost not live...."
 weight: 20
 ---
 
-# Chapter 20
+# 2 Kings 20 
 
 **¹** In those days hath Hezekiah been sick unto death, and come unto him doth Isaiah son of Amoz the prophet, and saith unto him, 'Thus said Jehovah: Give a charge to thy house, for thou art dying, and dost not live.'
 

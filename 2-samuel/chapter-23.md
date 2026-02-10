@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 23 YLT | Read the Bible Online"
+linkTitle: "23"
+description: "Read 2 Samuel 23 Online | And these [are] the last words of David: — 'The affirmation of David son of Jesse — And the affirmation of the man raised up — Concerning the Anointed of the God of Jacob, And the Sweetness of the Songs of Israel..."
 weight: 23
 ---
 
-# Chapter 23
+# 2 Samuel 23 
 
 **¹** And these [are] the last words of David: — 'The affirmation of David son of Jesse — And the affirmation of the man raised up — Concerning the Anointed of the God of Jacob, And the Sweetness of the Songs of Israel:
 

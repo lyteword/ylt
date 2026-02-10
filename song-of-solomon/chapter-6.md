@@ -1,8 +1,11 @@
 ---
+title: "Song Of Solomon 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Song Of Solomon 6 Online | Whither hath thy beloved gone, O fair among women? Whither hath thy beloved turned, And we seek him with thee..."
 weight: 6
 ---
 
-# Chapter 6
+# Song Of Solomon 6 
 
 **¹** Whither hath thy beloved gone, O fair among women? Whither hath thy beloved turned, And we seek him with thee?
 

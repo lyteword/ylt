@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 29 YLT | Read the Bible Online"
+linkTitle: "29"
+description: "Read Proverbs 29 Online | A man often reproved, hardening the neck, Is suddenly broken, and there is no healing..."
 weight: 29
 ---
 
-# Chapter 29
+# Proverbs 29 
 
 **¹** A man often reproved, hardening the neck, Is suddenly broken, and there is no healing.
 

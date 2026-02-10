@@ -1,8 +1,11 @@
 ---
+title: "Genesis 42 YLT | Read the Bible Online"
+linkTitle: "42"
+description: "Read Genesis 42 Online | And Jacob seeth that there is corn in Egypt, and Jacob saith to his sons, 'Why do you look at each other?..."
 weight: 42
 ---
 
-# Chapter 42
+# Genesis 42 
 
 **¹** And Jacob seeth that there is corn in Egypt, and Jacob saith to his sons, 'Why do you look at each other?'
 

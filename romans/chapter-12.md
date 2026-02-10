@@ -1,8 +1,11 @@
 ---
+title: "Romans 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read Romans 12 Online | I call upon you, therefore, brethren, through the compassions of God, to present your bodies a sacrifice — living, sanctified, acceptable to God — your intelligent service..."
 weight: 12
 ---
 
-# Chapter 12
+# Romans 12 
 
 **¹** I call upon you, therefore, brethren, through the compassions of God, to present your bodies a sacrifice — living, sanctified, acceptable to God — your intelligent service;
 

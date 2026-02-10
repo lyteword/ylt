@@ -1,8 +1,11 @@
 ---
+title: "Revelation 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Revelation 1 Online | A revelation of Jesus Christ, that God gave to him, to shew to his servants what things it behoveth to come to pass quickly; and he did signify [it], having sent through his messenger to his servant John..."
 weight: 1
 ---
 
-# Chapter 1
+# Revelation 1 
 
 **¹** A revelation of Jesus Christ, that God gave to him, to shew to his servants what things it behoveth to come to pass quickly; and he did signify [it], having sent through his messenger to his servant John,
 

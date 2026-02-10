@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 42 YLT | Read the Bible Online"
+linkTitle: "42"
+description: "Read Ezekiel 42 Online | And he bringeth me forth unto the outer court, the way northward, and he bringeth me in unto the chamber that [is] over-against the separate place, and that [is] over-against the building at the north..."
 weight: 42
 ---
 
-# Chapter 42
+# Ezekiel 42 
 
 **¹** And he bringeth me forth unto the outer court, the way northward, and he bringeth me in unto the chamber that [is] over-against the separate place, and that [is] over-against the building at the north.
 

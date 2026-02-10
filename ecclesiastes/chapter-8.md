@@ -1,8 +1,11 @@
 ---
+title: "Ecclesiastes 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read Ecclesiastes 8 Online | Who [is] as the wise? and who knoweth the interpretation of a thing? The wisdom of man causeth his face to shine, and the hardness of his face is changed..."
 weight: 8
 ---
 
-# Chapter 8
+# Ecclesiastes 8 
 
 **¹** Who [is] as the wise? and who knoweth the interpretation of a thing? The wisdom of man causeth his face to shine, and the hardness of his face is changed.
 

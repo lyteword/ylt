@@ -1,8 +1,11 @@
 ---
+title: "Ezra 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Ezra 2 Online | And these [are] sons of the province who are going up — of the captives of the removal that Nebuchadnezzar king of Babylon removed to Babylon, and they turn back to Jerusalem and Judah, each to his city ..."
 weight: 2
 ---
 
-# Chapter 2
+# Ezra 2 
 
 **¹** And these [are] sons of the province who are going up — of the captives of the removal that Nebuchadnezzar king of Babylon removed to Babylon, and they turn back to Jerusalem and Judah, each to his city —
 

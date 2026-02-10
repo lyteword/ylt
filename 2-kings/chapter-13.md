@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read 2 Kings 13 Online | In the twenty and third year of Joash son of Ahaziah king of Judah, hath Jehoahaz son of Jehu reigned over Israel, in Samaria — seventeen years..."
 weight: 13
 ---
 
-# Chapter 13
+# 2 Kings 13 
 
 **¹** In the twenty and third year of Joash son of Ahaziah king of Judah, hath Jehoahaz son of Jehu reigned over Israel, in Samaria — seventeen years,
 

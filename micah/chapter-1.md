@@ -1,8 +1,11 @@
 ---
+title: "Micah 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Micah 1 Online | A word of Jehovah that hath been unto Micah the Morashite in the days of Jotham, Ahaz, Hezekiah, kings of Judah, that he hath seen concerning Samaria and Jerusalem..."
 weight: 1
 ---
 
-# Chapter 1
+# Micah 1 
 
 **¹** A word of Jehovah that hath been unto Micah the Morashite in the days of Jotham, Ahaz, Hezekiah, kings of Judah, that he hath seen concerning Samaria and Jerusalem:
 

@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read Nehemiah 13 Online | On that day there was read in the book of Moses, in the ears of the people, and it hath been found written in it that an Ammonite and Moabite doth not come into the assembly of God — unto the age..."
 weight: 13
 ---
 
-# Chapter 13
+# Nehemiah 13 
 
 **¹** On that day there was read in the book of Moses, in the ears of the people, and it hath been found written in it that an Ammonite and Moabite doth not come into the assembly of God — unto the age,
 

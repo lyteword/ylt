@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read Nehemiah 5 Online | And there is a great cry of the people and their wives, concerning their brethren the Jews..."
 weight: 5
 ---
 
-# Chapter 5
+# Nehemiah 5 
 
 **¹** And there is a great cry of the people and their wives, concerning their brethren the Jews,
 

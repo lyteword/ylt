@@ -1,8 +1,11 @@
 ---
+title: "Ephesians 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read Ephesians 5 Online | Become, then, followers of God, as children beloved..."
 weight: 5
 ---
 
-# Chapter 5
+# Ephesians 5 
 
 **¹** Become, then, followers of God, as children beloved,
 

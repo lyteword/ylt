@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 7 YLT | Read the Bible Online"
+linkTitle: "7"
+description: "Read 1 Samuel 7 Online | And the men of Kirjath-Jearim come and bring up the ark of Jehovah, and bring it in unto the house of Abinadab, in the height, and Eleazar his son they have sanctified to keep the ark of Jehovah..."
 weight: 7
 ---
 
-# Chapter 7
+# 1 Samuel 7 
 
 **¹** And the men of Kirjath-Jearim come and bring up the ark of Jehovah, and bring it in unto the house of Abinadab, in the height, and Eleazar his son they have sanctified to keep the ark of Jehovah.
 

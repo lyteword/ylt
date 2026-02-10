@@ -1,8 +1,11 @@
 ---
+title: "Romans 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Romans 2 Online | Therefore, thou art inexcusable, O man — every one who is judging — for in that in which thou dost judge the other, thyself thou dost condemn, for the same things thou dost practise who art judging..."
 weight: 2
 ---
 
-# Chapter 2
+# Romans 2 
 
 **¹** Therefore, thou art inexcusable, O man — every one who is judging — for in that in which thou dost judge the other, thyself thou dost condemn, for the same things thou dost practise who art judging,
 

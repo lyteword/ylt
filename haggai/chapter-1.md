@@ -1,8 +1,11 @@
 ---
+title: "Haggai 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Haggai 1 Online | In the second year of Darius the king, in the sixth month, in the first day of the month, hath a word of Jehovah been by the hand of Haggai the prophet, unto Zerubbabel son of Shealtiel, governor of Judah, and unto Joshua son of Josedech, the high priest, saying..."
 weight: 1
 ---
 
-# Chapter 1
+# Haggai 1 
 
 **¹** In the second year of Darius the king, in the sixth month, in the first day of the month, hath a word of Jehovah been by the hand of Haggai the prophet, unto Zerubbabel son of Shealtiel, governor of Judah, and unto Joshua son of Josedech, the high priest, saying:
 

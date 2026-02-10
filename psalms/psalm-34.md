@@ -1,8 +1,11 @@
 ---
+title: "Psalm 34 YLT | Read the Bible Online"
+linkTitle: "34"
+description: "Read Psalm 34 Online | By David, in his changing his behaviour before Abimelech, and he driveth him away, and he goeth. I do bless Jehovah at all times, Continually His praise [is] in my mouth..."
 weight: 34
 ---
 
-# Psalm 34
+# Psalm 34 
 
 **¹** By David, in his changing his behaviour before Abimelech, and he driveth him away, and he goeth. I do bless Jehovah at all times, Continually His praise [is] in my mouth.
 

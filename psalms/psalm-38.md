@@ -1,8 +1,11 @@
 ---
+title: "Psalm 38 YLT | Read the Bible Online"
+linkTitle: "38"
+description: "Read Psalm 38 Online | A Psalm of David, 'To cause to remember.' Jehovah, in Thy wrath reprove me not, Nor in Thy fury chastise me..."
 weight: 38
 ---
 
-# Psalm 38
+# Psalm 38 
 
 **¹** A Psalm of David, 'To cause to remember.' Jehovah, in Thy wrath reprove me not, Nor in Thy fury chastise me.
 

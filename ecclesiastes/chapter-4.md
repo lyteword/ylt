@@ -1,8 +1,11 @@
 ---
+title: "Ecclesiastes 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read Ecclesiastes 4 Online | And I have turned, and I see all the oppressions that are done under the sun, and lo, the tear of the oppressed, and they have no comforter; and at the hand of their oppressors [is] power, and they have no comforter..."
 weight: 4
 ---
 
-# Chapter 4
+# Ecclesiastes 4 
 
 **¹** And I have turned, and I see all the oppressions that are done under the sun, and lo, the tear of the oppressed, and they have no comforter; and at the hand of their oppressors [is] power, and they have no comforter.
 

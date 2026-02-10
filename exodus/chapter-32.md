@@ -1,8 +1,11 @@
 ---
+title: "Exodus 32 YLT | Read the Bible Online"
+linkTitle: "32"
+description: "Read Exodus 32 Online | And the people see that Moses is delaying to come down from the mount, and the people assemble against Aaron, and say unto him, 'Rise, make for us gods who go before us, for this Moses — the man who brought us up out of the land of Egypt — we have not known what hath happened to him...."
 weight: 32
 ---
 
-# Chapter 32
+# Exodus 32 
 
 **¹** And the people see that Moses is delaying to come down from the mount, and the people assemble against Aaron, and say unto him, 'Rise, make for us gods who go before us, for this Moses — the man who brought us up out of the land of Egypt — we have not known what hath happened to him.'
 

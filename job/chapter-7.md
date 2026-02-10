@@ -1,8 +1,11 @@
 ---
+title: "Job 7 YLT | Read the Bible Online"
+linkTitle: "7"
+description: "Read Job 7 Online | Is there not a warfare to man on earth? And as the days of an hireling his days..."
 weight: 7
 ---
 
-# Chapter 7
+# Job 7 
 
 **¹** Is there not a warfare to man on earth? And as the days of an hireling his days?
 

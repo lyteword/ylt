@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 14 YLT | Read the Bible Online"
+linkTitle: "14"
+description: "Read 1 Chronicles 14 Online | And Huram king of Tyre sendeth messengers unto David, and cedar-wood, and artificers of walls, and artificers of wood, to build to him a house..."
 weight: 14
 ---
 
-# Chapter 14
+# 1 Chronicles 14 
 
 **¹** And Huram king of Tyre sendeth messengers unto David, and cedar-wood, and artificers of walls, and artificers of wood, to build to him a house.
 

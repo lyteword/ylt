@@ -1,8 +1,11 @@
 ---
+title: "Job 32 YLT | Read the Bible Online"
+linkTitle: "32"
+description: "Read Job 32 Online | And these three men cease from answering Job, for he [is] righteous in his own eyes..."
 weight: 32
 ---
 
-# Chapter 32
+# Job 32 
 
 **¹** And these three men cease from answering Job, for he [is] righteous in his own eyes,
 

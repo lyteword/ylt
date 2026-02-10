@@ -1,8 +1,11 @@
 ---
+title: "Genesis 31 YLT | Read the Bible Online"
+linkTitle: "31"
+description: "Read Genesis 31 Online | And he heareth the words of Laban's sons, saying, 'Jacob hath taken all that our father hath; yea, from that which our father hath, he hath made all this honour;..."
 weight: 31
 ---
 
-# Chapter 31
+# Genesis 31 
 
 **¹** And he heareth the words of Laban's sons, saying, 'Jacob hath taken all that our father hath; yea, from that which our father hath, he hath made all this honour;'
 

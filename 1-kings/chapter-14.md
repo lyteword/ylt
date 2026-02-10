@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 14 YLT | Read the Bible Online"
+linkTitle: "14"
+description: "Read 1 Kings 14 Online | At that time was Abijah son of Jeroboam sick..."
 weight: 14
 ---
 
-# Chapter 14
+# 1 Kings 14 
 
 **¹** At that time was Abijah son of Jeroboam sick,
 

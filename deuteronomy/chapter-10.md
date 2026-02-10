@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read Deuteronomy 10 Online | 'At that time hath Jehovah said unto me, Grave for thee two tables of stone, like the first, and come up unto Me, into the mount, and thou hast made for thee an ark of wood..."
 weight: 10
 ---
 
-# Chapter 10
+# Deuteronomy 10 
 
 **¹** 'At that time hath Jehovah said unto me, Grave for thee two tables of stone, like the first, and come up unto Me, into the mount, and thou hast made for thee an ark of wood,
 

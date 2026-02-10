@@ -1,8 +1,11 @@
 ---
+title: "2 Peter 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read 2 Peter 3 Online | This, now, beloved, a second letter to you I write, in both which I stir up your pure mind in reminding [you]..."
 weight: 3
 ---
 
-# Chapter 3
+# 2 Peter 3 
 
 **¹** This, now, beloved, a second letter to you I write, in both which I stir up your pure mind in reminding [you],
 

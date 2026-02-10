@@ -1,8 +1,11 @@
 ---
+title: "Psalm 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Psalm 2 Online | Why have nations tumultuously assembled? And do peoples meditate vanity..."
 weight: 2
 ---
 
-# Psalm 2
+# Psalm 2 
 
 **¹** Why have nations tumultuously assembled? And do peoples meditate vanity?
 

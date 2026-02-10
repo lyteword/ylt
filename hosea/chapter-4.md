@@ -1,8 +1,11 @@
 ---
+title: "Hosea 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read Hosea 4 Online | 'Hear a word of Jehovah, sons of Israel, For a strife [is] to Jehovah with inhabitants of the land, For there is no truth, nor kindness, Nor knowledge of God, in the land..."
 weight: 4
 ---
 
-# Chapter 4
+# Hosea 4 
 
 **¹** 'Hear a word of Jehovah, sons of Israel, For a strife [is] to Jehovah with inhabitants of the land, For there is no truth, nor kindness, Nor knowledge of God, in the land,
 

@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 15 YLT | Read the Bible Online"
+linkTitle: "15"
+description: "Read 1 Kings 15 Online | And in the eighteenth year of king Jeroboam son of Nebat, reigned hath Abijam over Judah..."
 weight: 15
 ---
 
-# Chapter 15
+# 1 Kings 15 
 
 **¹** And in the eighteenth year of king Jeroboam son of Nebat, reigned hath Abijam over Judah;
 

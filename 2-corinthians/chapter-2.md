@@ -1,8 +1,11 @@
 ---
+title: "2 Corinthians 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read 2 Corinthians 2 Online | And I decided this to myself, not again to come in sorrow unto you..."
 weight: 2
 ---
 
-# Chapter 2
+# 2 Corinthians 2 
 
 **¹** And I decided this to myself, not again to come in sorrow unto you,
 

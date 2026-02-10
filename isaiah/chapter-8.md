@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read Isaiah 8 Online | And Jehovah saith unto me, 'Take to thee a great tablet, and write upon it with a graving tool of man, To haste spoil, enjoy prey...."
 weight: 8
 ---
 
-# Chapter 8
+# Isaiah 8 
 
 **¹** And Jehovah saith unto me, 'Take to thee a great tablet, and write upon it with a graving tool of man, To haste spoil, enjoy prey.'
 

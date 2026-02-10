@@ -1,8 +1,11 @@
 ---
+title: "John 16 YLT | Read the Bible Online"
+linkTitle: "16"
+description: "Read John 16 Online | 'These things I have spoken to you, that ye may not be stumbled..."
 weight: 16
 ---
 
-# Chapter 16
+# John 16 
 
 **¹** 'These things I have spoken to you, that ye may not be stumbled,
 

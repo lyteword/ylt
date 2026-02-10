@@ -1,8 +1,11 @@
 ---
+title: "Luke 19 YLT | Read the Bible Online"
+linkTitle: "19"
+description: "Read Luke 19 Online | And having entered, he was passing through Jericho..."
 weight: 19
 ---
 
-# Chapter 19
+# Luke 19 
 
 **¹** And having entered, he was passing through Jericho,
 

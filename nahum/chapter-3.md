@@ -1,8 +1,11 @@
 ---
+title: "Nahum 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Nahum 3 Online | Woe [to] the city of blood, She is all with lies — burglary — full, Prey doth not depart..."
 weight: 3
 ---
 
-# Chapter 3
+# Nahum 3 
 
 **¹** Woe [to] the city of blood, She is all with lies — burglary — full, Prey doth not depart.
 

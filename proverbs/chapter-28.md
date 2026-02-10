@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 28 YLT | Read the Bible Online"
+linkTitle: "28"
+description: "Read Proverbs 28 Online | The wicked have fled and there is no pursuer. And the righteous as a young lion is confident..."
 weight: 28
 ---
 
-# Chapter 28
+# Proverbs 28 
 
 **¹** The wicked have fled and there is no pursuer. And the righteous as a young lion is confident.
 

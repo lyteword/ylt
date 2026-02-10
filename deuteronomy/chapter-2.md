@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Deuteronomy 2 Online | 'And we turn, and journey into the wilderness, the way of the Red Sea, as Jehovah hath spoken unto me, and we go round the mount of Seir many days..."
 weight: 2
 ---
 
-# Chapter 2
+# Deuteronomy 2 
 
 **¹** 'And we turn, and journey into the wilderness, the way of the Red Sea, as Jehovah hath spoken unto me, and we go round the mount of Seir many days.
 

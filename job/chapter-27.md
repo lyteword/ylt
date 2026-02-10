@@ -1,8 +1,11 @@
 ---
+title: "Job 27 YLT | Read the Bible Online"
+linkTitle: "27"
+description: "Read Job 27 Online | And Job addeth to lift up his simile, and saith: ..."
 weight: 27
 ---
 
-# Chapter 27
+# Job 27 
 
 **¹** And Job addeth to lift up his simile, and saith: —
 

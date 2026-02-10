@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read Deuteronomy 13 Online | 'When there ariseth in your midst a prophet, or a dreamer of a dream, and he hath given unto thee a sign or wonder..."
 weight: 13
 ---
 
-# Chapter 13
+# Deuteronomy 13 
 
 **¹** 'When there ariseth in your midst a prophet, or a dreamer of a dream, and he hath given unto thee a sign or wonder,
 

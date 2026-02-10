@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 18 YLT | Read the Bible Online"
+linkTitle: "18"
+description: "Read 2 Kings 18 Online | And it cometh to pass, in the third year of Hoshea son of Elah king of Israel, reigned hath Hezekiah son of Ahaz king of Judah..."
 weight: 18
 ---
 
-# Chapter 18
+# 2 Kings 18 
 
 **¹** And it cometh to pass, in the third year of Hoshea son of Elah king of Israel, reigned hath Hezekiah son of Ahaz king of Judah;
 

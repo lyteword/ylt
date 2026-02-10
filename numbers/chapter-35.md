@@ -1,8 +1,11 @@
 ---
+title: "Numbers 35 YLT | Read the Bible Online"
+linkTitle: "35"
+description: "Read Numbers 35 Online | And Jehovah speaketh unto Moses, in the plains of Moab, by Jordan, [near] Jericho, saying..."
 weight: 35
 ---
 
-# Chapter 35
+# Numbers 35 
 
 **¹** And Jehovah speaketh unto Moses, in the plains of Moab, by Jordan, [near] Jericho, saying,
 

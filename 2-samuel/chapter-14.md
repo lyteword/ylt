@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 14 YLT | Read the Bible Online"
+linkTitle: "14"
+description: "Read 2 Samuel 14 Online | And Joab son of Zeruial knoweth that the heart of the king [is] on Absalom..."
 weight: 14
 ---
 
-# Chapter 14
+# 2 Samuel 14 
 
 **¹** And Joab son of Zeruial knoweth that the heart of the king [is] on Absalom,
 

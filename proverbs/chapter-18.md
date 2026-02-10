@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 18 YLT | Read the Bible Online"
+linkTitle: "18"
+description: "Read Proverbs 18 Online | For [an object of] desire he who is separated doth seek, With all wisdom he intermeddleth..."
 weight: 18
 ---
 
-# Chapter 18
+# Proverbs 18 
 
 **¹** For [an object of] desire he who is separated doth seek, With all wisdom he intermeddleth.
 

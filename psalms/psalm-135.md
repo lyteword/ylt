@@ -1,8 +1,11 @@
 ---
+title: "Psalm 135 YLT | Read the Bible Online"
+linkTitle: "135"
+description: "Read Psalm 135 Online | Praise ye Jah! Praise ye the name of Jehovah, Praise, ye servants of Jehovah..."
 weight: 135
 ---
 
-# Psalm 135
+# Psalm 135 
 
 **¹** Praise ye Jah! Praise ye the name of Jehovah, Praise, ye servants of Jehovah,
 

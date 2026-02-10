@@ -1,8 +1,11 @@
 ---
+title: "Ruth 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Ruth 1 Online | And it cometh to pass, in the days of the judging of the judges, that there is a famine in the land, and there goeth a man from Beth-Lehem-Judah to sojourn in the fields of Moab, he, and his wife, and his two sons..."
 weight: 1
 ---
 
-# Chapter 1
+# Ruth 1 
 
 **¹** And it cometh to pass, in the days of the judging of the judges, that there is a famine in the land, and there goeth a man from Beth-Lehem-Judah to sojourn in the fields of Moab, he, and his wife, and his two sons.
 

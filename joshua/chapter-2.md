@@ -1,8 +1,11 @@
 ---
+title: "Joshua 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Joshua 2 Online | And Joshua son of Nun sendeth from Shittim, two men, spies, silently, saying, 'Go, see the land — and Jericho;' and they go and come into the house of a woman, a harlot, and her name [is] Rahab, and they lie down there..."
 weight: 2
 ---
 
-# Chapter 2
+# Joshua 2 
 
 **¹** And Joshua son of Nun sendeth from Shittim, two men, spies, silently, saying, 'Go, see the land — and Jericho;' and they go and come into the house of a woman, a harlot, and her name [is] Rahab, and they lie down there.
 

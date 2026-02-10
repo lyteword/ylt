@@ -1,8 +1,11 @@
 ---
+title: "2 Corinthians 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read 2 Corinthians 3 Online | Do we begin again to recommend ourselves, except we need, as some, letters of recommendation unto you, or from you..."
 weight: 3
 ---
 
-# Chapter 3
+# 2 Corinthians 3 
 
 **¹** Do we begin again to recommend ourselves, except we need, as some, letters of recommendation unto you, or from you?
 

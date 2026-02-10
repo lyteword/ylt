@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 26 YLT | Read the Bible Online"
+linkTitle: "26"
+description: "Read Jeremiah 26 Online | In the beginning of the reign of Jehoiakim son of Josiah, king of Judah, hath this word been from Jehovah, saying..."
 weight: 26
 ---
 
-# Chapter 26
+# Jeremiah 26 
 
 **¹** In the beginning of the reign of Jehoiakim son of Josiah, king of Judah, hath this word been from Jehovah, saying:
 

@@ -1,8 +1,11 @@
 ---
+title: "Psalm 94 YLT | Read the Bible Online"
+linkTitle: "94"
+description: "Read Psalm 94 Online | God of vengeance — Jehovah! God of vengeance, shine forth..."
 weight: 94
 ---
 
-# Psalm 94
+# Psalm 94 
 
 **¹** God of vengeance — Jehovah! God of vengeance, shine forth.
 

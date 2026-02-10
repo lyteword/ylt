@@ -1,8 +1,11 @@
 ---
+title: "Psalm 148 YLT | Read the Bible Online"
+linkTitle: "148"
+description: "Read Psalm 148 Online | Praise ye Jah! Praise ye Jehovah from the heavens, Praise ye Him in high places..."
 weight: 148
 ---
 
-# Psalm 148
+# Psalm 148 
 
 **¹** Praise ye Jah! Praise ye Jehovah from the heavens, Praise ye Him in high places.
 

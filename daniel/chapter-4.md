@@ -1,8 +1,11 @@
 ---
+title: "Daniel 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read Daniel 4 Online | 'Nebuchadnezzar the king to all peoples, nations, and languages, who are dwelling in all the earth: Your peace be great..."
 weight: 4
 ---
 
-# Chapter 4
+# Daniel 4 
 
 **¹** 'Nebuchadnezzar the king to all peoples, nations, and languages, who are dwelling in all the earth: Your peace be great!
 

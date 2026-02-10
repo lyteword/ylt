@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read Jeremiah 20 Online | And Pashhur son of Immer the priest — who also [is] overseer, leader in the house of Jehovah — heareth Jeremiah prophesying these things..."
 weight: 20
 ---
 
-# Chapter 20
+# Jeremiah 20 
 
 **¹** And Pashhur son of Immer the priest — who also [is] overseer, leader in the house of Jehovah — heareth Jeremiah prophesying these things,
 

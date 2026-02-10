@@ -1,8 +1,11 @@
 ---
+title: "John 7 YLT | Read the Bible Online"
+linkTitle: "7"
+description: "Read John 7 Online | And Jesus was walking after these things in Galilee, for he did not wish to walk in Judea, because the Jews were seeking to kill him..."
 weight: 7
 ---
 
-# Chapter 7
+# John 7 
 
 **¹** And Jesus was walking after these things in Galilee, for he did not wish to walk in Judea, because the Jews were seeking to kill him,
 

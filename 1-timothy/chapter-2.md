@@ -1,8 +1,11 @@
 ---
+title: "1 Timothy 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read 1 Timothy 2 Online | I exhort, then, first of all, there be made supplications, prayers, intercessions, thanksgivings, for all men..."
 weight: 2
 ---
 
-# Chapter 2
+# 1 Timothy 2 
 
 **¹** I exhort, then, first of all, there be made supplications, prayers, intercessions, thanksgivings, for all men:
 

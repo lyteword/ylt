@@ -1,8 +1,11 @@
 ---
+title: "Job 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Job 3 Online | After this hath Job opened his mouth, and revileth his day..."
 weight: 3
 ---
 
-# Chapter 3
+# Job 3 
 
 **¹** After this hath Job opened his mouth, and revileth his day.
 

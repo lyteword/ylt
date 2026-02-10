@@ -1,8 +1,11 @@
 ---
+title: "Exodus 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read Exodus 12 Online | And Jehovah speaketh unto Moses and unto Aaron, in the land of Egypt, saying..."
 weight: 12
 ---
 
-# Chapter 12
+# Exodus 12 
 
 **¹** And Jehovah speaketh unto Moses and unto Aaron, in the land of Egypt, saying,
 

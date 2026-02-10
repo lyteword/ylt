@@ -1,8 +1,11 @@
 ---
+title: "Hosea 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Hosea 2 Online | 'Say ye to your brethren — Ammi, And to your sisters — Ruhamah..."
 weight: 2
 ---
 
-# Chapter 2
+# Hosea 2 
 
 **¹** 'Say ye to your brethren — Ammi, And to your sisters — Ruhamah.
 

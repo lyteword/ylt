@@ -1,8 +1,11 @@
 ---
+title: "Joel 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Joel 3 Online | For lo, in those days, and in that time, When I turn back [to] the captivity of Judah and Jerusalem..."
 weight: 3
 ---
 
-# Chapter 3
+# Joel 3 
 
 **¹** For lo, in those days, and in that time, When I turn back [to] the captivity of Judah and Jerusalem,
 

@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read 1 Kings 6 Online | And it cometh to pass, in the four hundred and eightieth year of the going out of the sons of Israel from the land of Egypt, in the fourth year — in the month of Zif, it [is] the second month — of the reigning of Solomon over Israel, that he buildeth the house for Jehovah..."
 weight: 6
 ---
 
-# Chapter 6
+# 1 Kings 6 
 
 **¹** And it cometh to pass, in the four hundred and eightieth year of the going out of the sons of Israel from the land of Egypt, in the fourth year — in the month of Zif, it [is] the second month — of the reigning of Solomon over Israel, that he buildeth the house for Jehovah.
 

@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 31 YLT | Read the Bible Online"
+linkTitle: "31"
+description: "Read 1 Samuel 31 Online | And the Philistines are fighting against Israel, and the men of Israel flee from the face of the Philistines, and fall wounded in mount Gilboa..."
 weight: 31
 ---
 
-# Chapter 31
+# 1 Samuel 31 
 
 **¹** And the Philistines are fighting against Israel, and the men of Israel flee from the face of the Philistines, and fall wounded in mount Gilboa,
 

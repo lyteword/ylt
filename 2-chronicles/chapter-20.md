@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read 2 Chronicles 20 Online | And it cometh to pass after this, the sons of Moab have come in, and the sons of Ammon, and with them of the peoples, against Jehoshaphat to battle..."
 weight: 20
 ---
 
-# Chapter 20
+# 2 Chronicles 20 
 
 **¹** And it cometh to pass after this, the sons of Moab have come in, and the sons of Ammon, and with them of the peoples, against Jehoshaphat to battle.
 

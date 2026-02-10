@@ -1,8 +1,11 @@
 ---
+title: "Luke 23 YLT | Read the Bible Online"
+linkTitle: "23"
+description: "Read Luke 23 Online | And having risen, the whole multitude of them did lead him to Pilate..."
 weight: 23
 ---
 
-# Chapter 23
+# Luke 23 
 
 **¹** And having risen, the whole multitude of them did lead him to Pilate,
 

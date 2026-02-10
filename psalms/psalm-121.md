@@ -1,8 +1,11 @@
 ---
+title: "Psalm 121 YLT | Read the Bible Online"
+linkTitle: "121"
+description: "Read Psalm 121 Online | A Song of the Ascents. I lift up mine eyes unto the hills, Whence doth my help come..."
 weight: 121
 ---
 
-# Psalm 121
+# Psalm 121 
 
 **¹** A Song of the Ascents. I lift up mine eyes unto the hills, Whence doth my help come?
 

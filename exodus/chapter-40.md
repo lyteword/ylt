@@ -1,8 +1,11 @@
 ---
+title: "Exodus 40 YLT | Read the Bible Online"
+linkTitle: "40"
+description: "Read Exodus 40 Online | And Jehovah speaketh unto Moses, saying..."
 weight: 40
 ---
 
-# Chapter 40
+# Exodus 40 
 
 **¹** And Jehovah speaketh unto Moses, saying,
 

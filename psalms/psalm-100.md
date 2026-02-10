@@ -1,8 +1,11 @@
 ---
+title: "Psalm 100 YLT | Read the Bible Online"
+linkTitle: "100"
+description: "Read Psalm 100 Online | A Psalm of Thanksgiving. Shout to Jehovah, all the earth..."
 weight: 100
 ---
 
-# Psalm 100
+# Psalm 100 
 
 **¹** A Psalm of Thanksgiving. Shout to Jehovah, all the earth.
 

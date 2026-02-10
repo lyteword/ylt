@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 22 YLT | Read the Bible Online"
+linkTitle: "22"
+description: "Read Isaiah 22 Online | The burden of the Valley of Vision. What — to thee, now, that thou hast gone up, All of thee — to the roofs..."
 weight: 22
 ---
 
-# Chapter 22
+# Isaiah 22 
 
 **¹** The burden of the Valley of Vision. What — to thee, now, that thou hast gone up, All of thee — to the roofs?
 

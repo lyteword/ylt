@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 11 YLT | Read the Bible Online"
+linkTitle: "11"
+description: "Read 1 Kings 11 Online | And king Solomon hath loved many strange women, and the daughter of Pharaoh, females of Moab, Ammon, Edom, Zidon, [and] of the Hittites..."
 weight: 11
 ---
 
-# Chapter 11
+# 1 Kings 11 
 
 **¹** And king Solomon hath loved many strange women, and the daughter of Pharaoh, females of Moab, Ammon, Edom, Zidon, [and] of the Hittites,
 

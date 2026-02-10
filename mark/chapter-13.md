@@ -1,8 +1,11 @@
 ---
+title: "Mark 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read Mark 13 Online | And as he is going forth out of the temple, one of his disciples saith to him, 'Teacher, see! what stones! and what buildings!..."
 weight: 13
 ---
 
-# Chapter 13
+# Mark 13 
 
 **¹** And as he is going forth out of the temple, one of his disciples saith to him, 'Teacher, see! what stones! and what buildings!'
 

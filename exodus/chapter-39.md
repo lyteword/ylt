@@ -1,8 +1,11 @@
 ---
+title: "Exodus 39 YLT | Read the Bible Online"
+linkTitle: "39"
+description: "Read Exodus 39 Online | And of the blue, and the purple, and the scarlet, they made coloured garments, to minister in the sanctuary; and they make the holy garments which [are] for Aaron, as Jehovah hath commanded Moses..."
 weight: 39
 ---
 
-# Chapter 39
+# Exodus 39 
 
 **¹** And of the blue, and the purple, and the scarlet, they made coloured garments, to minister in the sanctuary; and they make the holy garments which [are] for Aaron, as Jehovah hath commanded Moses.
 

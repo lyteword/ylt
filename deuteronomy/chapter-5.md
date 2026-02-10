@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read Deuteronomy 5 Online | And Moses calleth unto all Israel, and saith unto them, 'Hear, Israel, the statutes and the judgments which I am speaking in your ears to-day, and ye have learned them, and have observed to do them..."
 weight: 5
 ---
 
-# Chapter 5
+# Deuteronomy 5 
 
 **¹** And Moses calleth unto all Israel, and saith unto them, 'Hear, Israel, the statutes and the judgments which I am speaking in your ears to-day, and ye have learned them, and have observed to do them.
 

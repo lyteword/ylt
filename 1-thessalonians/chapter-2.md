@@ -1,8 +1,11 @@
 ---
+title: "1 Thessalonians 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read 1 Thessalonians 2 Online | For yourselves have known, brethren, our entrance in unto you, that it did not become vain..."
 weight: 2
 ---
 
-# Chapter 2
+# 1 Thessalonians 2 
 
 **¹** For yourselves have known, brethren, our entrance in unto you, that it did not become vain,
 

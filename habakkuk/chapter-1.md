@@ -1,8 +1,11 @@
 ---
+title: "Habakkuk 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Habakkuk 1 Online | The burden that Habakkuk the prophet hath seen..."
 weight: 1
 ---
 
-# Chapter 1
+# Habakkuk 1 
 
 **¹** The burden that Habakkuk the prophet hath seen:
 

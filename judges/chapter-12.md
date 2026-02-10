@@ -1,8 +1,11 @@
 ---
+title: "Judges 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read Judges 12 Online | And the men of Ephraim are called together, and pass over northward, and say to Jephthah, 'Wherefore has thou passed over to fight against the Bene-Ammon, and on us hast not called to go with thee? thy house we burn over thee with fire...."
 weight: 12
 ---
 
-# Chapter 12
+# Judges 12 
 
 **¹** And the men of Ephraim are called together, and pass over northward, and say to Jephthah, 'Wherefore has thou passed over to fight against the Bene-Ammon, and on us hast not called to go with thee? thy house we burn over thee with fire.'
 

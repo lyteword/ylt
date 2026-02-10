@@ -1,8 +1,11 @@
 ---
+title: "Revelation 11 YLT | Read the Bible Online"
+linkTitle: "11"
+description: "Read Revelation 11 Online | And there was given to me a reed like to a rod, and the messenger stood, saying, 'Rise, and measure the sanctuary of God, and the altar, and those worshipping in it..."
 weight: 11
 ---
 
-# Chapter 11
+# Revelation 11 
 
 **¹** And there was given to me a reed like to a rod, and the messenger stood, saying, 'Rise, and measure the sanctuary of God, and the altar, and those worshipping in it;
 

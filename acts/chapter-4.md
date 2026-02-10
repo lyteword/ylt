@@ -1,8 +1,11 @@
 ---
+title: "Acts 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read Acts 4 Online | And as they are speaking unto the people, there came to them the priests, and the magistrate of the temple, and the Sadducees ..."
 weight: 4
 ---
 
-# Chapter 4
+# Acts 4 
 
 **¹** And as they are speaking unto the people, there came to them the priests, and the magistrate of the temple, and the Sadducees —
 

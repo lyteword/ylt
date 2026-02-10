@@ -1,8 +1,11 @@
 ---
+title: "James 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read James 1 Online | James, of God and of the Lord Jesus Christ a servant, to the Twelve Tribes who are in the dispersion: Hail..."
 weight: 1
 ---
 
-# Chapter 1
+# James 1 
 
 **¹** James, of God and of the Lord Jesus Christ a servant, to the Twelve Tribes who are in the dispersion: Hail!
 

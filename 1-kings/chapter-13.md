@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read 1 Kings 13 Online | And lo, a man of God hath come from Judah, by the word of Jehovah, unto Beth-El, and Jeroboam is standing by the altar — to make perfume..."
 weight: 13
 ---
 
-# Chapter 13
+# 1 Kings 13 
 
 **¹** And lo, a man of God hath come from Judah, by the word of Jehovah, unto Beth-El, and Jeroboam is standing by the altar — to make perfume;
 

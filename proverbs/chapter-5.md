@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read Proverbs 5 Online | My son! to my wisdom give attention, To mine understanding incline thine ear..."
 weight: 5
 ---
 
-# Chapter 5
+# Proverbs 5 
 
 **¹** My son! to my wisdom give attention, To mine understanding incline thine ear,
 

@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read Deuteronomy 8 Online | 'All the command which I am commanding thee to-day ye observe to do, so that ye live, and have multiplied, and gone in, and possessed the land which Jehovah hath sworn to your fathers..."
 weight: 8
 ---
 
-# Chapter 8
+# Deuteronomy 8 
 
 **¹** 'All the command which I am commanding thee to-day ye observe to do, so that ye live, and have multiplied, and gone in, and possessed the land which Jehovah hath sworn to your fathers;
 

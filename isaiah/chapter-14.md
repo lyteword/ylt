@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 14 YLT | Read the Bible Online"
+linkTitle: "14"
+description: "Read Isaiah 14 Online | Because Jehovah loveth Jacob, And hath fixed again on Israel, And given them rest on their own land, And joined hath been the sojourner to them, And they have been admitted to the house of Jacob..."
 weight: 14
 ---
 
-# Chapter 14
+# Isaiah 14 
 
 **¹** Because Jehovah loveth Jacob, And hath fixed again on Israel, And given them rest on their own land, And joined hath been the sojourner to them, And they have been admitted to the house of Jacob.
 

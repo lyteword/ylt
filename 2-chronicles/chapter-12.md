@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read 2 Chronicles 12 Online | And it cometh to pass, at the establishing of the kingdom of Rehoboam, and at his strengthening himself, he hath forsaken the law of Jehovah, and all Israel with him..."
 weight: 12
 ---
 
-# Chapter 12
+# 2 Chronicles 12 
 
 **¹** And it cometh to pass, at the establishing of the kingdom of Rehoboam, and at his strengthening himself, he hath forsaken the law of Jehovah, and all Israel with him.
 

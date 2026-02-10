@@ -1,8 +1,11 @@
 ---
+title: "Hebrews 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read Hebrews 10 Online | For the law having a shadow of the coming good things — not the very image of the matters, every year, by the same sacrifices that they offer continually, is never able to make perfect those coming near..."
 weight: 10
 ---
 
-# Chapter 10
+# Hebrews 10 
 
 **¹** For the law having a shadow of the coming good things — not the very image of the matters, every year, by the same sacrifices that they offer continually, is never able to make perfect those coming near,
 

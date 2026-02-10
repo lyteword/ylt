@@ -1,8 +1,11 @@
 ---
+title: "Genesis 35 YLT | Read the Bible Online"
+linkTitle: "35"
+description: "Read Genesis 35 Online | And God saith unto Jacob, 'Rise, go up to Bethel, and dwell there, and make there an altar to God, who appeared unto thee in thy fleeing from the face of Esau thy brother...."
 weight: 35
 ---
 
-# Chapter 35
+# Genesis 35 
 
 **¹** And God saith unto Jacob, 'Rise, go up to Bethel, and dwell there, and make there an altar to God, who appeared unto thee in thy fleeing from the face of Esau thy brother.'
 

@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read Proverbs 20 Online | Wine [is] a scorner — strong drink [is] noisy, And any going astray in it is not wise..."
 weight: 20
 ---
 
-# Chapter 20
+# Proverbs 20 
 
 **¹** Wine [is] a scorner — strong drink [is] noisy, And any going astray in it is not wise.
 

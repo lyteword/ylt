@@ -1,8 +1,11 @@
 ---
+title: "Matthew 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read Matthew 9 Online | And having gone to the boat, he passed over, and came to his own city..."
 weight: 9
 ---
 
-# Chapter 9
+# Matthew 9 
 
 **¹** And having gone to the boat, he passed over, and came to his own city,
 

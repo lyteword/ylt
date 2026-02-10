@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read Leviticus 9 Online | And it cometh to pass on the eighth day, Moses hath called for Aaron and for his sons, and for the elders of Israel..."
 weight: 9
 ---
 
-# Chapter 9
+# Leviticus 9 
 
 **¹** And it cometh to pass on the eighth day, Moses hath called for Aaron and for his sons, and for the elders of Israel,
 

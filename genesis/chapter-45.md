@@ -1,8 +1,11 @@
 ---
+title: "Genesis 45 YLT | Read the Bible Online"
+linkTitle: "45"
+description: "Read Genesis 45 Online | And Joseph hath not been able to refrain himself before all those standing by him, and he calleth, 'Put out every man from me;' and no man hath stood with him when Joseph maketh himself known unto his brethren..."
 weight: 45
 ---
 
-# Chapter 45
+# Genesis 45 
 
 **¹** And Joseph hath not been able to refrain himself before all those standing by him, and he calleth, 'Put out every man from me;' and no man hath stood with him when Joseph maketh himself known unto his brethren,
 

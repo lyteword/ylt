@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 15 YLT | Read the Bible Online"
+linkTitle: "15"
+description: "Read 2 Chronicles 15 Online | And upon Azariah son of Oded hath been the Spirit of God..."
 weight: 15
 ---
 
-# Chapter 15
+# 2 Chronicles 15 
 
 **¹** And upon Azariah son of Oded hath been the Spirit of God,
 

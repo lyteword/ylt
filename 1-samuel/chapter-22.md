@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 22 YLT | Read the Bible Online"
+linkTitle: "22"
+description: "Read 1 Samuel 22 Online | And David goeth thence, and is escaped unto the cave of Adullam, and his brethren hear, and all the house of his father, and go down unto him thither..."
 weight: 22
 ---
 
-# Chapter 22
+# 1 Samuel 22 
 
 **¹** And David goeth thence, and is escaped unto the cave of Adullam, and his brethren hear, and all the house of his father, and go down unto him thither;
 

@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 7 YLT | Read the Bible Online"
+linkTitle: "7"
+description: "Read Isaiah 7 Online | And it cometh to pass in the days of Ahaz, son of Jotham, son of Uzziah, king of Judah, gone up hath Rezin king of Aram, and Pekah, son of Remaliah, king of Israel, to Jerusalem, to battle against it, and he is not able to fight against it..."
 weight: 7
 ---
 
-# Chapter 7
+# Isaiah 7 
 
 **¹** And it cometh to pass in the days of Ahaz, son of Jotham, son of Uzziah, king of Judah, gone up hath Rezin king of Aram, and Pekah, son of Remaliah, king of Israel, to Jerusalem, to battle against it, and he is not able to fight against it.
 

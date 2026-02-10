@@ -1,8 +1,11 @@
 ---
+title: "Luke 24 YLT | Read the Bible Online"
+linkTitle: "24"
+description: "Read Luke 24 Online | And on the first of the sabbaths, at early dawn, they came to the tomb, bearing the spices they made ready, and certain [others] with them..."
 weight: 24
 ---
 
-# Chapter 24
+# Luke 24 
 
 **¹** And on the first of the sabbaths, at early dawn, they came to the tomb, bearing the spices they made ready, and certain [others] with them,
 

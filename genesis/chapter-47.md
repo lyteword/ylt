@@ -1,8 +1,11 @@
 ---
+title: "Genesis 47 YLT | Read the Bible Online"
+linkTitle: "47"
+description: "Read Genesis 47 Online | And Joseph cometh, and declareth to Pharaoh, and saith, 'My father, and my brethren, and their flock, and their herd, and all they have, have come from the land of Canaan, and lo, they [are] in the land of Goshen...."
 weight: 47
 ---
 
-# Chapter 47
+# Genesis 47 
 
 **¹** And Joseph cometh, and declareth to Pharaoh, and saith, 'My father, and my brethren, and their flock, and their herd, and all they have, have come from the land of Canaan, and lo, they [are] in the land of Goshen.'
 

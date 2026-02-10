@@ -1,8 +1,11 @@
 ---
+title: "Romans 16 YLT | Read the Bible Online"
+linkTitle: "16"
+description: "Read Romans 16 Online | And I commend you to Phebe our sister — being a ministrant of the assembly that [is] in Cenchrea ..."
 weight: 16
 ---
 
-# Chapter 16
+# Romans 16 
 
 **¹** And I commend you to Phebe our sister — being a ministrant of the assembly that [is] in Cenchrea —
 

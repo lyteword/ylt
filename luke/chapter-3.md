@@ -1,8 +1,11 @@
 ---
+title: "Luke 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Luke 3 Online | And in the fifteenth year of the government of Tiberius Caesar — Pontius Pilate being governor of Judea, and Herod tetrarch of Galilee, and Philip his brother, tetrarch of Ituraea and of the region of Trachonitis, and Lysanias tetrarch of Abilene ..."
 weight: 3
 ---
 
-# Chapter 3
+# Luke 3 
 
 **¹** And in the fifteenth year of the government of Tiberius Caesar — Pontius Pilate being governor of Judea, and Herod tetrarch of Galilee, and Philip his brother, tetrarch of Ituraea and of the region of Trachonitis, and Lysanias tetrarch of Abilene —
 

@@ -1,8 +1,11 @@
 ---
+title: "Romans 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read Romans 10 Online | Brethren, the pleasure indeed of my heart, and my supplication that [is] to God for Israel, is — for salvation..."
 weight: 10
 ---
 
-# Chapter 10
+# Romans 10 
 
 **¹** Brethren, the pleasure indeed of my heart, and my supplication that [is] to God for Israel, is — for salvation;
 

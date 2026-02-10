@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 11 YLT | Read the Bible Online"
+linkTitle: "11"
+description: "Read 2 Chronicles 11 Online | And Rehoboam cometh in to Jerusalem, and assembleth the house of Judah and Benjamin, a hundred and eighty thousand chosen warriors, to fight with Israel, to bring back the kingdom to Rehoboam..."
 weight: 11
 ---
 
-# Chapter 11
+# 2 Chronicles 11 
 
 **¹** And Rehoboam cometh in to Jerusalem, and assembleth the house of Judah and Benjamin, a hundred and eighty thousand chosen warriors, to fight with Israel, to bring back the kingdom to Rehoboam.
 

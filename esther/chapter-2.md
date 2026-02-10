@@ -1,8 +1,11 @@
 ---
+title: "Esther 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Esther 2 Online | After these things, at the ceasing of the fury of the king Ahasuerus, he hath remembered Vashti, and that which she did, and that which hath been decreed concerning her..."
 weight: 2
 ---
 
-# Chapter 2
+# Esther 2 
 
 **¹** After these things, at the ceasing of the fury of the king Ahasuerus, he hath remembered Vashti, and that which she did, and that which hath been decreed concerning her;
 

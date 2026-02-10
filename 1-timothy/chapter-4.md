@@ -1,8 +1,11 @@
 ---
+title: "1 Timothy 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read 1 Timothy 4 Online | And the Spirit expressly speaketh, that in latter times shall certain fall away from the faith, giving heed to seducing spirits and teachings of demons..."
 weight: 4
 ---
 
-# Chapter 4
+# 1 Timothy 4 
 
 **¹** And the Spirit expressly speaketh, that in latter times shall certain fall away from the faith, giving heed to seducing spirits and teachings of demons,
 

@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 7 YLT | Read the Bible Online"
+linkTitle: "7"
+description: "Read Deuteronomy 7 Online | 'When Jehovah thy God doth bring thee in unto the land whither thou art going in to possess it, and He hath cast out many nations from thy presence, the Hittite, and the Girgashite, and the Amorite, and the Canaanite, and the Perizzite, and the Hivite, and the Jebusite, seven nations more numerous and mighty than thou..."
 weight: 7
 ---
 
-# Chapter 7
+# Deuteronomy 7 
 
 **¹** 'When Jehovah thy God doth bring thee in unto the land whither thou art going in to possess it, and He hath cast out many nations from thy presence, the Hittite, and the Girgashite, and the Amorite, and the Canaanite, and the Perizzite, and the Hivite, and the Jebusite, seven nations more numerous and mighty than thou,
 

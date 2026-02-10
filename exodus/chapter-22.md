@@ -1,8 +1,11 @@
 ---
+title: "Exodus 22 YLT | Read the Bible Online"
+linkTitle: "22"
+description: "Read Exodus 22 Online | 'When a man doth steal an ox or sheep, and hath slaughtered it or sold it, five of the herd he doth repay for the ox, and four of the flock for the sheep..."
 weight: 22
 ---
 
-# Chapter 22
+# Exodus 22 
 
 **¹** 'When a man doth steal an ox or sheep, and hath slaughtered it or sold it, five of the herd he doth repay for the ox, and four of the flock for the sheep.
 

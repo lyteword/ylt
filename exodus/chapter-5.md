@@ -1,8 +1,11 @@
 ---
+title: "Exodus 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read Exodus 5 Online | And afterwards have Moses and Aaron entered, and they say unto Pharaoh, 'Thus said Jehovah, God of Israel, Send My people away, and they keep a feast to Me in the wilderness;..."
 weight: 5
 ---
 
-# Chapter 5
+# Exodus 5 
 
 **¹** And afterwards have Moses and Aaron entered, and they say unto Pharaoh, 'Thus said Jehovah, God of Israel, Send My people away, and they keep a feast to Me in the wilderness;'
 

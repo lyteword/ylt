@@ -1,8 +1,11 @@
 ---
+title: "Romans 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read Romans 4 Online | What, then, shall we say Abraham our father, to have found, according to flesh..."
 weight: 4
 ---
 
-# Chapter 4
+# Romans 4 
 
 **¹** What, then, shall we say Abraham our father, to have found, according to flesh?
 

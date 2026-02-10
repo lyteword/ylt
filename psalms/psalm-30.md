@@ -1,8 +1,11 @@
 ---
+title: "Psalm 30 YLT | Read the Bible Online"
+linkTitle: "30"
+description: "Read Psalm 30 Online | A Psalm. — A song of the dedication of the house of David. I exalt Thee, O Jehovah, For Thou hast drawn me up, and hast not let mine enemies rejoice over me..."
 weight: 30
 ---
 
-# Psalm 30
+# Psalm 30 
 
 **¹** A Psalm. — A song of the dedication of the house of David. I exalt Thee, O Jehovah, For Thou hast drawn me up, and hast not let mine enemies rejoice over me.
 

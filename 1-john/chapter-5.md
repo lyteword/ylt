@@ -1,8 +1,11 @@
 ---
+title: "1 John 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read 1 John 5 Online | Every one who is believing that Jesus is the Christ, of God he hath been begotten, and every one who is loving Him who did beget, doth love also him who is begotten of Him..."
 weight: 5
 ---
 
-# Chapter 5
+# 1 John 5 
 
 **¹** Every one who is believing that Jesus is the Christ, of God he hath been begotten, and every one who is loving Him who did beget, doth love also him who is begotten of Him:
 

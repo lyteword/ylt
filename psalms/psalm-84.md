@@ -1,8 +1,11 @@
 ---
+title: "Psalm 84 YLT | Read the Bible Online"
+linkTitle: "84"
+description: "Read Psalm 84 Online | To the Overseer. — 'On the Gittith By sons of Korah.' — A Psalm. How beloved Thy tabernacles, Jehovah of Hosts..."
 weight: 84
 ---
 
-# Psalm 84
+# Psalm 84 
 
 **¹** To the Overseer. — 'On the Gittith By sons of Korah.' — A Psalm. How beloved Thy tabernacles, Jehovah of Hosts!
 

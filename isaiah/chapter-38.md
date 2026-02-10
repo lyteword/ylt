@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 38 YLT | Read the Bible Online"
+linkTitle: "38"
+description: "Read Isaiah 38 Online | In those days hath Hezekiah been sick unto death, and come in unto him doth Isaiah son of Amoz, the prophet, and saith unto him, 'Thus said Jehovah: Give a charge to thy house, for thou [art] dying, and dost not live...."
 weight: 38
 ---
 
-# Chapter 38
+# Isaiah 38 
 
 **¹** In those days hath Hezekiah been sick unto death, and come in unto him doth Isaiah son of Amoz, the prophet, and saith unto him, 'Thus said Jehovah: Give a charge to thy house, for thou [art] dying, and dost not live.'
 

@@ -1,8 +1,11 @@
 ---
+title: "Psalm 66 YLT | Read the Bible Online"
+linkTitle: "66"
+description: "Read Psalm 66 Online | To the Overseer. — A Song, a Psalm. Shout ye to God, all the earth..."
 weight: 66
 ---
 
-# Psalm 66
+# Psalm 66 
 
 **¹** To the Overseer. — A Song, a Psalm. Shout ye to God, all the earth.
 

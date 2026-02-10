@@ -1,8 +1,11 @@
 ---
+title: "Judges 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read Judges 13 Online | And the sons of Israel add to do the evil thing in the eyes of Jehovah, and Jehovah giveth them into the hand of the Philistines forty years..."
 weight: 13
 ---
 
-# Chapter 13
+# Judges 13 
 
 **¹** And the sons of Israel add to do the evil thing in the eyes of Jehovah, and Jehovah giveth them into the hand of the Philistines forty years.
 

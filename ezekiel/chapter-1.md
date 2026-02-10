@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Ezekiel 1 Online | And it cometh to pass, in the thirtieth year, in the fourth [month], in the fifth of the month, and I [am] in the midst of the Removed by the river Chebar, the heavens have been opened, and I see visions of God..."
 weight: 1
 ---
 
-# Chapter 1
+# Ezekiel 1 
 
 **¹** And it cometh to pass, in the thirtieth year, in the fourth [month], in the fifth of the month, and I [am] in the midst of the Removed by the river Chebar, the heavens have been opened, and I see visions of God.
 

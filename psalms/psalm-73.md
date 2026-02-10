@@ -1,8 +1,11 @@
 ---
+title: "Psalm 73 YLT | Read the Bible Online"
+linkTitle: "73"
+description: "Read Psalm 73 Online | A Psalm of Asaph. Only — good to Israel [is] God, to the clean of heart. And I — as a little thing, My feet have been turned aside..."
 weight: 73
 ---
 
-# Psalm 73
+# Psalm 73 
 
 **¹** A Psalm of Asaph. Only — good to Israel [is] God, to the clean of heart. And I — as a little thing, My feet have been turned aside,
 

@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 17 YLT | Read the Bible Online"
+linkTitle: "17"
+description: "Read Jeremiah 17 Online | The sin of Judah is written with a pen of iron, With the point of a diamond, Graven on the tablet of their heart, And on the horns of your altars..."
 weight: 17
 ---
 
-# Chapter 17
+# Jeremiah 17 
 
 **¹** The sin of Judah is written with a pen of iron, With the point of a diamond, Graven on the tablet of their heart, And on the horns of your altars,
 

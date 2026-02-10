@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 46 YLT | Read the Bible Online"
+linkTitle: "46"
+description: "Read Ezekiel 46 Online | 'Thus said the Lord Jehovah: The gate of the inner court that is looking eastward is shut the six days of work, and on the day of rest it is opened, and in the day of the new moon it is opened..."
 weight: 46
 ---
 
-# Chapter 46
+# Ezekiel 46 
 
 **¹** 'Thus said the Lord Jehovah: The gate of the inner court that is looking eastward is shut the six days of work, and on the day of rest it is opened, and in the day of the new moon it is opened;
 

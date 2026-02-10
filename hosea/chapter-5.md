@@ -1,8 +1,11 @@
 ---
+title: "Hosea 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read Hosea 5 Online | 'Hear this, O priests, and attend, O house of Israel, And, O house of the king, give ear, For the judgment [is] for you, For, a snare ye have been on Mizpah, And a net spread out on Tabor..."
 weight: 5
 ---
 
-# Chapter 5
+# Hosea 5 
 
 **¹** 'Hear this, O priests, and attend, O house of Israel, And, O house of the king, give ear, For the judgment [is] for you, For, a snare ye have been on Mizpah, And a net spread out on Tabor.
 

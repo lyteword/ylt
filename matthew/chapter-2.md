@@ -1,8 +1,11 @@
 ---
+title: "Matthew 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Matthew 2 Online | And Jesus having been born in Beth-Lehem of Judea, in the days of Herod the king, lo, mages from the east came to Jerusalem..."
 weight: 2
 ---
 
-# Chapter 2
+# Matthew 2 
 
 **¹** And Jesus having been born in Beth-Lehem of Judea, in the days of Herod the king, lo, mages from the east came to Jerusalem,
 

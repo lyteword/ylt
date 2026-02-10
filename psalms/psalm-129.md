@@ -1,8 +1,11 @@
 ---
+title: "Psalm 129 YLT | Read the Bible Online"
+linkTitle: "129"
+description: "Read Psalm 129 Online | A Song of the Ascents. Often they distressed me from my youth, Pray, let Israel say..."
 weight: 129
 ---
 
-# Psalm 129
+# Psalm 129 
 
 **¹** A Song of the Ascents. Often they distressed me from my youth, Pray, let Israel say:
 

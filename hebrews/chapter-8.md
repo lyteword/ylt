@@ -1,8 +1,11 @@
 ---
+title: "Hebrews 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read Hebrews 8 Online | And the sum concerning the things spoken of [is]: we have such a chief priest, who did sit down at the right hand of the throne of the greatness in the heavens..."
 weight: 8
 ---
 
-# Chapter 8
+# Hebrews 8 
 
 **¹** And the sum concerning the things spoken of [is]: we have such a chief priest, who did sit down at the right hand of the throne of the greatness in the heavens,
 

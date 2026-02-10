@@ -1,8 +1,11 @@
 ---
+title: "Numbers 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read Numbers 9 Online | And Jehovah speaketh unto Moses, in the wilderness of Sinai, in the second year of their going out of the land of Egypt, in the first month, saying..."
 weight: 9
 ---
 
-# Chapter 9
+# Numbers 9 
 
 **¹** And Jehovah speaketh unto Moses, in the wilderness of Sinai, in the second year of their going out of the land of Egypt, in the first month, saying,
 

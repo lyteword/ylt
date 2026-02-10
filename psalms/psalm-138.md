@@ -1,8 +1,11 @@
 ---
+title: "Psalm 138 YLT | Read the Bible Online"
+linkTitle: "138"
+description: "Read Psalm 138 Online | By David. I confess Thee, with all my heart, Before the gods I do praise Thee..."
 weight: 138
 ---
 
-# Psalm 138
+# Psalm 138 
 
 **¹** By David. I confess Thee, with all my heart, Before the gods I do praise Thee.
 

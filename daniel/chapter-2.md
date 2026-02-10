@@ -1,8 +1,11 @@
 ---
+title: "Daniel 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Daniel 2 Online | And in the second year of the reign of Nebuchadnezzar, dreamed hath Nebuchadnezzar dreams, and his spirit doth move itself, and his sleep hath been against him..."
 weight: 2
 ---
 
-# Chapter 2
+# Daniel 2 
 
 **¹** And in the second year of the reign of Nebuchadnezzar, dreamed hath Nebuchadnezzar dreams, and his spirit doth move itself, and his sleep hath been against him;
 

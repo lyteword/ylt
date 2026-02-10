@@ -1,8 +1,11 @@
 ---
+title: "Judges 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Judges 3 Online | And these [are] the nations which Jehovah left, to try Israel by them, all who have not known all the wars of Canaan..."
 weight: 3
 ---
 
-# Chapter 3
+# Judges 3 
 
 **¹** And these [are] the nations which Jehovah left, to try Israel by them, all who have not known all the wars of Canaan;
 

@@ -1,8 +1,11 @@
 ---
+title: "Revelation 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read Revelation 8 Online | And when he openeth the seventh seal, there came silence in the heaven about half-an-hour..."
 weight: 8
 ---
 
-# Chapter 8
+# Revelation 8 
 
 **¹** And when he openeth the seventh seal, there came silence in the heaven about half-an-hour,
 

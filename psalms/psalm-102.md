@@ -1,8 +1,11 @@
 ---
+title: "Psalm 102 YLT | Read the Bible Online"
+linkTitle: "102"
+description: "Read Psalm 102 Online | A Prayer of the afflicted when he is feeble, and before Jehovah poureth out his plaint. O Jehovah, hear my prayer, yea, my cry to Thee cometh..."
 weight: 102
 ---
 
-# Psalm 102
+# Psalm 102 
 
 **¹** A Prayer of the afflicted when he is feeble, and before Jehovah poureth out his plaint. O Jehovah, hear my prayer, yea, my cry to Thee cometh.
 

@@ -1,8 +1,11 @@
 ---
+title: "Malachi 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Malachi 2 Online | And now, to you [is] this charge, O priests..."
 weight: 2
 ---
 
-# Chapter 2
+# Malachi 2 
 
 **¹** And now, to you [is] this charge, O priests,
 

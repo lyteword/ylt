@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 26 YLT | Read the Bible Online"
+linkTitle: "26"
+description: "Read Isaiah 26 Online | In that day sung is this song in the land of Judah: 'We have a strong city, Salvation He doth make walls and bulwark..."
 weight: 26
 ---
 
-# Chapter 26
+# Isaiah 26 
 
 **¹** In that day sung is this song in the land of Judah: 'We have a strong city, Salvation He doth make walls and bulwark.
 

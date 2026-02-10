@@ -1,8 +1,11 @@
 ---
+title: "Psalm 150 YLT | Read the Bible Online"
+linkTitle: "150"
+description: "Read Psalm 150 Online | Praise ye Jah! Praise ye God in His holy place, Praise Him in the expanse of His strength..."
 weight: 150
 ---
 
-# Psalm 150
+# Psalm 150 
 
 **¹** Praise ye Jah! Praise ye God in His holy place, Praise Him in the expanse of His strength.
 

@@ -1,8 +1,11 @@
 ---
+title: "2 Corinthians 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read 2 Corinthians 8 Online | And we make known to you, brethren, the grace of God, that hath been given in the assemblies of Macedonia..."
 weight: 8
 ---
 
-# Chapter 8
+# 2 Corinthians 8 
 
 **¹** And we make known to you, brethren, the grace of God, that hath been given in the assemblies of Macedonia,
 

@@ -1,8 +1,11 @@
 ---
+title: "Psalm 18 YLT | Read the Bible Online"
+linkTitle: "18"
+description: "Read Psalm 18 Online | To the Overseer. — By a servant of Jehovah, by David, who hath spoken to Jehovah the words of this song in the day Jehovah delivered him from the hand of all his enemies, and from the hand of Saul, and he saith: — I love Thee, O Jehovah, my strength..."
 weight: 18
 ---
 
-# Psalm 18
+# Psalm 18 
 
 **¹** To the Overseer. — By a servant of Jehovah, by David, who hath spoken to Jehovah the words of this song in the day Jehovah delivered him from the hand of all his enemies, and from the hand of Saul, and he saith: — I love Thee, O Jehovah, my strength.
 

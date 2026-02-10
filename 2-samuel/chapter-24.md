@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 24 YLT | Read the Bible Online"
+linkTitle: "24"
+description: "Read 2 Samuel 24 Online | And the anger of Jehovah addeth to burn against Israel, and [an adversary] moveth David about them, saying, 'Go, number Israel and Judah...."
 weight: 24
 ---
 
-# Chapter 24
+# 2 Samuel 24 
 
 **¹** And the anger of Jehovah addeth to burn against Israel, and [an adversary] moveth David about them, saying, 'Go, number Israel and Judah.'
 

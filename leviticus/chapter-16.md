@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 16 YLT | Read the Bible Online"
+linkTitle: "16"
+description: "Read Leviticus 16 Online | And Jehovah speaketh unto Moses, after the death of the two sons of Aaron, in their drawing near before Jehovah, and they die..."
 weight: 16
 ---
 
-# Chapter 16
+# Leviticus 16 
 
 **¹** And Jehovah speaketh unto Moses, after the death of the two sons of Aaron, in their drawing near before Jehovah, and they die;
 

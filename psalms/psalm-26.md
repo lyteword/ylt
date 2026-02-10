@@ -1,8 +1,11 @@
 ---
+title: "Psalm 26 YLT | Read the Bible Online"
+linkTitle: "26"
+description: "Read Psalm 26 Online | By David. Judge me, O Jehovah, for I in mine integrity have walked, And in Jehovah I have trusted, I slide not..."
 weight: 26
 ---
 
-# Psalm 26
+# Psalm 26 
 
 **¹** By David. Judge me, O Jehovah, for I in mine integrity have walked, And in Jehovah I have trusted, I slide not.
 

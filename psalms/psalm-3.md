@@ -1,8 +1,11 @@
 ---
+title: "Psalm 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Psalm 3 Online | A Psalm of David, in his fleeing from the face of Absalom his son. Jehovah, how have my distresses multiplied! Many are rising up against me..."
 weight: 3
 ---
 
-# Psalm 3
+# Psalm 3 
 
 **¹** A Psalm of David, in his fleeing from the face of Absalom his son. Jehovah, how have my distresses multiplied! Many are rising up against me.
 

@@ -1,8 +1,11 @@
 ---
+title: "Joshua 17 YLT | Read the Bible Online"
+linkTitle: "17"
+description: "Read Joshua 17 Online | And the lot is for the tribe of Manasseh (for he [is] first-born of Joseph), for Machir first-born of Manasseh, father of Gilead, for he hath been a man of war, and his are Gilead and Bashan..."
 weight: 17
 ---
 
-# Chapter 17
+# Joshua 17 
 
 **¹** And the lot is for the tribe of Manasseh (for he [is] first-born of Joseph), for Machir first-born of Manasseh, father of Gilead, for he hath been a man of war, and his are Gilead and Bashan.
 

@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 45 YLT | Read the Bible Online"
+linkTitle: "45"
+description: "Read Ezekiel 45 Online | And in your causing the land to fall in inheritance, ye lift up a heave-offering to Jehovah, a holy [portion] of the land: the length — five and twenty thousand [is] the length, and the breadth ten thousand; it [is] holy in all its border round about..."
 weight: 45
 ---
 
-# Chapter 45
+# Ezekiel 45 
 
 **¹** And in your causing the land to fall in inheritance, ye lift up a heave-offering to Jehovah, a holy [portion] of the land: the length — five and twenty thousand [is] the length, and the breadth ten thousand; it [is] holy in all its border round about.
 

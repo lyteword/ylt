@@ -1,8 +1,11 @@
 ---
+title: "Mark 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Mark 1 Online | A beginning of the good news of Jesus Christ, Son of God..."
 weight: 1
 ---
 
-# Chapter 1
+# Mark 1 
 
 **¹** A beginning of the good news of Jesus Christ, Son of God.
 

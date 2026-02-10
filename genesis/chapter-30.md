@@ -1,8 +1,11 @@
 ---
+title: "Genesis 30 YLT | Read the Bible Online"
+linkTitle: "30"
+description: "Read Genesis 30 Online | And Rachel seeth that she hath not borne to Jacob, and Rachel is envious of her sister, and saith unto Jacob, 'Give me sons, and if there is none — I die...."
 weight: 30
 ---
 
-# Chapter 30
+# Genesis 30 
 
 **¹** And Rachel seeth that she hath not borne to Jacob, and Rachel is envious of her sister, and saith unto Jacob, 'Give me sons, and if there is none — I die.'
 

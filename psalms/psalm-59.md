@@ -1,8 +1,11 @@
 ---
+title: "Psalm 59 YLT | Read the Bible Online"
+linkTitle: "59"
+description: "Read Psalm 59 Online | To the Overseer. — 'Destroy not,' by David. — A secret treasure, in Saul's sending, and they watch the house to put him to death. Deliver me from mine enemies, O my God, From my withstanders set me on high..."
 weight: 59
 ---
 
-# Psalm 59
+# Psalm 59 
 
 **¹** To the Overseer. — 'Destroy not,' by David. — A secret treasure, in Saul's sending, and they watch the house to put him to death. Deliver me from mine enemies, O my God, From my withstanders set me on high.
 

@@ -1,8 +1,11 @@
 ---
+title: "Luke 15 YLT | Read the Bible Online"
+linkTitle: "15"
+description: "Read Luke 15 Online | And all the tax-gatherers and the sinners were coming nigh to him, to hear him..."
 weight: 15
 ---
 
-# Chapter 15
+# Luke 15 
 
 **¹** And all the tax-gatherers and the sinners were coming nigh to him, to hear him,
 

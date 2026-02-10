@@ -1,8 +1,11 @@
 ---
+title: "Amos 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Amos 6 Online | Woe [to] those secure in Zion, And those confident in the mount of Samaria, The marked of the chief of the nations, And come to them have the house of Israel..."
 weight: 6
 ---
 
-# Chapter 6
+# Amos 6 
 
 **¹** Woe [to] those secure in Zion, And those confident in the mount of Samaria, The marked of the chief of the nations, And come to them have the house of Israel.
 

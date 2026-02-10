@@ -1,8 +1,11 @@
 ---
+title: "Hebrews 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Hebrews 2 Online | Because of this it behoveth [us] more abundantly to take heed to the things heard, lest we may glide aside..."
 weight: 2
 ---
 
-# Chapter 2
+# Hebrews 2 
 
 **¹** Because of this it behoveth [us] more abundantly to take heed to the things heard, lest we may glide aside,
 

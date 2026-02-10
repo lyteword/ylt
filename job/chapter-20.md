@@ -1,8 +1,11 @@
 ---
+title: "Job 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read Job 20 Online | And Zophar the Naamathite answereth and saith: ..."
 weight: 20
 ---
 
-# Chapter 20
+# Job 20 
 
 **¹** And Zophar the Naamathite answereth and saith: —
 

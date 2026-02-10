@@ -1,8 +1,11 @@
 ---
+title: "Job 14 YLT | Read the Bible Online"
+linkTitle: "14"
+description: "Read Job 14 Online | Man, born of woman! Of few days, and full of trouble..."
 weight: 14
 ---
 
-# Chapter 14
+# Job 14 
 
 **¹** Man, born of woman! Of few days, and full of trouble!
 

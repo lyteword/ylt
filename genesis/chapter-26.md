@@ -1,8 +1,11 @@
 ---
+title: "Genesis 26 YLT | Read the Bible Online"
+linkTitle: "26"
+description: "Read Genesis 26 Online | And there is a famine in the land, besides the first famine which was in the days of Abraham, and Isaac goeth unto Abimelech king of the Philistines, to Gerar..."
 weight: 26
 ---
 
-# Chapter 26
+# Genesis 26 
 
 **¹** And there is a famine in the land, besides the first famine which was in the days of Abraham, and Isaac goeth unto Abimelech king of the Philistines, to Gerar.
 

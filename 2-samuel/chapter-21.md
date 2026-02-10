@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 21 YLT | Read the Bible Online"
+linkTitle: "21"
+description: "Read 2 Samuel 21 Online | And there is a famine in the days of David three years, year after year, and David seeketh the face of Jehovah, and Jehovah saith, 'For Saul and for the bloody house, because that he put to death the Gibeonites...."
 weight: 21
 ---
 
-# Chapter 21
+# 2 Samuel 21 
 
 **¹** And there is a famine in the days of David three years, year after year, and David seeketh the face of Jehovah, and Jehovah saith, 'For Saul and for the bloody house, because that he put to death the Gibeonites.'
 

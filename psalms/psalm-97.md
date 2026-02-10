@@ -1,8 +1,11 @@
 ---
+title: "Psalm 97 YLT | Read the Bible Online"
+linkTitle: "97"
+description: "Read Psalm 97 Online | Jehovah hath reigned, The earth is joyful, many isles rejoice..."
 weight: 97
 ---
 
-# Psalm 97
+# Psalm 97 
 
 **¹** Jehovah hath reigned, The earth is joyful, many isles rejoice.
 

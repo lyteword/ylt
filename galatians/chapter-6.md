@@ -1,8 +1,11 @@
 ---
+title: "Galatians 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Galatians 6 Online | Brethren, if a man also may be overtaken in any trespass, ye who [are] spiritual restore such a one in a spirit of meekness, considering thyself — lest thou also may be tempted..."
 weight: 6
 ---
 
-# Chapter 6
+# Galatians 6 
 
 **¹** Brethren, if a man also may be overtaken in any trespass, ye who [are] spiritual restore such a one in a spirit of meekness, considering thyself — lest thou also may be tempted;
 

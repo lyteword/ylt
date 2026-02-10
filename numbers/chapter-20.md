@@ -1,8 +1,11 @@
 ---
+title: "Numbers 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read Numbers 20 Online | And the sons of Israel come in, — all the company — to the wilderness of Zin, in the first month, and the people abide in Kadesh, and Miriam dieth there, and is buried there..."
 weight: 20
 ---
 
-# Chapter 20
+# Numbers 20 
 
 **¹** And the sons of Israel come in, — all the company — to the wilderness of Zin, in the first month, and the people abide in Kadesh, and Miriam dieth there, and is buried there.
 

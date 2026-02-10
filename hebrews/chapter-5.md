@@ -1,8 +1,11 @@
 ---
+title: "Hebrews 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read Hebrews 5 Online | For every chief priest — out of men taken — in behalf of men is set in things [pertaining] to God, that he may offer both gifts and sacrifices for sins..."
 weight: 5
 ---
 
-# Chapter 5
+# Hebrews 5 
 
 **¹** For every chief priest — out of men taken — in behalf of men is set in things [pertaining] to God, that he may offer both gifts and sacrifices for sins,
 

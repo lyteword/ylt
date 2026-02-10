@@ -1,8 +1,11 @@
 ---
+title: "Job 38 YLT | Read the Bible Online"
+linkTitle: "38"
+description: "Read Job 38 Online | And Jehovah answereth Job out of the whirlwind, and saith: ..."
 weight: 38
 ---
 
-# Chapter 38
+# Job 38 
 
 **¹** And Jehovah answereth Job out of the whirlwind, and saith: —
 

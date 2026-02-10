@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 29 YLT | Read the Bible Online"
+linkTitle: "29"
+description: "Read 1 Chronicles 29 Online | And David the king saith to all the assembly, 'Solomon my son — the one on whom God hath fixed — [is] young and tender, and the work [is] great, for not for man is the palace, but for Jehovah God..."
 weight: 29
 ---
 
-# Chapter 29
+# 1 Chronicles 29 
 
 **¹** And David the king saith to all the assembly, 'Solomon my son — the one on whom God hath fixed — [is] young and tender, and the work [is] great, for not for man is the palace, but for Jehovah God;
 

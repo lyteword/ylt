@@ -1,8 +1,11 @@
 ---
+title: "Genesis 19 YLT | Read the Bible Online"
+linkTitle: "19"
+description: "Read Genesis 19 Online | And two of the messengers come towards Sodom at even, and Lot is sitting at the gate of Sodom, and Lot seeth, and riseth to meet them, and boweth himself — face to the earth..."
 weight: 19
 ---
 
-# Chapter 19
+# Genesis 19 
 
 **¹** And two of the messengers come towards Sodom at even, and Lot is sitting at the gate of Sodom, and Lot seeth, and riseth to meet them, and boweth himself — face to the earth,
 

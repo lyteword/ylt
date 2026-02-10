@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 51 YLT | Read the Bible Online"
+linkTitle: "51"
+description: "Read Jeremiah 51 Online | Thus said Jehovah: Lo, I am stirring up against Babylon, And the inhabitants of Leb — My withstanders, A destroying wind..."
 weight: 51
 ---
 
-# Chapter 51
+# Jeremiah 51 
 
 **¹** Thus said Jehovah: Lo, I am stirring up against Babylon, And the inhabitants of Leb — My withstanders, A destroying wind,
 

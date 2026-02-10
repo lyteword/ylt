@@ -1,8 +1,11 @@
 ---
+title: "Philippians 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Philippians 3 Online | As to the rest, my brethren, rejoice in the Lord; the same things to write to you to me indeed is not tiresome, and for you [is] sure..."
 weight: 3
 ---
 
-# Chapter 3
+# Philippians 3 
 
 **¹** As to the rest, my brethren, rejoice in the Lord; the same things to write to you to me indeed is not tiresome, and for you [is] sure;
 

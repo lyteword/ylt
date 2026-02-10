@@ -1,8 +1,11 @@
 ---
+title: "Psalm 107 YLT | Read the Bible Online"
+linkTitle: "107"
+description: "Read Psalm 107 Online | 'Give ye thanks to Jehovah, For good, for to the age [is] His kindness:..."
 weight: 107
 ---
 
-# Psalm 107
+# Psalm 107 
 
 **¹** 'Give ye thanks to Jehovah, For good, for to the age [is] His kindness:'
 

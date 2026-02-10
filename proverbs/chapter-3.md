@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Proverbs 3 Online | My son! my law forget not, And my commands let thy heart keep..."
 weight: 3
 ---
 
-# Chapter 3
+# Proverbs 3 
 
 **¹** My son! my law forget not, And my commands let thy heart keep,
 

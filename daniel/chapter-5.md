@@ -1,8 +1,11 @@
 ---
+title: "Daniel 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read Daniel 5 Online | Belshazzar the king hath made a great feast to a thousand of his great men, and before the thousand he is drinking wine..."
 weight: 5
 ---
 
-# Chapter 5
+# Daniel 5 
 
 **¹** Belshazzar the king hath made a great feast to a thousand of his great men, and before the thousand he is drinking wine;
 

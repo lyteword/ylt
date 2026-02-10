@@ -1,8 +1,11 @@
 ---
+title: "Matthew 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read Matthew 20 Online | 'For the reign of the heavens is like to a man, a householder, who went forth with the morning to hire workmen for his vineyard..."
 weight: 20
 ---
 
-# Chapter 20
+# Matthew 20 
 
 **¹** 'For the reign of the heavens is like to a man, a householder, who went forth with the morning to hire workmen for his vineyard,
 

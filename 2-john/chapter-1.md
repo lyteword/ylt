@@ -1,8 +1,11 @@
 ---
+title: "2 John 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read 2 John 1 Online | The Elder to the choice Kyria, and to her children, whom I love in truth, and not I only, but also all those having known the truth..."
 weight: 1
 ---
 
-# Chapter 1
+# 2 John 1 
 
 **¹** The Elder to the choice Kyria, and to her children, whom I love in truth, and not I only, but also all those having known the truth,
 

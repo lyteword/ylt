@@ -1,8 +1,11 @@
 ---
+title: "Ezra 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read Ezra 8 Online | And these [are] heads of their fathers, and the genealogy of those going up with me, in the reign of Artaxerxes the king, from Babylon..."
 weight: 8
 ---
 
-# Chapter 8
+# Ezra 8 
 
 **¹** And these [are] heads of their fathers, and the genealogy of those going up with me, in the reign of Artaxerxes the king, from Babylon.
 

@@ -1,8 +1,11 @@
 ---
+title: "Psalm 112 YLT | Read the Bible Online"
+linkTitle: "112"
+description: "Read Psalm 112 Online | Praise ye Jah! O the happiness of one fearing Jehovah, In His commands he hath delighted greatly..."
 weight: 112
 ---
 
-# Psalm 112
+# Psalm 112 
 
 **¹** Praise ye Jah! O the happiness of one fearing Jehovah, In His commands he hath delighted greatly.
 

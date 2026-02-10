@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 35 YLT | Read the Bible Online"
+linkTitle: "35"
+description: "Read Jeremiah 35 Online | The word that hath been unto Jeremiah from Jehovah, in the days of Jehoiakim son of Josiah king of Judah, saying..."
 weight: 35
 ---
 
-# Chapter 35
+# Jeremiah 35 
 
 **¹** The word that hath been unto Jeremiah from Jehovah, in the days of Jehoiakim son of Josiah king of Judah, saying:
 

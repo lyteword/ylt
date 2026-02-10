@@ -1,8 +1,11 @@
 ---
+title: "Matthew 21 YLT | Read the Bible Online"
+linkTitle: "21"
+description: "Read Matthew 21 Online | And when they came nigh to Jerusalem, and came to Bethphage, unto the mount of the Olives, then Jesus sent two disciples..."
 weight: 21
 ---
 
-# Chapter 21
+# Matthew 21 
 
 **¹** And when they came nigh to Jerusalem, and came to Bethphage, unto the mount of the Olives, then Jesus sent two disciples,
 

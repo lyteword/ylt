@@ -1,8 +1,11 @@
 ---
+title: "Job 34 YLT | Read the Bible Online"
+linkTitle: "34"
+description: "Read Job 34 Online | And Elihu answereth and saith..."
 weight: 34
 ---
 
-# Chapter 34
+# Job 34 
 
 **¹** And Elihu answereth and saith:
 

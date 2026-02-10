@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 16 YLT | Read the Bible Online"
+linkTitle: "16"
+description: "Read Ezekiel 16 Online | And there is a word of Jehovah unto me, saying..."
 weight: 16
 ---
 
-# Chapter 16
+# Ezekiel 16 
 
 **¹** And there is a word of Jehovah unto me, saying,
 

@@ -1,8 +1,11 @@
 ---
+title: "Nahum 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Nahum 2 Online | Come up hath a scatterer to thy face, Keep the bulwark, watch the way, Strengthen the loins, strengthen power mightily..."
 weight: 2
 ---
 
-# Chapter 2
+# Nahum 2 
 
 **¹** Come up hath a scatterer to thy face, Keep the bulwark, watch the way, Strengthen the loins, strengthen power mightily.
 

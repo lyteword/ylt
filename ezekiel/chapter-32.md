@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 32 YLT | Read the Bible Online"
+linkTitle: "32"
+description: "Read Ezekiel 32 Online | And it cometh to pass, in the twelfth year, in the twelfth month, in the first of the month, hath a word of Jehovah been unto me, saying..."
 weight: 32
 ---
 
-# Chapter 32
+# Ezekiel 32 
 
 **¹** And it cometh to pass, in the twelfth year, in the twelfth month, in the first of the month, hath a word of Jehovah been unto me, saying,
 

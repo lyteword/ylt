@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Ezekiel 3 Online | And He saith unto me, 'Son of man, that which thou findest eat, eat this roll, and go, speak unto the house of Israel...."
 weight: 3
 ---
 
-# Chapter 3
+# Ezekiel 3 
 
 **¹** And He saith unto me, 'Son of man, that which thou findest eat, eat this roll, and go, speak unto the house of Israel.'
 

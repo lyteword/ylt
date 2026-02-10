@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 19 YLT | Read the Bible Online"
+linkTitle: "19"
+description: "Read Ezekiel 19 Online | And thou, lift up a lamentation unto princes of Israel..."
 weight: 19
 ---
 
-# Chapter 19
+# Ezekiel 19 
 
 **¹** And thou, lift up a lamentation unto princes of Israel,
 

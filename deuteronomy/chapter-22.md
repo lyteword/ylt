@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 22 YLT | Read the Bible Online"
+linkTitle: "22"
+description: "Read Deuteronomy 22 Online | 'Thou dost not see the ox of thy brother or his sheep driven away, and hast hidden thyself from them, thou dost certainly turn them back to thy brother..."
 weight: 22
 ---
 
-# Chapter 22
+# Deuteronomy 22 
 
 **¹** 'Thou dost not see the ox of thy brother or his sheep driven away, and hast hidden thyself from them, thou dost certainly turn them back to thy brother;
 

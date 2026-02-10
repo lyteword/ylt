@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 52 YLT | Read the Bible Online"
+linkTitle: "52"
+description: "Read Isaiah 52 Online | Awake, awake, put on thy strength, O Zion, Put on the garments of thy beauty, Jerusalem — the Holy City; For enter no more into thee again, Do the uncircumcised and unclean..."
 weight: 52
 ---
 
-# Chapter 52
+# Isaiah 52 
 
 **¹** Awake, awake, put on thy strength, O Zion, Put on the garments of thy beauty, Jerusalem — the Holy City; For enter no more into thee again, Do the uncircumcised and unclean.
 

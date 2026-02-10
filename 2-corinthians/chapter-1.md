@@ -1,8 +1,11 @@
 ---
+title: "2 Corinthians 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read 2 Corinthians 1 Online | Paul, an apostle of Jesus Christ, through the will of God, and Timotheus the brother, to the assembly of God that is in Corinth, with all the saints who are in all Achaia..."
 weight: 1
 ---
 
-# Chapter 1
+# 2 Corinthians 1 
 
 **¹** Paul, an apostle of Jesus Christ, through the will of God, and Timotheus the brother, to the assembly of God that is in Corinth, with all the saints who are in all Achaia:
 

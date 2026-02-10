@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 29 YLT | Read the Bible Online"
+linkTitle: "29"
+description: "Read 1 Samuel 29 Online | And the Philistines gather all their camps to Aphek, and the Israelites are encamping at a fountain which [is] in Jezreel..."
 weight: 29
 ---
 
-# Chapter 29
+# 1 Samuel 29 
 
 **¹** And the Philistines gather all their camps to Aphek, and the Israelites are encamping at a fountain which [is] in Jezreel,
 

@@ -1,8 +1,11 @@
 ---
+title: "Joshua 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read Joshua 4 Online | And it cometh to pass, when all the nation hath completed to pass over the Jordan, that Jehovah speaketh unto Joshua, saying..."
 weight: 4
 ---
 
-# Chapter 4
+# Joshua 4 
 
 **¹** And it cometh to pass, when all the nation hath completed to pass over the Jordan, that Jehovah speaketh unto Joshua, saying,
 

@@ -1,8 +1,11 @@
 ---
+title: "Numbers 21 YLT | Read the Bible Online"
+linkTitle: "21"
+description: "Read Numbers 21 Online | And the Canaanite — king Arad — dwelling in the south, heareth that Israel hath come the way of the Atharim, and he fighteth against Israel, and taketh [some] of them captive..."
 weight: 21
 ---
 
-# Chapter 21
+# Numbers 21 
 
 **¹** And the Canaanite — king Arad — dwelling in the south, heareth that Israel hath come the way of the Atharim, and he fighteth against Israel, and taketh [some] of them captive.
 

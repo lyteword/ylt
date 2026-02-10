@@ -1,8 +1,11 @@
 ---
+title: "Psalm 64 YLT | Read the Bible Online"
+linkTitle: "64"
+description: "Read Psalm 64 Online | To the Overseer. — A Psalm of David. Hear, O God, my voice, in my meditation, From the fear of an enemy Thou keepest my life..."
 weight: 64
 ---
 
-# Psalm 64
+# Psalm 64 
 
 **¹** To the Overseer. — A Psalm of David. Hear, O God, my voice, in my meditation, From the fear of an enemy Thou keepest my life,
 

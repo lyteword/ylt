@@ -1,8 +1,11 @@
 ---
+title: "Matthew 19 YLT | Read the Bible Online"
+linkTitle: "19"
+description: "Read Matthew 19 Online | And it came to pass, when Jesus finished these words, he removed from Galilee, and did come to the borders of Judea, beyond the Jordan..."
 weight: 19
 ---
 
-# Chapter 19
+# Matthew 19 
 
 **¹** And it came to pass, when Jesus finished these words, he removed from Galilee, and did come to the borders of Judea, beyond the Jordan,
 

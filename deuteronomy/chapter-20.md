@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read Deuteronomy 20 Online | 'When thou goest out to battle against thine enemy, and hast seen horse and chariot — a people more numerous than thou — thou art not afraid of them, for Jehovah thy God [is] with thee, who is bringing thee up out of the land of Egypt..."
 weight: 20
 ---
 
-# Chapter 20
+# Deuteronomy 20 
 
 **¹** 'When thou goest out to battle against thine enemy, and hast seen horse and chariot — a people more numerous than thou — thou art not afraid of them, for Jehovah thy God [is] with thee, who is bringing thee up out of the land of Egypt;
 

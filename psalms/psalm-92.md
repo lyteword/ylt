@@ -1,8 +1,11 @@
 ---
+title: "Psalm 92 YLT | Read the Bible Online"
+linkTitle: "92"
+description: "Read Psalm 92 Online | A Psalm. — A Song for the sabbath-day. Good to give thanks to Jehovah, And to sing praises to Thy name, O Most High..."
 weight: 92
 ---
 
-# Psalm 92
+# Psalm 92 
 
 **¹** A Psalm. — A Song for the sabbath-day. Good to give thanks to Jehovah, And to sing praises to Thy name, O Most High,
 

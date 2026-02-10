@@ -1,8 +1,11 @@
 ---
+title: "Psalm 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read Psalm 20 Online | To the Overseer. — A Psalm of David. Jehovah doth answer thee, In a day of adversity, The name of the God of Jacob doth set thee on high..."
 weight: 20
 ---
 
-# Psalm 20
+# Psalm 20 
 
 **¹** To the Overseer. — A Psalm of David. Jehovah doth answer thee, In a day of adversity, The name of the God of Jacob doth set thee on high,
 

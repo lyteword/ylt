@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 19 YLT | Read the Bible Online"
+linkTitle: "19"
+description: "Read 2 Chronicles 19 Online | And Jehoshaphat king of Judah turneth back unto his house in peace to Jerusalem..."
 weight: 19
 ---
 
-# Chapter 19
+# 2 Chronicles 19 
 
 **¹** And Jehoshaphat king of Judah turneth back unto his house in peace to Jerusalem,
 

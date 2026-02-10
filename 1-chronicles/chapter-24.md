@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 24 YLT | Read the Bible Online"
+linkTitle: "24"
+description: "Read 1 Chronicles 24 Online | And to the sons of Aaron [are] their courses: sons of Aaron [are] Nadab, and Abihu, Eleazar, and Ithamar..."
 weight: 24
 ---
 
-# Chapter 24
+# 1 Chronicles 24 
 
 **¹** And to the sons of Aaron [are] their courses: sons of Aaron [are] Nadab, and Abihu, Eleazar, and Ithamar,
 

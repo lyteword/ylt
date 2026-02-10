@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read Jeremiah 12 Online | Righteous [art] Thou, O Jehovah, When I plead towards thee, Only, judgments do I speak with Thee, Wherefore did the way of the wicked prosper? At rest have been all treacherous dealers..."
 weight: 12
 ---
 
-# Chapter 12
+# Jeremiah 12 
 
 **¹** Righteous [art] Thou, O Jehovah, When I plead towards thee, Only, judgments do I speak with Thee, Wherefore did the way of the wicked prosper? At rest have been all treacherous dealers.
 

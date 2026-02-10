@@ -1,8 +1,11 @@
 ---
+title: "Job 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read Job 8 Online | And Bildad the Shuhite answereth and saith: ..."
 weight: 8
 ---
 
-# Chapter 8
+# Job 8 
 
 **¹** And Bildad the Shuhite answereth and saith: —
 

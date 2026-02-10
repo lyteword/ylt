@@ -1,8 +1,11 @@
 ---
+title: "Hosea 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read Hosea 13 Online | When Ephraim speaketh tremblingly, He hath been lifted up in Israel, When he becometh guilty in Baal he dieth..."
 weight: 13
 ---
 
-# Chapter 13
+# Hosea 13 
 
 **¹** When Ephraim speaketh tremblingly, He hath been lifted up in Israel, When he becometh guilty in Baal he dieth.
 

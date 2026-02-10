@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Isaiah 1 Online | The Visions of Isaiah son of Amoz, that he hath seen concerning Judah and Jerusalem, in the days of Uzziah, Jotham, Ahaz, Hezekiah, kings of Judah..."
 weight: 1
 ---
 
-# Chapter 1
+# Isaiah 1 
 
 **¹** The Visions of Isaiah son of Amoz, that he hath seen concerning Judah and Jerusalem, in the days of Uzziah, Jotham, Ahaz, Hezekiah, kings of Judah.
 

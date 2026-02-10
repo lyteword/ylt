@@ -1,8 +1,11 @@
 ---
+title: "Matthew 14 YLT | Read the Bible Online"
+linkTitle: "14"
+description: "Read Matthew 14 Online | At that time did Herod the tetrarch hear the fame of Jesus..."
 weight: 14
 ---
 
-# Chapter 14
+# Matthew 14 
 
 **¹** At that time did Herod the tetrarch hear the fame of Jesus,
 

@@ -1,8 +1,11 @@
 ---
+title: "James 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read James 3 Online | Many teachers become not, my brethren, having known that greater judgment we shall receive..."
 weight: 3
 ---
 
-# Chapter 3
+# James 3 
 
 **¹** Many teachers become not, my brethren, having known that greater judgment we shall receive,
 

@@ -1,8 +1,11 @@
 ---
+title: "Judges 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read Judges 5 Online | And Deborah singeth — also Barak son of Abinoam — on that day, saying: ..."
 weight: 5
 ---
 
-# Chapter 5
+# Judges 5 
 
 **¹** And Deborah singeth — also Barak son of Abinoam — on that day, saying: —
 

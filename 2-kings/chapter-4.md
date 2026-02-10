@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read 2 Kings 4 Online | And a certain woman of the wives of the sons of the prophets hath cried unto Elisha, saying, 'Thy servant, my husband, is dead, and thou hast known that thy servant was fearing Jehovah, and the lender hath come to take my two children to him for servants...."
 weight: 4
 ---
 
-# Chapter 4
+# 2 Kings 4 
 
 **¹** And a certain woman of the wives of the sons of the prophets hath cried unto Elisha, saying, 'Thy servant, my husband, is dead, and thou hast known that thy servant was fearing Jehovah, and the lender hath come to take my two children to him for servants.'
 

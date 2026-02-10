@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 19 YLT | Read the Bible Online"
+linkTitle: "19"
+description: "Read 2 Samuel 19 Online | And it is declared to Joab, 'Lo, the king is weeping and mourning for Absalom;..."
 weight: 19
 ---
 
-# Chapter 19
+# 2 Samuel 19 
 
 **¹** And it is declared to Joab, 'Lo, the king is weeping and mourning for Absalom;'
 

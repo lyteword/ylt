@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read Nehemiah 10 Online | And over those sealed [are] Nehemiah the Tirshatha, son of Hachaliah, and Zidkijah..."
 weight: 10
 ---
 
-# Chapter 10
+# Nehemiah 10 
 
 **¹** And over those sealed [are] Nehemiah the Tirshatha, son of Hachaliah, and Zidkijah,
 

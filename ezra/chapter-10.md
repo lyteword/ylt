@@ -1,8 +1,11 @@
 ---
+title: "Ezra 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read Ezra 10 Online | And at Ezra's praying, and at his making confession, weeping and casting himself down before the house of God, there have been gathered unto him out of Israel an assembly very great — men and women and children — for the people have wept, multiplying weeping..."
 weight: 10
 ---
 
-# Chapter 10
+# Ezra 10 
 
 **¹** And at Ezra's praying, and at his making confession, weeping and casting himself down before the house of God, there have been gathered unto him out of Israel an assembly very great — men and women and children — for the people have wept, multiplying weeping.
 

@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 7 YLT | Read the Bible Online"
+linkTitle: "7"
+description: "Read Proverbs 7 Online | My son! keep my sayings, And my commands lay up with thee..."
 weight: 7
 ---
 
-# Chapter 7
+# Proverbs 7 
 
 **¹** My son! keep my sayings, And my commands lay up with thee.
 

@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 47 YLT | Read the Bible Online"
+linkTitle: "47"
+description: "Read Isaiah 47 Online | Come down, and sit on the dust, O virgin daughter of Babylon, Sit on the earth, there is no throne, O daughter of the Chaldeans, For no more do they cry to thee, 'O tender and delicate one...."
 weight: 47
 ---
 
-# Chapter 47
+# Isaiah 47 
 
 **¹** Come down, and sit on the dust, O virgin daughter of Babylon, Sit on the earth, there is no throne, O daughter of the Chaldeans, For no more do they cry to thee, 'O tender and delicate one.'
 

@@ -1,8 +1,11 @@
 ---
+title: "Exodus 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read Exodus 13 Online | And Jehovah speaketh unto Moses, saying..."
 weight: 13
 ---
 
-# Chapter 13
+# Exodus 13 
 
 **¹** And Jehovah speaketh unto Moses, saying,
 

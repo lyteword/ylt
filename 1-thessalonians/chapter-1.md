@@ -1,8 +1,11 @@
 ---
+title: "1 Thessalonians 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read 1 Thessalonians 1 Online | Paul, and Silvanus, and Timotheus, to the assembly of Thessalonians in God the Father, and the Lord Jesus Christ: Grace to you, and peace, from God our Father, and the Lord Jesus Christ..."
 weight: 1
 ---
 
-# Chapter 1
+# 1 Thessalonians 1 
 
 **¹** Paul, and Silvanus, and Timotheus, to the assembly of Thessalonians in God the Father, and the Lord Jesus Christ: Grace to you, and peace, from God our Father, and the Lord Jesus Christ!
 

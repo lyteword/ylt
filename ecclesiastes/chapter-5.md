@@ -1,8 +1,11 @@
 ---
+title: "Ecclesiastes 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read Ecclesiastes 5 Online | Keep thy feet when thou goest unto a house of God, and draw near to hear rather than to give of fools the sacrifice, for they do not know they do evil..."
 weight: 5
 ---
 
-# Chapter 5
+# Ecclesiastes 5 
 
 **¹** Keep thy feet when thou goest unto a house of God, and draw near to hear rather than to give of fools the sacrifice, for they do not know they do evil.
 

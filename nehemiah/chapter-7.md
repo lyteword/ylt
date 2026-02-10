@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 7 YLT | Read the Bible Online"
+linkTitle: "7"
+description: "Read Nehemiah 7 Online | And it cometh to pass, when the wall hath been built, that I set up the doors, and the gatekeepers are appointed, and the singers, and the Levites..."
 weight: 7
 ---
 
-# Chapter 7
+# Nehemiah 7 
 
 **¹** And it cometh to pass, when the wall hath been built, that I set up the doors, and the gatekeepers are appointed, and the singers, and the Levites,
 

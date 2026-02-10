@@ -1,8 +1,11 @@
 ---
+title: "Exodus 28 YLT | Read the Bible Online"
+linkTitle: "28"
+description: "Read Exodus 28 Online | 'And thou, bring thou near unto thee Aaron thy brother, and his sons with him, from the midst of the sons of Israel, for his being priest to Me, [even] Aaron, Nadab, and Abihu, Eleazar and Ithamar, sons of Aaron..."
 weight: 28
 ---
 
-# Chapter 28
+# Exodus 28 
 
 **¹** 'And thou, bring thou near unto thee Aaron thy brother, and his sons with him, from the midst of the sons of Israel, for his being priest to Me, [even] Aaron, Nadab, and Abihu, Eleazar and Ithamar, sons of Aaron;
 

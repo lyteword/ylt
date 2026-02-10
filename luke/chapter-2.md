@@ -1,8 +1,11 @@
 ---
+title: "Luke 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Luke 2 Online | And it came to pass in those days, there went forth a decree from Caesar Augustus, that all the world be enrolled ..."
 weight: 2
 ---
 
-# Chapter 2
+# Luke 2 
 
 **¹** And it came to pass in those days, there went forth a decree from Caesar Augustus, that all the world be enrolled —
 

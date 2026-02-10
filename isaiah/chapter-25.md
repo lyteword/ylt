@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 25 YLT | Read the Bible Online"
+linkTitle: "25"
+description: "Read Isaiah 25 Online | O Jehovah, my God [art] Thou, I exalt Thee, I confess Thy name, For Thou hast done a wonderful thing, Counsels of old, stedfastness, O stedfast One..."
 weight: 25
 ---
 
-# Chapter 25
+# Isaiah 25 
 
 **¹** O Jehovah, my God [art] Thou, I exalt Thee, I confess Thy name, For Thou hast done a wonderful thing, Counsels of old, stedfastness, O stedfast One.
 

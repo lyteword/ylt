@@ -1,8 +1,11 @@
 ---
+title: "Acts 24 YLT | Read the Bible Online"
+linkTitle: "24"
+description: "Read Acts 24 Online | And after five days came down the chief priest Ananias, with the elders, and a certain orator — Tertullus, and they made manifest to the governor [the things] against Paul..."
 weight: 24
 ---
 
-# Chapter 24
+# Acts 24 
 
 **¹** And after five days came down the chief priest Ananias, with the elders, and a certain orator — Tertullus, and they made manifest to the governor [the things] against Paul;
 

@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 25 YLT | Read the Bible Online"
+linkTitle: "25"
+description: "Read Ezekiel 25 Online | And there is a word of Jehovah unto me, saying..."
 weight: 25
 ---
 
-# Chapter 25
+# Ezekiel 25 
 
 **¹** And there is a word of Jehovah unto me, saying,
 

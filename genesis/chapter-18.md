@@ -1,8 +1,11 @@
 ---
+title: "Genesis 18 YLT | Read the Bible Online"
+linkTitle: "18"
+description: "Read Genesis 18 Online | And Jehovah appeareth unto him among the oaks of Mamre, and he is sitting at the opening of the tent, about the heat of the day..."
 weight: 18
 ---
 
-# Chapter 18
+# Genesis 18 
 
 **¹** And Jehovah appeareth unto him among the oaks of Mamre, and he is sitting at the opening of the tent, about the heat of the day;
 

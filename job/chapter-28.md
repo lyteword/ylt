@@ -1,8 +1,11 @@
 ---
+title: "Job 28 YLT | Read the Bible Online"
+linkTitle: "28"
+description: "Read Job 28 Online | Surely there is for silver a source, And a place for the gold they refine..."
 weight: 28
 ---
 
-# Chapter 28
+# Job 28 
 
 **¹** Surely there is for silver a source, And a place for the gold they refine;
 

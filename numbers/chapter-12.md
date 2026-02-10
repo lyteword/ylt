@@ -1,8 +1,11 @@
 ---
+title: "Numbers 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read Numbers 12 Online | And Miriam speaketh — Aaron also — against Moses concerning the circumstance of the Cushite woman whom he had taken: for a Cushite woman he had taken..."
 weight: 12
 ---
 
-# Chapter 12
+# Numbers 12 
 
 **¹** And Miriam speaketh — Aaron also — against Moses concerning the circumstance of the Cushite woman whom he had taken: for a Cushite woman he had taken;
 

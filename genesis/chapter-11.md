@@ -1,8 +1,11 @@
 ---
+title: "Genesis 11 YLT | Read the Bible Online"
+linkTitle: "11"
+description: "Read Genesis 11 Online | And the whole earth is of one pronunciation, and of the same words..."
 weight: 11
 ---
 
-# Chapter 11
+# Genesis 11 
 
 **¹** And the whole earth is of one pronunciation, and of the same words,
 

@@ -1,8 +1,11 @@
 ---
+title: "Psalm 70 YLT | Read the Bible Online"
+linkTitle: "70"
+description: "Read Psalm 70 Online | To the Overseer, by David. — 'To cause to remember.' O God, to deliver me, O Jehovah, for my help, haste..."
 weight: 70
 ---
 
-# Psalm 70
+# Psalm 70 
 
 **¹** To the Overseer, by David. — 'To cause to remember.' O God, to deliver me, O Jehovah, for my help, haste.
 

@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read 1 Corinthians 13 Online | If with the tongues of men and of messengers I speak, and have not love, I have become brass sounding, or a cymbal tinkling..."
 weight: 13
 ---
 
-# Chapter 13
+# 1 Corinthians 13 
 
 **¹** If with the tongues of men and of messengers I speak, and have not love, I have become brass sounding, or a cymbal tinkling;
 

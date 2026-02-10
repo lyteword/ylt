@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read 1 Kings 8 Online | Then doth Solomon assemble the elders of Israel, and all the heads of the tribes, princes of the fathers of the sons of Israel, unto king Solomon, to Jerusalem, to bring up the ark of the covenant of Jehovah from the city of David — it [is] Zion..."
 weight: 8
 ---
 
-# Chapter 8
+# 1 Kings 8 
 
 **¹** Then doth Solomon assemble the elders of Israel, and all the heads of the tribes, princes of the fathers of the sons of Israel, unto king Solomon, to Jerusalem, to bring up the ark of the covenant of Jehovah from the city of David — it [is] Zion;
 

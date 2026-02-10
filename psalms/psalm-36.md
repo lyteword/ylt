@@ -1,8 +1,11 @@
 ---
+title: "Psalm 36 YLT | Read the Bible Online"
+linkTitle: "36"
+description: "Read Psalm 36 Online | To the Overseer. — By a servant of Jehovah, by David. The transgression of the wicked Is affirming within my heart, 'Fear of God is not before his eyes..."
 weight: 36
 ---
 
-# Psalm 36
+# Psalm 36 
 
 **¹** To the Overseer. — By a servant of Jehovah, by David. The transgression of the wicked Is affirming within my heart, 'Fear of God is not before his eyes,
 

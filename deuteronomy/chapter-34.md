@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 34 YLT | Read the Bible Online"
+linkTitle: "34"
+description: "Read Deuteronomy 34 Online | And Moses goeth up from the plains of Moab unto mount Nebo, the top of Pisgah, which [is] on the front of Jericho, and Jehovah sheweth him all the land — Gilead unto Dan..."
 weight: 34
 ---
 
-# Chapter 34
+# Deuteronomy 34 
 
 **¹** And Moses goeth up from the plains of Moab unto mount Nebo, the top of Pisgah, which [is] on the front of Jericho, and Jehovah sheweth him all the land — Gilead unto Dan,
 

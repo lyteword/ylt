@@ -1,8 +1,11 @@
 ---
+title: "Matthew 16 YLT | Read the Bible Online"
+linkTitle: "16"
+description: "Read Matthew 16 Online | And the Pharisees and Sadducees having come, tempting, did question him, to shew to them a sign from the heaven..."
 weight: 16
 ---
 
-# Chapter 16
+# Matthew 16 
 
 **¹** And the Pharisees and Sadducees having come, tempting, did question him, to shew to them a sign from the heaven,
 

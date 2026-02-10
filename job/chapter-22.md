@@ -1,8 +1,11 @@
 ---
+title: "Job 22 YLT | Read the Bible Online"
+linkTitle: "22"
+description: "Read Job 22 Online | And Eliphaz the Temanite answereth and saith: ..."
 weight: 22
 ---
 
-# Chapter 22
+# Job 22 
 
 **¹** And Eliphaz the Temanite answereth and saith: —
 

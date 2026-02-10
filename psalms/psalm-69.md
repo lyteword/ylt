@@ -1,8 +1,11 @@
 ---
+title: "Psalm 69 YLT | Read the Bible Online"
+linkTitle: "69"
+description: "Read Psalm 69 Online | To the Overseer. — 'On the Lilies,' by David. Save me, O God, for come have waters unto the soul..."
 weight: 69
 ---
 
-# Psalm 69
+# Psalm 69 
 
 **¹** To the Overseer. — 'On the Lilies,' by David. Save me, O God, for come have waters unto the soul.
 

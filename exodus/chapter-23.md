@@ -1,8 +1,11 @@
 ---
+title: "Exodus 23 YLT | Read the Bible Online"
+linkTitle: "23"
+description: "Read Exodus 23 Online | 'Thou dost not lift up a vain report; thou dost not put thy hand with a wicked man to be a violent witness..."
 weight: 23
 ---
 
-# Chapter 23
+# Exodus 23 
 
 **¹** 'Thou dost not lift up a vain report; thou dost not put thy hand with a wicked man to be a violent witness.
 

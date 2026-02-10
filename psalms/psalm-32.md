@@ -1,8 +1,11 @@
 ---
+title: "Psalm 32 YLT | Read the Bible Online"
+linkTitle: "32"
+description: "Read Psalm 32 Online | By David. — An Instruction. O the happiness of him whose transgression [is] forgiven, Whose sin is covered..."
 weight: 32
 ---
 
-# Psalm 32
+# Psalm 32 
 
 **¹** By David. — An Instruction. O the happiness of him whose transgression [is] forgiven, Whose sin is covered.
 

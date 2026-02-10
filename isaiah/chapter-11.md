@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 11 YLT | Read the Bible Online"
+linkTitle: "11"
+description: "Read Isaiah 11 Online | And a rod hath come out from the stock of Jesse, And a branch from his roots is fruitful..."
 weight: 11
 ---
 
-# Chapter 11
+# Isaiah 11 
 
 **¹** And a rod hath come out from the stock of Jesse, And a branch from his roots is fruitful.
 

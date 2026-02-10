@@ -1,8 +1,11 @@
 ---
+title: "Psalm 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Psalm 6 Online | To the Overseer with stringed instruments, on the octave. — A Psalm of David. O Jehovah, in Thine anger reprove me not, Nor in Thy fury chastise me..."
 weight: 6
 ---
 
-# Psalm 6
+# Psalm 6 
 
 **¹** To the Overseer with stringed instruments, on the octave. — A Psalm of David. O Jehovah, in Thine anger reprove me not, Nor in Thy fury chastise me.
 

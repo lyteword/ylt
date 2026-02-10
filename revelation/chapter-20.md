@@ -1,8 +1,11 @@
 ---
+title: "Revelation 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read Revelation 20 Online | And I saw a messenger coming down out of the heaven, having the key of the abyss, and a great chain over his hand..."
 weight: 20
 ---
 
-# Chapter 20
+# Revelation 20 
 
 **¹** And I saw a messenger coming down out of the heaven, having the key of the abyss, and a great chain over his hand,
 

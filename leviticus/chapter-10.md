@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read Leviticus 10 Online | And the sons of Aaron, Nadab and Abihu, take each his censer, and put in them fire, and put on it perfume, and bring near before Jehovah strange fire, which He hath not commanded them..."
 weight: 10
 ---
 
-# Chapter 10
+# Leviticus 10 
 
 **¹** And the sons of Aaron, Nadab and Abihu, take each his censer, and put in them fire, and put on it perfume, and bring near before Jehovah strange fire, which He hath not commanded them;
 

@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read Deuteronomy 12 Online | 'These [are] the statutes and the judgments which ye observe to do in the land which Jehovah, God of thy fathers, hath given to thee to possess it, all the days that ye are living on the ground..."
 weight: 12
 ---
 
-# Chapter 12
+# Deuteronomy 12 
 
 **¹** 'These [are] the statutes and the judgments which ye observe to do in the land which Jehovah, God of thy fathers, hath given to thee to possess it, all the days that ye are living on the ground:
 

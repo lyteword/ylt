@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 51 YLT | Read the Bible Online"
+linkTitle: "51"
+description: "Read Isaiah 51 Online | Hearken unto Me, ye pursuing righteousness, Seeking Jehovah, Look attentively unto the rock — ye have been hewn, And unto the hole of the pit — ye have been digged..."
 weight: 51
 ---
 
-# Chapter 51
+# Isaiah 51 
 
 **¹** Hearken unto Me, ye pursuing righteousness, Seeking Jehovah, Look attentively unto the rock — ye have been hewn, And unto the hole of the pit — ye have been digged.
 

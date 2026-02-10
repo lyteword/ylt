@@ -1,8 +1,11 @@
 ---
+title: "Daniel 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Daniel 6 Online | It hath been good before Darius, and he hath established over the kingdom satraps — a hundred and twenty — that they may be throughout the whole kingdom..."
 weight: 6
 ---
 
-# Chapter 6
+# Daniel 6 
 
 **¹** It hath been good before Darius, and he hath established over the kingdom satraps — a hundred and twenty — that they may be throughout the whole kingdom,
 
