@@ -1,8 +1,11 @@
 ---
+title: "Exodus 27 YLT | Read the Bible Online"
+linkTitle: "27"
+description: "Read Exodus 27 Online | 'And thou hast made the altar of shittim wood, five cubits the length, and five cubits the breadth — the altar is square — and three cubits its height..."
 weight: 27
 ---
 
-# Chapter 27
+# Exodus 27 
 
 **¹** 'And thou hast made the altar of shittim wood, five cubits the length, and five cubits the breadth — the altar is square — and three cubits its height.
 

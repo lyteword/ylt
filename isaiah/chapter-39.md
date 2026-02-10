@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 39 YLT | Read the Bible Online"
+linkTitle: "39"
+description: "Read Isaiah 39 Online | At that time hath Merodach-Baladan, son of Baladan, king of Babylon, sent letters and a present unto Hezekiah, when he heareth that he hath been sick, and is become strong..."
 weight: 39
 ---
 
-# Chapter 39
+# Isaiah 39 
 
 **¹** At that time hath Merodach-Baladan, son of Baladan, king of Babylon, sent letters and a present unto Hezekiah, when he heareth that he hath been sick, and is become strong.
 

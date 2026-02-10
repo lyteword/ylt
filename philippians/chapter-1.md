@@ -1,8 +1,11 @@
 ---
+title: "Philippians 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Philippians 1 Online | Paul and Timotheus, servants of Jesus Christ, to all the saints in Christ Jesus who are in Philippi, with overseers and ministrants..."
 weight: 1
 ---
 
-# Chapter 1
+# Philippians 1 
 
 **¹** Paul and Timotheus, servants of Jesus Christ, to all the saints in Christ Jesus who are in Philippi, with overseers and ministrants;
 

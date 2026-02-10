@@ -1,8 +1,11 @@
 ---
+title: "Judges 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read Judges 4 Online | And the sons of Israel add to do the evil thing in the eyes of Jehovah when Ehud is dead..."
 weight: 4
 ---
 
-# Chapter 4
+# Judges 4 
 
 **¹** And the sons of Israel add to do the evil thing in the eyes of Jehovah when Ehud is dead,
 

@@ -1,8 +1,11 @@
 ---
+title: "Malachi 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Malachi 3 Online | Lo, I am sending My messenger, And he hath prepared a way before Me, And suddenly come in unto his temple Doth the Lord whom ye are seeking, Even the messenger of the covenant, Whom ye are desiring, Lo, he is coming, said Jehovah of Hosts..."
 weight: 3
 ---
 
-# Chapter 3
+# Malachi 3 
 
 **¹** Lo, I am sending My messenger, And he hath prepared a way before Me, And suddenly come in unto his temple Doth the Lord whom ye are seeking, Even the messenger of the covenant, Whom ye are desiring, Lo, he is coming, said Jehovah of Hosts.
 

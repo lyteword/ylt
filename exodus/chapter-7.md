@@ -1,8 +1,11 @@
 ---
+title: "Exodus 7 YLT | Read the Bible Online"
+linkTitle: "7"
+description: "Read Exodus 7 Online | And Jehovah saith unto Moses, 'See, I have given thee a god to Pharaoh, and Aaron thy brother is thy prophet..."
 weight: 7
 ---
 
-# Chapter 7
+# Exodus 7 
 
 **¹** And Jehovah saith unto Moses, 'See, I have given thee a god to Pharaoh, and Aaron thy brother is thy prophet;
 

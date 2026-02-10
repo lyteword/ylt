@@ -1,8 +1,11 @@
 ---
+title: "John 11 YLT | Read the Bible Online"
+linkTitle: "11"
+description: "Read John 11 Online | And there was a certain one ailing, Lazarus, from Bethany, of the village of Mary and Martha her sister ..."
 weight: 11
 ---
 
-# Chapter 11
+# John 11 
 
 **¹** And there was a certain one ailing, Lazarus, from Bethany, of the village of Mary and Martha her sister —
 

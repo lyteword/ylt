@@ -1,8 +1,11 @@
 ---
+title: "Psalm 115 YLT | Read the Bible Online"
+linkTitle: "115"
+description: "Read Psalm 115 Online | Not to us, O Jehovah, not to us, But to Thy name give honour, For Thy kindness, for Thy truth..."
 weight: 115
 ---
 
-# Psalm 115
+# Psalm 115 
 
 **¹** Not to us, O Jehovah, not to us, But to Thy name give honour, For Thy kindness, for Thy truth.
 

@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 23 YLT | Read the Bible Online"
+linkTitle: "23"
+description: "Read Isaiah 23 Online | The Burden of Tyre. Howl, ye ships of Tarshish, For it hath been destroyed, Without house, without entrance, From the land of Chittim it was revealed to them..."
 weight: 23
 ---
 
-# Chapter 23
+# Isaiah 23 
 
 **¹** The Burden of Tyre. Howl, ye ships of Tarshish, For it hath been destroyed, Without house, without entrance, From the land of Chittim it was revealed to them.
 

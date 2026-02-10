@@ -1,8 +1,11 @@
 ---
+title: "Psalm 75 YLT | Read the Bible Online"
+linkTitle: "75"
+description: "Read Psalm 75 Online | To the Overseer. — 'Destroy not.' — A Psalm of Asaph. — A Song. We have given thanks to Thee, O God, We have given thanks, and near [is] Thy name, They have recounted Thy wonders..."
 weight: 75
 ---
 
-# Psalm 75
+# Psalm 75 
 
 **¹** To the Overseer. — 'Destroy not.' — A Psalm of Asaph. — A Song. We have given thanks to Thee, O God, We have given thanks, and near [is] Thy name, They have recounted Thy wonders.
 

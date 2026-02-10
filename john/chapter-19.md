@@ -1,8 +1,11 @@
 ---
+title: "John 19 YLT | Read the Bible Online"
+linkTitle: "19"
+description: "Read John 19 Online | Then, therefore, did Pilate take Jesus and scourge [him]..."
 weight: 19
 ---
 
-# Chapter 19
+# John 19 
 
 **¹** Then, therefore, did Pilate take Jesus and scourge [him],
 

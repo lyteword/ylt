@@ -1,8 +1,11 @@
 ---
+title: "Job 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Job 1 Online | A man there hath been in the land of Uz — Job his name — and that man hath been perfect and upright — both fearing God, and turning aside from evil..."
 weight: 1
 ---
 
-# Chapter 1
+# Job 1 
 
 **¹** A man there hath been in the land of Uz — Job his name — and that man hath been perfect and upright — both fearing God, and turning aside from evil.
 

@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read 2 Samuel 13 Online | And it cometh to pass afterwards that Absalom son of David hath a fair sister, and her name [is] Tamar, and Amnon son of David loveth her..."
 weight: 13
 ---
 
-# Chapter 13
+# 2 Samuel 13 
 
 **¹** And it cometh to pass afterwards that Absalom son of David hath a fair sister, and her name [is] Tamar, and Amnon son of David loveth her.
 

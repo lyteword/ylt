@@ -1,8 +1,11 @@
 ---
+title: "1 John 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read 1 John 3 Online | See ye what love the Father hath given to us, that children of God we may be called; because of this the world doth not know us, because it did not know Him..."
 weight: 3
 ---
 
-# Chapter 3
+# 1 John 3 
 
 **¹** See ye what love the Father hath given to us, that children of God we may be called; because of this the world doth not know us, because it did not know Him;
 

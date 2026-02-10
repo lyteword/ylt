@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read 1 Corinthians 3 Online | And I, brethren, was not able to speak to you as to spiritual, but as to fleshly — as to babes in Christ..."
 weight: 3
 ---
 
-# Chapter 3
+# 1 Corinthians 3 
 
 **¹** And I, brethren, was not able to speak to you as to spiritual, but as to fleshly — as to babes in Christ;
 

@@ -1,8 +1,11 @@
 ---
+title: "Psalm 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read Psalm 5 Online | To the Overseer, 'Concerning the Inheritances.' — A Psalm of David. My sayings hear, O Jehovah, Consider my meditation..."
 weight: 5
 ---
 
-# Psalm 5
+# Psalm 5 
 
 **¹** To the Overseer, 'Concerning the Inheritances.' — A Psalm of David. My sayings hear, O Jehovah, Consider my meditation.
 

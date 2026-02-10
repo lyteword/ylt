@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 42 YLT | Read the Bible Online"
+linkTitle: "42"
+description: "Read Jeremiah 42 Online | And they come nigh — all the heads of the forces, and Johanan son of Kareah, and Jezaniah son of Hoshaiah, and all the people from the least even unto the greatest ..."
 weight: 42
 ---
 
-# Chapter 42
+# Jeremiah 42 
 
 **¹** And they come nigh — all the heads of the forces, and Johanan son of Kareah, and Jezaniah son of Hoshaiah, and all the people from the least even unto the greatest —
 

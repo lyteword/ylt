@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 11 YLT | Read the Bible Online"
+linkTitle: "11"
+description: "Read 1 Chronicles 11 Online | And gathered are all Israel unto David to Hebron, saying, 'Lo, thy bone and thy flesh [are] we..."
 weight: 11
 ---
 
-# Chapter 11
+# 1 Chronicles 11 
 
 **¹** And gathered are all Israel unto David to Hebron, saying, 'Lo, thy bone and thy flesh [are] we;
 

@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 31 YLT | Read the Bible Online"
+linkTitle: "31"
+description: "Read Jeremiah 31 Online | At that time, an affirmation of Jehovah, I am for God to all families of Israel, And they — they are to Me for a people..."
 weight: 31
 ---
 
-# Chapter 31
+# Jeremiah 31 
 
 **¹** At that time, an affirmation of Jehovah, I am for God to all families of Israel, And they — they are to Me for a people.
 

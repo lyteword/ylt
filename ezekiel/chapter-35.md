@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 35 YLT | Read the Bible Online"
+linkTitle: "35"
+description: "Read Ezekiel 35 Online | And there is a word of Jehovah unto me, saying..."
 weight: 35
 ---
 
-# Chapter 35
+# Ezekiel 35 
 
 **¹** And there is a word of Jehovah unto me, saying:
 

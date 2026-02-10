@@ -1,8 +1,11 @@
 ---
+title: "Lamentations 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Lamentations 3 Online | I [am] the man [who] hath seen affliction By the rod of His wrath..."
 weight: 3
 ---
 
-# Chapter 3
+# Lamentations 3 
 
 **¹** I [am] the man [who] hath seen affliction By the rod of His wrath.
 

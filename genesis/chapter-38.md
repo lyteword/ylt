@@ -1,8 +1,11 @@
 ---
+title: "Genesis 38 YLT | Read the Bible Online"
+linkTitle: "38"
+description: "Read Genesis 38 Online | And it cometh to pass, at that time, that Judah goeth down from his brethren, and turneth aside unto a man, an Adullamite, whose name [is] Hirah..."
 weight: 38
 ---
 
-# Chapter 38
+# Genesis 38 
 
 **¹** And it cometh to pass, at that time, that Judah goeth down from his brethren, and turneth aside unto a man, an Adullamite, whose name [is] Hirah;
 

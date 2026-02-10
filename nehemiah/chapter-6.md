@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Nehemiah 6 Online | And it cometh to pass, when it hath been heard by Sanballat, and Tobiah, and by Geshem the Arabian, and by the rest of our enemies, that I have builded the wall, and there hath not been left in it a breach, (also, till that time the doors I had not set up in the gates,..."
 weight: 6
 ---
 
-# Chapter 6
+# Nehemiah 6 
 
 **¹** And it cometh to pass, when it hath been heard by Sanballat, and Tobiah, and by Geshem the Arabian, and by the rest of our enemies, that I have builded the wall, and there hath not been left in it a breach, (also, till that time the doors I had not set up in the gates,)
 

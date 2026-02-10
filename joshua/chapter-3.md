@@ -1,8 +1,11 @@
 ---
+title: "Joshua 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Joshua 3 Online | And Joshua riseth early in the morning, and they journey from Shittim, and come in unto the Jordan, he and all the sons of Israel, and they lodge there before they pass over..."
 weight: 3
 ---
 
-# Chapter 3
+# Joshua 3 
 
 **¹** And Joshua riseth early in the morning, and they journey from Shittim, and come in unto the Jordan, he and all the sons of Israel, and they lodge there before they pass over.
 

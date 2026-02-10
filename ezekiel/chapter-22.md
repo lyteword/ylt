@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 22 YLT | Read the Bible Online"
+linkTitle: "22"
+description: "Read Ezekiel 22 Online | And there is a word of Jehovah unto me, saying..."
 weight: 22
 ---
 
-# Chapter 22
+# Ezekiel 22 
 
 **¹** And there is a word of Jehovah unto me, saying,
 

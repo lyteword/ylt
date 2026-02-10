@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 37 YLT | Read the Bible Online"
+linkTitle: "37"
+description: "Read Jeremiah 37 Online | And reign doth king Zedekiah son of Josiah instead of Coniah son of Jehoiakim whom Nebuchadrezzar king of Babylon had caused to reign in the land of Judah..."
 weight: 37
 ---
 
-# Chapter 37
+# Jeremiah 37 
 
 **¹** And reign doth king Zedekiah son of Josiah instead of Coniah son of Jehoiakim whom Nebuchadrezzar king of Babylon had caused to reign in the land of Judah,
 

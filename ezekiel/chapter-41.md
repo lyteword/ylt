@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 41 YLT | Read the Bible Online"
+linkTitle: "41"
+description: "Read Ezekiel 41 Online | And he bringeth me in unto the temple, and he measureth the posts, six cubits the breadth on this side, and six cubits the breadth on that side — the breadth of the tent..."
 weight: 41
 ---
 
-# Chapter 41
+# Ezekiel 41 
 
 **¹** And he bringeth me in unto the temple, and he measureth the posts, six cubits the breadth on this side, and six cubits the breadth on that side — the breadth of the tent.
 

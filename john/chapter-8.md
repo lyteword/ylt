@@ -1,8 +1,11 @@
 ---
+title: "John 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read John 8 Online | And at dawn he came again to the temple..."
 weight: 8
 ---
 
-# Chapter 8
+# John 8 
 
 **¹** And at dawn he came again to the temple,
 

@@ -1,8 +1,11 @@
 ---
+title: "Romans 7 YLT | Read the Bible Online"
+linkTitle: "7"
+description: "Read Romans 7 Online | Are ye ignorant, brethren — for to those knowing law I speak — that the law hath lordship over the man as long as he liveth..."
 weight: 7
 ---
 
-# Chapter 7
+# Romans 7 
 
 **¹** Are ye ignorant, brethren — for to those knowing law I speak — that the law hath lordship over the man as long as he liveth?
 

@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 30 YLT | Read the Bible Online"
+linkTitle: "30"
+description: "Read Proverbs 30 Online | Words of a Gatherer, son of an obedient one, the declaration, an affirmation of the man: — I have wearied myself [for] God, I have wearied myself [for] God, and am consumed..."
 weight: 30
 ---
 
-# Chapter 30
+# Proverbs 30 
 
 **¹** Words of a Gatherer, son of an obedient one, the declaration, an affirmation of the man: — I have wearied myself [for] God, I have wearied myself [for] God, and am consumed.
 

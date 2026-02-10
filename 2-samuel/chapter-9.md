@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read 2 Samuel 9 Online | And David saith, 'Is there yet any left to the house of Saul, and I do with him kindness because of Jonathan?..."
 weight: 9
 ---
 
-# Chapter 9
+# 2 Samuel 9 
 
 **¹** And David saith, 'Is there yet any left to the house of Saul, and I do with him kindness because of Jonathan?'
 

@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 14 YLT | Read the Bible Online"
+linkTitle: "14"
+description: "Read 1 Corinthians 14 Online | Pursue the love, and seek earnestly the spiritual things, and rather that ye may prophecy..."
 weight: 14
 ---
 
-# Chapter 14
+# 1 Corinthians 14 
 
 **¹** Pursue the love, and seek earnestly the spiritual things, and rather that ye may prophecy,
 

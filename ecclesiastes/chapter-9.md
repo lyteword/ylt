@@ -1,8 +1,11 @@
 ---
+title: "Ecclesiastes 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read Ecclesiastes 9 Online | But all this I have laid unto my heart, so as to clear up the whole of this, that the righteous and the wise, and their works, [are] in the hand of God, neither love nor hatred doth man know, the whole [is] before them..."
 weight: 9
 ---
 
-# Chapter 9
+# Ecclesiastes 9 
 
 **¹** But all this I have laid unto my heart, so as to clear up the whole of this, that the righteous and the wise, and their works, [are] in the hand of God, neither love nor hatred doth man know, the whole [is] before them.
 

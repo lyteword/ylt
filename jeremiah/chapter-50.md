@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 50 YLT | Read the Bible Online"
+linkTitle: "50"
+description: "Read Jeremiah 50 Online | The word that Jehovah hath spoken concerning Babylon, concerning the land of the Chaldeans, by the hand of Jeremiah the prophet..."
 weight: 50
 ---
 
-# Chapter 50
+# Jeremiah 50 
 
 **¹** The word that Jehovah hath spoken concerning Babylon, concerning the land of the Chaldeans, by the hand of Jeremiah the prophet:
 

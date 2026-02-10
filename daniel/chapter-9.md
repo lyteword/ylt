@@ -1,8 +1,11 @@
 ---
+title: "Daniel 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read Daniel 9 Online | In the first year of Darius, son of Ahasuerus, of the seed of the Medes, who hath been made king over the kingdom of the Chaldeans..."
 weight: 9
 ---
 
-# Chapter 9
+# Daniel 9 
 
 **¹** In the first year of Darius, son of Ahasuerus, of the seed of the Medes, who hath been made king over the kingdom of the Chaldeans,
 

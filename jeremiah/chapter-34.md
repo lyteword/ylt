@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 34 YLT | Read the Bible Online"
+linkTitle: "34"
+description: "Read Jeremiah 34 Online | The word that hath been unto Jeremiah from Jehovah — and Nebuchadnezzar king of Babylon, and all his force, and all kingdoms of the land of the dominion of his hand, and all the peoples are fighting against Jerusalem, and against all its cities — saying..."
 weight: 34
 ---
 
-# Chapter 34
+# Jeremiah 34 
 
 **¹** The word that hath been unto Jeremiah from Jehovah — and Nebuchadnezzar king of Babylon, and all his force, and all kingdoms of the land of the dominion of his hand, and all the peoples are fighting against Jerusalem, and against all its cities — saying:
 

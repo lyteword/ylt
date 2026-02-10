@@ -1,8 +1,11 @@
 ---
+title: "Ephesians 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Ephesians 3 Online | For this cause, I Paul, the prisoner of Christ Jesus for you the nations..."
 weight: 3
 ---
 
-# Chapter 3
+# Ephesians 3 
 
 **¹** For this cause, I Paul, the prisoner of Christ Jesus for you the nations,
 

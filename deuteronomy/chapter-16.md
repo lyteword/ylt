@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 16 YLT | Read the Bible Online"
+linkTitle: "16"
+description: "Read Deuteronomy 16 Online | 'Observe the month of Abib — and thou hast made a passover to Jehovah thy God, for in the month of Abib hath Jehovah thy God brought thee out of Egypt by night..."
 weight: 16
 ---
 
-# Chapter 16
+# Deuteronomy 16 
 
 **¹** 'Observe the month of Abib — and thou hast made a passover to Jehovah thy God, for in the month of Abib hath Jehovah thy God brought thee out of Egypt by night;
 

@@ -1,8 +1,11 @@
 ---
+title: "2 Timothy 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read 2 Timothy 3 Online | And this know thou, that in the last days there shall come perilous times..."
 weight: 3
 ---
 
-# Chapter 3
+# 2 Timothy 3 
 
 **¹** And this know thou, that in the last days there shall come perilous times,
 

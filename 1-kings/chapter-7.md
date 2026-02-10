@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 7 YLT | Read the Bible Online"
+linkTitle: "7"
+description: "Read 1 Kings 7 Online | And his own house hath Solomon built thirteen years, and he finisheth all his house..."
 weight: 7
 ---
 
-# Chapter 7
+# 1 Kings 7 
 
 **¹** And his own house hath Solomon built thirteen years, and he finisheth all his house.
 

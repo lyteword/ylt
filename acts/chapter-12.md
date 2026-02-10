@@ -1,8 +1,11 @@
 ---
+title: "Acts 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read Acts 12 Online | And about that time, Herod the king put forth his hands, to do evil to certain of those of the assembly..."
 weight: 12
 ---
 
-# Chapter 12
+# Acts 12 
 
 **¹** And about that time, Herod the king put forth his hands, to do evil to certain of those of the assembly,
 

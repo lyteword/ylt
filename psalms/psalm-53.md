@@ -1,8 +1,11 @@
 ---
+title: "Psalm 53 YLT | Read the Bible Online"
+linkTitle: "53"
+description: "Read Psalm 53 Online | To the Overseer. — 'On a disease.' — An instruction, by David. A fool said in his heart, 'There is no God.' They have done corruptly, Yea, they have done abominable iniquity, There is none doing good..."
 weight: 53
 ---
 
-# Psalm 53
+# Psalm 53 
 
 **¹** To the Overseer. — 'On a disease.' — An instruction, by David. A fool said in his heart, 'There is no God.' They have done corruptly, Yea, they have done abominable iniquity, There is none doing good.
 

@@ -1,8 +1,11 @@
 ---
+title: "Exodus 26 YLT | Read the Bible Online"
+linkTitle: "26"
+description: "Read Exodus 26 Online | 'And thou dost make the tabernacle: ten curtains of twined linen, and blue, and purple, and scarlet; [with] cherubs, work of a designer, thou dost make them..."
 weight: 26
 ---
 
-# Chapter 26
+# Exodus 26 
 
 **¹** 'And thou dost make the tabernacle: ten curtains of twined linen, and blue, and purple, and scarlet; [with] cherubs, work of a designer, thou dost make them;
 

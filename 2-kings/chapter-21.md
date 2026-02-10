@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 21 YLT | Read the Bible Online"
+linkTitle: "21"
+description: "Read 2 Kings 21 Online | A son of twelve years [is] Manasseh in his reigning, and fifty and five years he hath reigned in Jerusalem, and the name of his mother [is] Hephzi-Bah..."
 weight: 21
 ---
 
-# Chapter 21
+# 2 Kings 21 
 
 **¹** A son of twelve years [is] Manasseh in his reigning, and fifty and five years he hath reigned in Jerusalem, and the name of his mother [is] Hephzi-Bah;
 

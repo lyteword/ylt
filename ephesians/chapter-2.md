@@ -1,8 +1,11 @@
 ---
+title: "Ephesians 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Ephesians 2 Online | Also you — being dead in the trespasses and the sins..."
 weight: 2
 ---
 
-# Chapter 2
+# Ephesians 2 
 
 **¹** Also you — being dead in the trespasses and the sins,
 

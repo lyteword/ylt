@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 17 YLT | Read the Bible Online"
+linkTitle: "17"
+description: "Read 2 Kings 17 Online | In the twelfth year of Ahaz king of Judah reigned hath Hoshea son of Elah in Samaria, over Israel — nine years..."
 weight: 17
 ---
 
-# Chapter 17
+# 2 Kings 17 
 
 **¹** In the twelfth year of Ahaz king of Judah reigned hath Hoshea son of Elah in Samaria, over Israel — nine years,
 

@@ -1,8 +1,11 @@
 ---
+title: "Ephesians 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Ephesians 6 Online | The children! obey your parents in the Lord, for this is righteous..."
 weight: 6
 ---
 
-# Chapter 6
+# Ephesians 6 
 
 **¹** The children! obey your parents in the Lord, for this is righteous;
 

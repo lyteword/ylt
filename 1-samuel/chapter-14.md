@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 14 YLT | Read the Bible Online"
+linkTitle: "14"
+description: "Read 1 Samuel 14 Online | And the day cometh that Jonathan son of Saul saith unto the young man bearing his weapons, 'Come, and we pass over unto the station of the Philistines, which [is] on the other side of this;' and to his father he hath not declared [it]..."
 weight: 14
 ---
 
-# Chapter 14
+# 1 Samuel 14 
 
 **¹** And the day cometh that Jonathan son of Saul saith unto the young man bearing his weapons, 'Come, and we pass over unto the station of the Philistines, which [is] on the other side of this;' and to his father he hath not declared [it].
 

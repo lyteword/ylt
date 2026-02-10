@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read 1 Chronicles 4 Online | Sons of Judah: Pharez, Hezron, and Carmi, and Hur, and Shobal..."
 weight: 4
 ---
 
-# Chapter 4
+# 1 Chronicles 4 
 
 **¹** Sons of Judah: Pharez, Hezron, and Carmi, and Hur, and Shobal.
 

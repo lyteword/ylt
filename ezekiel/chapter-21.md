@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 21 YLT | Read the Bible Online"
+linkTitle: "21"
+description: "Read Ezekiel 21 Online | And there is a word of Jehovah unto me, saying..."
 weight: 21
 ---
 
-# Chapter 21
+# Ezekiel 21 
 
 **¹** And there is a word of Jehovah unto me, saying,
 

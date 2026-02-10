@@ -1,8 +1,11 @@
 ---
+title: "Genesis 32 YLT | Read the Bible Online"
+linkTitle: "32"
+description: "Read Genesis 32 Online | And Jacob hath gone on his way, and messengers of God come upon him..."
 weight: 32
 ---
 
-# Chapter 32
+# Genesis 32 
 
 **¹** And Jacob hath gone on his way, and messengers of God come upon him;
 

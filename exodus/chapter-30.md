@@ -1,8 +1,11 @@
 ---
+title: "Exodus 30 YLT | Read the Bible Online"
+linkTitle: "30"
+description: "Read Exodus 30 Online | 'And thou hast made an altar [for] making perfume; [of] shittim wood thou dost make it..."
 weight: 30
 ---
 
-# Chapter 30
+# Exodus 30 
 
 **¹** 'And thou hast made an altar [for] making perfume; [of] shittim wood thou dost make it;
 

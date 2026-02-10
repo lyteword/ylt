@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 15 YLT | Read the Bible Online"
+linkTitle: "15"
+description: "Read Ezekiel 15 Online | And there is a word of Jehovah unto me, saying..."
 weight: 15
 ---
 
-# Chapter 15
+# Ezekiel 15 
 
 **¹** And there is a word of Jehovah unto me, saying:
 

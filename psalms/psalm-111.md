@@ -1,8 +1,11 @@
 ---
+title: "Psalm 111 YLT | Read the Bible Online"
+linkTitle: "111"
+description: "Read Psalm 111 Online | Praise ye Jah! I thank Jehovah with the whole heart, In the secret meeting of the upright, And of the company..."
 weight: 111
 ---
 
-# Psalm 111
+# Psalm 111 
 
 **¹** Praise ye Jah! I thank Jehovah with the whole heart, In the secret meeting of the upright, And of the company.
 

@@ -1,8 +1,11 @@
 ---
+title: "Acts 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read Acts 9 Online | And Saul, yet breathing of threatening and slaughter to the disciples of the Lord, having gone to the chief priest..."
 weight: 9
 ---
 
-# Chapter 9
+# Acts 9 
 
 **¹** And Saul, yet breathing of threatening and slaughter to the disciples of the Lord, having gone to the chief priest,
 

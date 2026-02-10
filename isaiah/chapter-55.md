@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 55 YLT | Read the Bible Online"
+linkTitle: "55"
+description: "Read Isaiah 55 Online | Ho, every thirsty one, come ye to the waters, And he who hath no money, Come ye, buy and eat, yea, come, buy Without money and without price, wine and milk..."
 weight: 55
 ---
 
-# Chapter 55
+# Isaiah 55 
 
 **¹** Ho, every thirsty one, come ye to the waters, And he who hath no money, Come ye, buy and eat, yea, come, buy Without money and without price, wine and milk.
 

@@ -1,8 +1,11 @@
 ---
+title: "Psalm 145 YLT | Read the Bible Online"
+linkTitle: "145"
+description: "Read Psalm 145 Online | Praise by David. I exalt Thee, my God, O king, And bless Thy name to the age and for ever..."
 weight: 145
 ---
 
-# Psalm 145
+# Psalm 145 
 
 **¹** Praise by David. I exalt Thee, my God, O king, And bless Thy name to the age and for ever.
 

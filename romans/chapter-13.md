@@ -1,8 +1,11 @@
 ---
+title: "Romans 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read Romans 13 Online | Let every soul to the higher authorities be subject, for there is no authority except from God, and the authorities existing are appointed by God..."
 weight: 13
 ---
 
-# Chapter 13
+# Romans 13 
 
 **¹** Let every soul to the higher authorities be subject, for there is no authority except from God, and the authorities existing are appointed by God,
 

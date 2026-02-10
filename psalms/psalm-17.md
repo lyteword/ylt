@@ -1,8 +1,11 @@
 ---
+title: "Psalm 17 YLT | Read the Bible Online"
+linkTitle: "17"
+description: "Read Psalm 17 Online | A Prayer of David. Hear, O Jehovah, righteousness, attend my cry, Give ear [to] my prayer, without lips of deceit..."
 weight: 17
 ---
 
-# Psalm 17
+# Psalm 17 
 
 **¹** A Prayer of David. Hear, O Jehovah, righteousness, attend my cry, Give ear [to] my prayer, without lips of deceit.
 

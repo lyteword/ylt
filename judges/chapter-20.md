@@ -1,8 +1,11 @@
 ---
+title: "Judges 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read Judges 20 Online | And all the sons of Israel go out, and the company is assembled as one man, from Dan even unto Beer-Sheba, and the land of Gilead, unto Jehovah, at Mizpeh..."
 weight: 20
 ---
 
-# Chapter 20
+# Judges 20 
 
 **¹** And all the sons of Israel go out, and the company is assembled as one man, from Dan even unto Beer-Sheba, and the land of Gilead, unto Jehovah, at Mizpeh.
 

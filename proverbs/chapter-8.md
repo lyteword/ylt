@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read Proverbs 8 Online | Doth not wisdom call? And understanding give forth her voice..."
 weight: 8
 ---
 
-# Chapter 8
+# Proverbs 8 
 
 **¹** Doth not wisdom call? And understanding give forth her voice?
 

@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read 2 Samuel 20 Online | And there hath been called there a man of worthlessness, and his name [is] Sheba, son of Bichri, a Benjamite, and he bloweth with a trumpet, and saith, 'We have no portion in David, and we have no inheritance in the son of Jesse; each to his tents, O Israel...."
 weight: 20
 ---
 
-# Chapter 20
+# 2 Samuel 20 
 
 **¹** And there hath been called there a man of worthlessness, and his name [is] Sheba, son of Bichri, a Benjamite, and he bloweth with a trumpet, and saith, 'We have no portion in David, and we have no inheritance in the son of Jesse; each to his tents, O Israel.'
 

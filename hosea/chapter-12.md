@@ -1,8 +1,11 @@
 ---
+title: "Hosea 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read Hosea 12 Online | Ephraim is enjoying wind, And is pursuing an east wind, All the day lying and spoiling he multiplieth, And a covenant with Asshur they make, And oil to Egypt is carried..."
 weight: 12
 ---
 
-# Chapter 12
+# Hosea 12 
 
 **¹** Ephraim is enjoying wind, And is pursuing an east wind, All the day lying and spoiling he multiplieth, And a covenant with Asshur they make, And oil to Egypt is carried.
 

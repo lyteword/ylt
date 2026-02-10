@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 22 YLT | Read the Bible Online"
+linkTitle: "22"
+description: "Read 1 Kings 22 Online | And they sit still three years, there is no war between Aram and Israel..."
 weight: 22
 ---
 
-# Chapter 22
+# 1 Kings 22 
 
 **¹** And they sit still three years, there is no war between Aram and Israel,
 

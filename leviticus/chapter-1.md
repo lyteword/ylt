@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Leviticus 1 Online | And Jehovah calleth unto Moses, and speaketh unto him out of the tent of meeting, saying..."
 weight: 1
 ---
 
-# Chapter 1
+# Leviticus 1 
 
 **¹** And Jehovah calleth unto Moses, and speaketh unto him out of the tent of meeting, saying,
 

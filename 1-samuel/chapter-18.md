@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 18 YLT | Read the Bible Online"
+linkTitle: "18"
+description: "Read 1 Samuel 18 Online | And it cometh to pass, when he finisheth to speak unto Saul, that the soul of Jonathan hath been bound to the soul of David, and Jonathan loveth him as his own soul..."
 weight: 18
 ---
 
-# Chapter 18
+# 1 Samuel 18 
 
 **¹** And it cometh to pass, when he finisheth to speak unto Saul, that the soul of Jonathan hath been bound to the soul of David, and Jonathan loveth him as his own soul.
 

@@ -1,8 +1,11 @@
 ---
+title: "Joshua 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read Joshua 10 Online | And it cometh to pass, when Adoni-Zedek king of Jerusalem heareth that Joshua hath captured Ai, and doth devote it (as he had done to Jericho and to her king so he hath done to Ai and to her king), and that the inhabitants of Gibeon have made peace with Israel, and are in their midst, ..."
 weight: 10
 ---
 
-# Chapter 10
+# Joshua 10 
 
 **¹** And it cometh to pass, when Adoni-Zedek king of Jerusalem heareth that Joshua hath captured Ai, and doth devote it (as he had done to Jericho and to her king so he hath done to Ai and to her king), and that the inhabitants of Gibeon have made peace with Israel, and are in their midst, —
 

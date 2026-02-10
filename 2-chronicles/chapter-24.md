@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 24 YLT | Read the Bible Online"
+linkTitle: "24"
+description: "Read 2 Chronicles 24 Online | A son of seven years [is] Joash in his reigning, and forty years he hath reigned in Jerusalem, and the name of his mother [is] Zibiah of Beer-Sheba..."
 weight: 24
 ---
 
-# Chapter 24
+# 2 Chronicles 24 
 
 **¹** A son of seven years [is] Joash in his reigning, and forty years he hath reigned in Jerusalem, and the name of his mother [is] Zibiah of Beer-Sheba.
 

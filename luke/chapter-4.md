@@ -1,8 +1,11 @@
 ---
+title: "Luke 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read Luke 4 Online | And Jesus, full of the Holy Spirit, turned back from the Jordan, and was brought in the Spirit to the wilderness..."
 weight: 4
 ---
 
-# Chapter 4
+# Luke 4 
 
 **¹** And Jesus, full of the Holy Spirit, turned back from the Jordan, and was brought in the Spirit to the wilderness,
 

@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read Ezekiel 13 Online | And there is a word of Jehovah unto me, saying..."
 weight: 13
 ---
 
-# Chapter 13
+# Ezekiel 13 
 
 **¹** And there is a word of Jehovah unto me, saying,
 

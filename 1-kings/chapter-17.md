@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 17 YLT | Read the Bible Online"
+linkTitle: "17"
+description: "Read 1 Kings 17 Online | And Elijah the Tishbite, of the inhabitants of Gilead, saith unto Ahab, 'Jehovah, God of Israel, liveth, before whom I have stood, there is not these years dew and rain, except according to my word...."
 weight: 17
 ---
 
-# Chapter 17
+# 1 Kings 17 
 
 **¹** And Elijah the Tishbite, of the inhabitants of Gilead, saith unto Ahab, 'Jehovah, God of Israel, liveth, before whom I have stood, there is not these years dew and rain, except according to my word.'
 

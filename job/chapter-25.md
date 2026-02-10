@@ -1,8 +1,11 @@
 ---
+title: "Job 25 YLT | Read the Bible Online"
+linkTitle: "25"
+description: "Read Job 25 Online | And Bildad the Shuhite answereth and saith: ..."
 weight: 25
 ---
 
-# Chapter 25
+# Job 25 
 
 **¹** And Bildad the Shuhite answereth and saith: —
 

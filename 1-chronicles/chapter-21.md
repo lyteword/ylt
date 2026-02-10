@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 21 YLT | Read the Bible Online"
+linkTitle: "21"
+description: "Read 1 Chronicles 21 Online | And there standeth up an adversary against Israel, and persuadeth David to number Israel..."
 weight: 21
 ---
 
-# Chapter 21
+# 1 Chronicles 21 
 
 **¹** And there standeth up an adversary against Israel, and persuadeth David to number Israel,
 

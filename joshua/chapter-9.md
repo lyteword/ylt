@@ -1,8 +1,11 @@
 ---
+title: "Joshua 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read Joshua 9 Online | And it cometh to pass, when all the kings who [are] beyond the Jordan, in the hill-country, and in the low-country, and in every haven of the great sea, over-against Lebanon, the Hittite, and the Amorite, the Canaanite, the Perizzite, the Hivite, and the Jebusite, hear ..."
 weight: 9
 ---
 
-# Chapter 9
+# Joshua 9 
 
 **¹** And it cometh to pass, when all the kings who [are] beyond the Jordan, in the hill-country, and in the low-country, and in every haven of the great sea, over-against Lebanon, the Hittite, and the Amorite, the Canaanite, the Perizzite, the Hivite, and the Jebusite, hear —
 

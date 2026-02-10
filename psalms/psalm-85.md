@@ -1,8 +1,11 @@
 ---
+title: "Psalm 85 YLT | Read the Bible Online"
+linkTitle: "85"
+description: "Read Psalm 85 Online | To the Overseer. — By sons of Korah. A Psalm. Thou hast accepted, O Jehovah, Thy land, Thou hast turned [to] the captivity of Jacob..."
 weight: 85
 ---
 
-# Psalm 85
+# Psalm 85 
 
 **¹** To the Overseer. — By sons of Korah. A Psalm. Thou hast accepted, O Jehovah, Thy land, Thou hast turned [to] the captivity of Jacob.
 

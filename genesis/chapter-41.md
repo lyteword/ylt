@@ -1,8 +1,11 @@
 ---
+title: "Genesis 41 YLT | Read the Bible Online"
+linkTitle: "41"
+description: "Read Genesis 41 Online | And it cometh to pass, at the end of two years of days that Pharaoh is dreaming, and lo, he is standing by the River..."
 weight: 41
 ---
 
-# Chapter 41
+# Genesis 41 
 
 **¹** And it cometh to pass, at the end of two years of days that Pharaoh is dreaming, and lo, he is standing by the River,
 

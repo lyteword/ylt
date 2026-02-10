@@ -1,8 +1,11 @@
 ---
+title: "Joshua 23 YLT | Read the Bible Online"
+linkTitle: "23"
+description: "Read Joshua 23 Online | And it cometh to pass, many days after that Jehovah hath given rest to Israel from all their enemies round about, that Joshua is old, entering into days..."
 weight: 23
 ---
 
-# Chapter 23
+# Joshua 23 
 
 **¹** And it cometh to pass, many days after that Jehovah hath given rest to Israel from all their enemies round about, that Joshua is old, entering into days,
 

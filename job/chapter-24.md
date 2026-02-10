@@ -1,8 +1,11 @@
 ---
+title: "Job 24 YLT | Read the Bible Online"
+linkTitle: "24"
+description: "Read Job 24 Online | Wherefore from the Mighty One Times have not been hidden, And those knowing Him have not seen His days..."
 weight: 24
 ---
 
-# Chapter 24
+# Job 24 
 
 **¹** Wherefore from the Mighty One Times have not been hidden, And those knowing Him have not seen His days.
 

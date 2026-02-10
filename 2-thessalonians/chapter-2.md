@@ -1,8 +1,11 @@
 ---
+title: "2 Thessalonians 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read 2 Thessalonians 2 Online | And we ask you, brethren, in regard to the presence of our Lord Jesus Christ, and of our gathering together unto him..."
 weight: 2
 ---
 
-# Chapter 2
+# 2 Thessalonians 2 
 
 **¹** And we ask you, brethren, in regard to the presence of our Lord Jesus Christ, and of our gathering together unto him,
 

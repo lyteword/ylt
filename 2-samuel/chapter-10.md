@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read 2 Samuel 10 Online | And it cometh to pass afterwards, that the king of the Bene-Ammon dieth, and Hanun his son reigneth in his stead..."
 weight: 10
 ---
 
-# Chapter 10
+# 2 Samuel 10 
 
 **¹** And it cometh to pass afterwards, that the king of the Bene-Ammon dieth, and Hanun his son reigneth in his stead,
 

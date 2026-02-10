@@ -1,8 +1,11 @@
 ---
+title: "Micah 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read Micah 5 Online | Now gather thyself together, O daughter of troops, A siege he hath laid against us, With a rod they smite on the cheek the judge of Israel..."
 weight: 5
 ---
 
-# Chapter 5
+# Micah 5 
 
 **¹** Now gather thyself together, O daughter of troops, A siege he hath laid against us, With a rod they smite on the cheek the judge of Israel.
 

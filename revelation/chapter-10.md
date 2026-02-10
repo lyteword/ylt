@@ -1,8 +1,11 @@
 ---
+title: "Revelation 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read Revelation 10 Online | And I saw another strong messenger coming down out of the heaven, arrayed with a cloud, and a rainbow upon the head, and his face as the sun, and his feet as pillars of fire..."
 weight: 10
 ---
 
-# Chapter 10
+# Revelation 10 
 
 **¹** And I saw another strong messenger coming down out of the heaven, arrayed with a cloud, and a rainbow upon the head, and his face as the sun, and his feet as pillars of fire,
 

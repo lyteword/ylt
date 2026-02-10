@@ -1,8 +1,11 @@
 ---
+title: "Exodus 38 YLT | Read the Bible Online"
+linkTitle: "38"
+description: "Read Exodus 38 Online | And he maketh the altar of burnt-offering of shittim wood, five cubits its length, and five cubits its breadth (square), and three cubits its height..."
 weight: 38
 ---
 
-# Chapter 38
+# Exodus 38 
 
 **¹** And he maketh the altar of burnt-offering of shittim wood, five cubits its length, and five cubits its breadth (square), and three cubits its height;
 

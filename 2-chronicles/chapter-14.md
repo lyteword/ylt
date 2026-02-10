@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 14 YLT | Read the Bible Online"
+linkTitle: "14"
+description: "Read 2 Chronicles 14 Online | And Abijah lieth with his fathers, and they bury him in the city of David, and reign doth Asa his son in his stead: in his days was the land quiet ten years..."
 weight: 14
 ---
 
-# Chapter 14
+# 2 Chronicles 14 
 
 **¹** And Abijah lieth with his fathers, and they bury him in the city of David, and reign doth Asa his son in his stead: in his days was the land quiet ten years.
 

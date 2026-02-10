@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Isaiah 6 Online | In the year of the death of king Uzziah — I see the Lord, sitting on a throne, high and lifted up, and His train is filling the temple..."
 weight: 6
 ---
 
-# Chapter 6
+# Isaiah 6 
 
 **¹** In the year of the death of king Uzziah — I see the Lord, sitting on a throne, high and lifted up, and His train is filling the temple.
 

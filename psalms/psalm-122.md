@@ -1,8 +1,11 @@
 ---
+title: "Psalm 122 YLT | Read the Bible Online"
+linkTitle: "122"
+description: "Read Psalm 122 Online | A Song of the Ascents, by David. I have rejoiced in those saying to me, 'To the house of Jehovah we go...."
 weight: 122
 ---
 
-# Psalm 122
+# Psalm 122 
 
 **¹** A Song of the Ascents, by David. I have rejoiced in those saying to me, 'To the house of Jehovah we go.'
 

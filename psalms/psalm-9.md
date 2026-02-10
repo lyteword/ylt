@@ -1,8 +1,11 @@
 ---
+title: "Psalm 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read Psalm 9 Online | To the Overseer, 'On the Death of Labben.' — A Psalm of David. I confess, O Jehovah, with all my heart, I recount all Thy wonders..."
 weight: 9
 ---
 
-# Psalm 9
+# Psalm 9 
 
 **¹** To the Overseer, 'On the Death of Labben.' — A Psalm of David. I confess, O Jehovah, with all my heart, I recount all Thy wonders,
 

@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 47 YLT | Read the Bible Online"
+linkTitle: "47"
+description: "Read Jeremiah 47 Online | That which hath been the word of Jehovah unto Jeremiah concerning the Philistines, before Pharaoh smiteth Gaza..."
 weight: 47
 ---
 
-# Chapter 47
+# Jeremiah 47 
 
 **¹** That which hath been the word of Jehovah unto Jeremiah concerning the Philistines, before Pharaoh smiteth Gaza:
 

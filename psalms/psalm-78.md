@@ -1,8 +1,11 @@
 ---
+title: "Psalm 78 YLT | Read the Bible Online"
+linkTitle: "78"
+description: "Read Psalm 78 Online | An Instruction of Asaph. Give ear, O my people, to my law, Incline your ear to sayings of my mouth..."
 weight: 78
 ---
 
-# Psalm 78
+# Psalm 78 
 
 **¹** An Instruction of Asaph. Give ear, O my people, to my law, Incline your ear to sayings of my mouth.
 

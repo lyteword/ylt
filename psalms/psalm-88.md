@@ -1,8 +1,11 @@
 ---
+title: "Psalm 88 YLT | Read the Bible Online"
+linkTitle: "88"
+description: "Read Psalm 88 Online | A Song, a Psalm, by sons of Korah, to the Overseer, 'Concerning the Sickness of Afflictions.' — An instruction, by Heman the Ezrahite. O Jehovah, God of my salvation, Daily I have cried, nightly before Thee..."
 weight: 88
 ---
 
-# Psalm 88
+# Psalm 88 
 
 **¹** A Song, a Psalm, by sons of Korah, to the Overseer, 'Concerning the Sickness of Afflictions.' — An instruction, by Heman the Ezrahite. O Jehovah, God of my salvation, Daily I have cried, nightly before Thee,
 

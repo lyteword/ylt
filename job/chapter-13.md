@@ -1,8 +1,11 @@
 ---
+title: "Job 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read Job 13 Online | Lo, all — hath mine eye seen, Heard hath mine ear, and it attendeth to it..."
 weight: 13
 ---
 
-# Chapter 13
+# Job 13 
 
 **¹** Lo, all — hath mine eye seen, Heard hath mine ear, and it attendeth to it.
 

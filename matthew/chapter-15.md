@@ -1,8 +1,11 @@
 ---
+title: "Matthew 15 YLT | Read the Bible Online"
+linkTitle: "15"
+description: "Read Matthew 15 Online | Then come unto Jesus do they from Jerusalem — scribes and Pharisees — saying..."
 weight: 15
 ---
 
-# Chapter 15
+# Matthew 15 
 
 **¹** Then come unto Jesus do they from Jerusalem — scribes and Pharisees — saying,
 

@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 48 YLT | Read the Bible Online"
+linkTitle: "48"
+description: "Read Jeremiah 48 Online | Concerning Moab: 'Thus said Jehovah of Hosts, God of Israel: Woe unto Nebo, for it is spoiled, Put to shame, captured hath been Kiriathaim, Put to shame hath been the high tower, Yea, it hath been broken down..."
 weight: 48
 ---
 
-# Chapter 48
+# Jeremiah 48 
 
 **¹** Concerning Moab: 'Thus said Jehovah of Hosts, God of Israel: Woe unto Nebo, for it is spoiled, Put to shame, captured hath been Kiriathaim, Put to shame hath been the high tower, Yea, it hath been broken down.
 

@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 33 YLT | Read the Bible Online"
+linkTitle: "33"
+description: "Read Isaiah 33 Online | Woe, spoiler! and thou not spoiled, And treacherous! and they dealt not treacherously with thee, When thou dost finish, O spoiler, thou art spoiled, When thou dost finish dealing treacherously, They deal treacherously with thee..."
 weight: 33
 ---
 
-# Chapter 33
+# Isaiah 33 
 
 **¹** Woe, spoiler! and thou not spoiled, And treacherous! and they dealt not treacherously with thee, When thou dost finish, O spoiler, thou art spoiled, When thou dost finish dealing treacherously, They deal treacherously with thee.
 

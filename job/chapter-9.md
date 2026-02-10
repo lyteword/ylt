@@ -1,8 +1,11 @@
 ---
+title: "Job 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read Job 9 Online | And Job answereth and saith: ..."
 weight: 9
 ---
 
-# Chapter 9
+# Job 9 
 
 **¹** And Job answereth and saith: —
 

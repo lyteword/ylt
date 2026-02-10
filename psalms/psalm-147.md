@@ -1,8 +1,11 @@
 ---
+title: "Psalm 147 YLT | Read the Bible Online"
+linkTitle: "147"
+description: "Read Psalm 147 Online | Praise ye Jah! For [it is] good to praise our God, For pleasant — comely [is] praise..."
 weight: 147
 ---
 
-# Psalm 147
+# Psalm 147 
 
 **¹** Praise ye Jah! For [it is] good to praise our God, For pleasant — comely [is] praise.
 

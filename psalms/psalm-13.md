@@ -1,8 +1,11 @@
 ---
+title: "Psalm 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read Psalm 13 Online | To the Overseer. — A Psalm of David. Till when, O Jehovah, Dost Thou forget me? — for ever? Till when dost Thou hide Thy face from me..."
 weight: 13
 ---
 
-# Psalm 13
+# Psalm 13 
 
 **¹** To the Overseer. — A Psalm of David. Till when, O Jehovah, Dost Thou forget me? — for ever? Till when dost Thou hide Thy face from me?
 

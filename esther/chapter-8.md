@@ -1,8 +1,11 @@
 ---
+title: "Esther 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read Esther 8 Online | On that day hath the king Ahasuerus given to Esther the queen the house of Haman, adversary of the Jews, and Mordecai hath come in before the king, for Esther hath declared what he [is] to her..."
 weight: 8
 ---
 
-# Chapter 8
+# Esther 8 
 
 **¹** On that day hath the king Ahasuerus given to Esther the queen the house of Haman, adversary of the Jews, and Mordecai hath come in before the king, for Esther hath declared what he [is] to her,
 

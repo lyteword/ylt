@@ -1,8 +1,11 @@
 ---
+title: "Acts 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Acts 6 Online | And in these days, the disciples multiplying, there came a murmuring of the Hellenists at the Hebrews, because their widows were being overlooked in the daily ministration..."
 weight: 6
 ---
 
-# Chapter 6
+# Acts 6 
 
 **¹** And in these days, the disciples multiplying, there came a murmuring of the Hellenists at the Hebrews, because their widows were being overlooked in the daily ministration,
 

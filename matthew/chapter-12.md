@@ -1,8 +1,11 @@
 ---
+title: "Matthew 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read Matthew 12 Online | At that time did Jesus go on the sabbaths through the corn, and his disciples were hungry, and they began to pluck ears, and to eat..."
 weight: 12
 ---
 
-# Chapter 12
+# Matthew 12 
 
 **¹** At that time did Jesus go on the sabbaths through the corn, and his disciples were hungry, and they began to pluck ears, and to eat,
 

@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read Isaiah 20 Online | In the year of the coming in of Tartan to Ashdod, when Sargon king of Asshur sendeth him, and he fighteth against Ashdod, and captureth it..."
 weight: 20
 ---
 
-# Chapter 20
+# Isaiah 20 
 
 **¹** In the year of the coming in of Tartan to Ashdod, when Sargon king of Asshur sendeth him, and he fighteth against Ashdod, and captureth it,
 

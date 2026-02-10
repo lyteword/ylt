@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read Proverbs 13 Online | A wise son — the instruction of a father, And a scorner — he hath not heard rebuke..."
 weight: 13
 ---
 
-# Chapter 13
+# Proverbs 13 
 
 **¹** A wise son — the instruction of a father, And a scorner — he hath not heard rebuke.
 

@@ -1,8 +1,11 @@
 ---
+title: "Joshua 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read Joshua 8 Online | And Jehovah saith unto Joshua, 'Fear not, nor be affrighted, take with thee all the people of war, and rise, go up to Ai; see, I have given into thy hand the king of Ai, and his people, and his city, and his land..."
 weight: 8
 ---
 
-# Chapter 8
+# Joshua 8 
 
 **¹** And Jehovah saith unto Joshua, 'Fear not, nor be affrighted, take with thee all the people of war, and rise, go up to Ai; see, I have given into thy hand the king of Ai, and his people, and his city, and his land,
 

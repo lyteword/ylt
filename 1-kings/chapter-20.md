@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read 1 Kings 20 Online | And Ben-Hadad king of Aram hath gathered all his force, and thirty and two kings [are] with him, and horse and chariot, and he goeth up and layeth siege against Samaria, and fighteth with it..."
 weight: 20
 ---
 
-# Chapter 20
+# 1 Kings 20 
 
 **¹** And Ben-Hadad king of Aram hath gathered all his force, and thirty and two kings [are] with him, and horse and chariot, and he goeth up and layeth siege against Samaria, and fighteth with it,
 

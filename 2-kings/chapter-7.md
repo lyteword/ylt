@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 7 YLT | Read the Bible Online"
+linkTitle: "7"
+description: "Read 2 Kings 7 Online | And Elisha saith, 'Hear ye a word of Jehovah: thus said Jehovah, About this time to-morrow, a measure of fine flour [is] at a shekel, and two measures of barley at a shekel, in the gate of Samaria...."
 weight: 7
 ---
 
-# Chapter 7
+# 2 Kings 7 
 
 **¹** And Elisha saith, 'Hear ye a word of Jehovah: thus said Jehovah, About this time to-morrow, a measure of fine flour [is] at a shekel, and two measures of barley at a shekel, in the gate of Samaria.'
 

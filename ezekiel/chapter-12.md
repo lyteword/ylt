@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read Ezekiel 12 Online | And there is a word of Jehovah unto me, saying..."
 weight: 12
 ---
 
-# Chapter 12
+# Ezekiel 12 
 
 **¹** And there is a word of Jehovah unto me, saying,
 

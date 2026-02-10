@@ -1,8 +1,11 @@
 ---
+title: "Genesis 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read Genesis 8 Online | And God remembereth Noah, and every living thing, and all the cattle which [are] with him in the ark, and God causeth a wind to pass over the earth, and the waters subside..."
 weight: 8
 ---
 
-# Chapter 8
+# Genesis 8 
 
 **¹** And God remembereth Noah, and every living thing, and all the cattle which [are] with him in the ark, and God causeth a wind to pass over the earth, and the waters subside,
 

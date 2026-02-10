@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 33 YLT | Read the Bible Online"
+linkTitle: "33"
+description: "Read Jeremiah 33 Online | And there is a word of Jehovah unto Jeremiah a second time — and he [is] yet detained in the court of the prison — saying..."
 weight: 33
 ---
 
-# Chapter 33
+# Jeremiah 33 
 
 **¹** And there is a word of Jehovah unto Jeremiah a second time — and he [is] yet detained in the court of the prison — saying:
 

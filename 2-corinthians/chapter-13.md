@@ -1,8 +1,11 @@
 ---
+title: "2 Corinthians 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read 2 Corinthians 13 Online | This third time do I come unto you; on the mouth of two witnesses or three shall every saying be established..."
 weight: 13
 ---
 
-# Chapter 13
+# 2 Corinthians 13 
 
 **¹** This third time do I come unto you; on the mouth of two witnesses or three shall every saying be established;
 

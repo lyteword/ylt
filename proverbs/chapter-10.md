@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read Proverbs 10 Online | Proverbs of Solomon. A wise son causeth a father to rejoice, And a foolish son [is] an affliction to his mother..."
 weight: 10
 ---
 
-# Chapter 10
+# Proverbs 10 
 
 **¹** Proverbs of Solomon. A wise son causeth a father to rejoice, And a foolish son [is] an affliction to his mother.
 

@@ -1,8 +1,11 @@
 ---
+title: "James 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read James 2 Online | My brethren, hold not, in respect of persons, the faith of the glory of our Lord Jesus Christ..."
 weight: 2
 ---
 
-# Chapter 2
+# James 2 
 
 **¹** My brethren, hold not, in respect of persons, the faith of the glory of our Lord Jesus Christ,
 

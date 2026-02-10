@@ -1,8 +1,11 @@
 ---
+title: "Job 26 YLT | Read the Bible Online"
+linkTitle: "26"
+description: "Read Job 26 Online | And Job answereth and saith: ..."
 weight: 26
 ---
 
-# Chapter 26
+# Job 26 
 
 **¹** And Job answereth and saith: —
 

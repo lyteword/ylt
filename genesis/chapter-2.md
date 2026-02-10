@@ -1,8 +1,11 @@
 ---
+title: "Genesis 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Genesis 2 Online | And the heavens and the earth are completed, and all their host..."
 weight: 2
 ---
 
-# Chapter 2
+# Genesis 2 
 
 **¹** And the heavens and the earth are completed, and all their host;
 

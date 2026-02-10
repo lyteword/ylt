@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read 1 Samuel 1 Online | And there is a certain man of Ramathaim-Zophim, of the hill-country of Ephraim, and his name [is] Elkanah, son of Jeroham, son of Elihu, son of Tohu, son of Zuph, and Ephrathite..."
 weight: 1
 ---
 
-# Chapter 1
+# 1 Samuel 1 
 
 **¹** And there is a certain man of Ramathaim-Zophim, of the hill-country of Ephraim, and his name [is] Elkanah, son of Jeroham, son of Elihu, son of Tohu, son of Zuph, and Ephrathite,
 

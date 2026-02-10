@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read 1 Corinthians 1 Online | Paul, a called apostle of Jesus Christ, through the will of God, and Sosthenes the brother..."
 weight: 1
 ---
 
-# Chapter 1
+# 1 Corinthians 1 
 
 **¹** Paul, a called apostle of Jesus Christ, through the will of God, and Sosthenes the brother,
 

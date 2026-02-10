@@ -1,8 +1,11 @@
 ---
+title: "Zechariah 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Zechariah 3 Online | And he sheweth me Joshua the high priest standing before the messenger of Jehovah, and the Adversary standing at his right hand, to be an adversary to him..."
 weight: 3
 ---
 
-# Chapter 3
+# Zechariah 3 
 
 **¹** And he sheweth me Joshua the high priest standing before the messenger of Jehovah, and the Adversary standing at his right hand, to be an adversary to him.
 

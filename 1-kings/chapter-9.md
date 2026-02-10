@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read 1 Kings 9 Online | And it cometh to pass, at Solomon's finishing to build the house of Jehovah, and the house of the king, and all the desire of Solomon that he delighted to do..."
 weight: 9
 ---
 
-# Chapter 9
+# 1 Kings 9 
 
 **¹** And it cometh to pass, at Solomon's finishing to build the house of Jehovah, and the house of the king, and all the desire of Solomon that he delighted to do,
 

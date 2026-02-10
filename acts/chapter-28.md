@@ -1,8 +1,11 @@
 ---
+title: "Acts 28 YLT | Read the Bible Online"
+linkTitle: "28"
+description: "Read Acts 28 Online | And having been saved, then they knew that the island is called Melita..."
 weight: 28
 ---
 
-# Chapter 28
+# Acts 28 
 
 **¹** And having been saved, then they knew that the island is called Melita,
 

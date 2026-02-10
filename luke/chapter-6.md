@@ -1,8 +1,11 @@
 ---
+title: "Luke 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Luke 6 Online | And it came to pass, on the second-first sabbath, as he is going through the corn fields, that his disciples were plucking the ears, and were eating, rubbing with the hands..."
 weight: 6
 ---
 
-# Chapter 6
+# Luke 6 
 
 **¹** And it came to pass, on the second-first sabbath, as he is going through the corn fields, that his disciples were plucking the ears, and were eating, rubbing with the hands,
 

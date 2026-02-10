@@ -1,8 +1,11 @@
 ---
+title: "Psalm 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read Psalm 10 Online | Why, Jehovah, dost Thou stand at a distance? Thou dost hide in times of adversity..."
 weight: 10
 ---
 
-# Psalm 10
+# Psalm 10 
 
 **¹** Why, Jehovah, dost Thou stand at a distance? Thou dost hide in times of adversity,
 

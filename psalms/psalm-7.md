@@ -1,8 +1,11 @@
 ---
+title: "Psalm 7 YLT | Read the Bible Online"
+linkTitle: "7"
+description: "Read Psalm 7 Online | 'The Erring One,' by David, that he sung to Jehovah concerning the words of Cush a Benjamite. O Jehovah, my God, in Thee I have trusted, Save me from all my pursuers, and deliver me..."
 weight: 7
 ---
 
-# Psalm 7
+# Psalm 7 
 
 **¹** 'The Erring One,' by David, that he sung to Jehovah concerning the words of Cush a Benjamite. O Jehovah, my God, in Thee I have trusted, Save me from all my pursuers, and deliver me.
 

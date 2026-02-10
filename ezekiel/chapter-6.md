@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Ezekiel 6 Online | And there is a word of Jehovah unto me, saying..."
 weight: 6
 ---
 
-# Chapter 6
+# Ezekiel 6 
 
 **¹** And there is a word of Jehovah unto me, saying:
 

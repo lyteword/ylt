@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read 2 Chronicles 13 Online | In the eighteenth year of king Jeroboam — Abijah reigneth over Judah..."
 weight: 13
 ---
 
-# Chapter 13
+# 2 Chronicles 13 
 
 **¹** In the eighteenth year of king Jeroboam — Abijah reigneth over Judah;
 

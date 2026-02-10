@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 15 YLT | Read the Bible Online"
+linkTitle: "15"
+description: "Read 2 Samuel 15 Online | And it cometh to pass afterwards, that Absalom prepareth for himself a chariot, and horses, and fifty men are running before him..."
 weight: 15
 ---
 
-# Chapter 15
+# 2 Samuel 15 
 
 **¹** And it cometh to pass afterwards, that Absalom prepareth for himself a chariot, and horses, and fifty men are running before him;
 

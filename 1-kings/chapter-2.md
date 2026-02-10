@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read 1 Kings 2 Online | And draw near do the days of David to die, and he chargeth Solomon his son, saying..."
 weight: 2
 ---
 
-# Chapter 2
+# 1 Kings 2 
 
 **¹** And draw near do the days of David to die, and he chargeth Solomon his son, saying,
 

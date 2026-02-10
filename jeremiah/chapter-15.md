@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 15 YLT | Read the Bible Online"
+linkTitle: "15"
+description: "Read Jeremiah 15 Online | And Jehovah saith unto me: Though Moses and Samuel should stand before Me, My soul is not toward this people, Send from before My face, and they go out..."
 weight: 15
 ---
 
-# Chapter 15
+# Jeremiah 15 
 
 **¹** And Jehovah saith unto me: Though Moses and Samuel should stand before Me, My soul is not toward this people, Send from before My face, and they go out.
 

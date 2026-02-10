@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read Deuteronomy 4 Online | 'And now, Israel, hearken unto the statutes, and unto the judgments which I am teaching you to do, so that ye live, and have gone in, and possessed the land which Jehovah God of your fathers is giving to you..."
 weight: 4
 ---
 
-# Chapter 4
+# Deuteronomy 4 
 
 **¹** 'And now, Israel, hearken unto the statutes, and unto the judgments which I am teaching you to do, so that ye live, and have gone in, and possessed the land which Jehovah God of your fathers is giving to you.
 

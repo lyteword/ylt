@@ -1,8 +1,11 @@
 ---
+title: "Psalm 72 YLT | Read the Bible Online"
+linkTitle: "72"
+description: "Read Psalm 72 Online | By Solomon. O God, Thy judgments to the king give, And Thy righteousness to the king's son..."
 weight: 72
 ---
 
-# Psalm 72
+# Psalm 72 
 
 **¹** By Solomon. O God, Thy judgments to the king give, And Thy righteousness to the king's son.
 

@@ -1,8 +1,11 @@
 ---
+title: "1 John 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read 1 John 2 Online | My little children, these things I write to you, that ye may not sin: and if any one may sin, an advocate we have with the Father, Jesus Christ, a righteous one..."
 weight: 2
 ---
 
-# Chapter 2
+# 1 John 2 
 
 **¹** My little children, these things I write to you, that ye may not sin: and if any one may sin, an advocate we have with the Father, Jesus Christ, a righteous one,
 

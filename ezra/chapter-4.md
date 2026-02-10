@@ -1,8 +1,11 @@
 ---
+title: "Ezra 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read Ezra 4 Online | And adversaries of Judah and Benjamin hear that the sons of the captivity are building a temple to Jehovah, God of Israel..."
 weight: 4
 ---
 
-# Chapter 4
+# Ezra 4 
 
 **¹** And adversaries of Judah and Benjamin hear that the sons of the captivity are building a temple to Jehovah, God of Israel,
 

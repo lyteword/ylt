@@ -1,8 +1,11 @@
 ---
+title: "Genesis 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Genesis 6 Online | And it cometh to pass that mankind have begun to multiply on the face of the ground, and daughters have been born to them..."
 weight: 6
 ---
 
-# Chapter 6
+# Genesis 6 
 
 **¹** And it cometh to pass that mankind have begun to multiply on the face of the ground, and daughters have been born to them,
 

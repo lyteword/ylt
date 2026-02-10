@@ -1,8 +1,11 @@
 ---
+title: "2 Corinthians 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read 2 Corinthians 5 Online | For we have known that if our earthly house of the tabernacle may be thrown down, a building from God we have, an house not made with hands — age-during — in the heavens..."
 weight: 5
 ---
 
-# Chapter 5
+# 2 Corinthians 5 
 
 **¹** For we have known that if our earthly house of the tabernacle may be thrown down, a building from God we have, an house not made with hands — age-during — in the heavens,
 

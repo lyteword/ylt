@@ -1,8 +1,11 @@
 ---
+title: "Matthew 28 YLT | Read the Bible Online"
+linkTitle: "28"
+description: "Read Matthew 28 Online | And on the eve of the sabbaths, at the dawn, toward the first of the sabbaths, came Mary the Magdalene, and the other Mary, to see the sepulchre..."
 weight: 28
 ---
 
-# Chapter 28
+# Matthew 28 
 
 **¹** And on the eve of the sabbaths, at the dawn, toward the first of the sabbaths, came Mary the Magdalene, and the other Mary, to see the sepulchre,
 

@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 14 YLT | Read the Bible Online"
+linkTitle: "14"
+description: "Read Leviticus 14 Online | And Jehovah speaketh unto Moses, saying..."
 weight: 14
 ---
 
-# Chapter 14
+# Leviticus 14 
 
 **¹** And Jehovah speaketh unto Moses, saying,
 

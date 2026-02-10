@@ -1,8 +1,11 @@
 ---
+title: "Genesis 50 YLT | Read the Bible Online"
+linkTitle: "50"
+description: "Read Genesis 50 Online | And Joseph falleth on his father's face, and weepeth over him, and kisseth him..."
 weight: 50
 ---
 
-# Chapter 50
+# Genesis 50 
 
 **¹** And Joseph falleth on his father's face, and weepeth over him, and kisseth him;
 

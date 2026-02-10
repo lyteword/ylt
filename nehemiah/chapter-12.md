@@ -1,8 +1,11 @@
 ---
+title: "Nehemiah 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read Nehemiah 12 Online | And these [are] the priests and the Levites who came up with Zerubbabel son of Shealtiel, and Jeshua; Seraiah, Jeremiah, Ezra..."
 weight: 12
 ---
 
-# Chapter 12
+# Nehemiah 12 
 
 **¹** And these [are] the priests and the Levites who came up with Zerubbabel son of Shealtiel, and Jeshua; Seraiah, Jeremiah, Ezra,
 

@@ -1,8 +1,11 @@
 ---
+title: "Song Of Solomon 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Song Of Solomon 2 Online | As a lily among the thorns..."
 weight: 2
 ---
 
-# Chapter 2
+# Song Of Solomon 2 
 
 **¹** As a lily among the thorns,
 

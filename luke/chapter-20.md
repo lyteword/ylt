@@ -1,8 +1,11 @@
 ---
+title: "Luke 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read Luke 20 Online | And it came to pass, on one of those days, as he is teaching the people in the temple, and proclaiming good news, the chief priests and the scribes, with the elders, came upon [him]..."
 weight: 20
 ---
 
-# Chapter 20
+# Luke 20 
 
 **¹** And it came to pass, on one of those days, as he is teaching the people in the temple, and proclaiming good news, the chief priests and the scribes, with the elders, came upon [him],
 

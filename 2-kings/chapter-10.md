@@ -1,8 +1,11 @@
 ---
+title: "2 Kings 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read 2 Kings 10 Online | And Ahab hath seventy sons in Samaria, and Jehu writeth letters, and sendeth to Samaria, unto the heads of Jezreel, the elders, and unto the supporters of Ahab, saying..."
 weight: 10
 ---
 
-# Chapter 10
+# 2 Kings 10 
 
 **¹** And Ahab hath seventy sons in Samaria, and Jehu writeth letters, and sendeth to Samaria, unto the heads of Jezreel, the elders, and unto the supporters of Ahab, saying,
 

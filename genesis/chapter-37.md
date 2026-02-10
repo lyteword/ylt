@@ -1,8 +1,11 @@
 ---
+title: "Genesis 37 YLT | Read the Bible Online"
+linkTitle: "37"
+description: "Read Genesis 37 Online | And Jacob dwelleth in the land of his father's sojournings — in the land of Canaan..."
 weight: 37
 ---
 
-# Chapter 37
+# Genesis 37 
 
 **¹** And Jacob dwelleth in the land of his father's sojournings — in the land of Canaan.
 

@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 26 YLT | Read the Bible Online"
+linkTitle: "26"
+description: "Read Deuteronomy 26 Online | 'And it hath been, when thou comest in unto the land which Jehovah thy God is giving to thee — an inheritance, and thou hast possessed it, and dwelt in it..."
 weight: 26
 ---
 
-# Chapter 26
+# Deuteronomy 26 
 
 **¹** 'And it hath been, when thou comest in unto the land which Jehovah thy God is giving to thee — an inheritance, and thou hast possessed it, and dwelt in it,
 

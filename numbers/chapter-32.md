@@ -1,8 +1,11 @@
 ---
+title: "Numbers 32 YLT | Read the Bible Online"
+linkTitle: "32"
+description: "Read Numbers 32 Online | And much cattle hath been to the sons of Reuben and to the sons of Gad, very many; and they see the land of Jazer, and the land of Gilead, and lo, the place [is] a place [for] cattle..."
 weight: 32
 ---
 
-# Chapter 32
+# Numbers 32 
 
 **¹** And much cattle hath been to the sons of Reuben and to the sons of Gad, very many; and they see the land of Jazer, and the land of Gilead, and lo, the place [is] a place [for] cattle;
 

@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read 1 Chronicles 12 Online | And these [are] those coming in unto David to Ziklag, while shut up because of Saul son of Kish, and they [are] among the mighty ones, helping the battle..."
 weight: 12
 ---
 
-# Chapter 12
+# 1 Chronicles 12 
 
 **¹** And these [are] those coming in unto David to Ziklag, while shut up because of Saul son of Kish, and they [are] among the mighty ones, helping the battle,
 

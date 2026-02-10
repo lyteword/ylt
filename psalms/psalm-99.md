@@ -1,8 +1,11 @@
 ---
+title: "Psalm 99 YLT | Read the Bible Online"
+linkTitle: "99"
+description: "Read Psalm 99 Online | Jehovah hath reigned, peoples tremble, The Inhabitant of the cherubs, the earth shaketh..."
 weight: 99
 ---
 
-# Psalm 99
+# Psalm 99 
 
 **¹** Jehovah hath reigned, peoples tremble, The Inhabitant of the cherubs, the earth shaketh.
 

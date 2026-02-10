@@ -1,8 +1,11 @@
 ---
+title: "Esther 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read Esther 5 Online | And it cometh to pass on the third day, that Esther putteth on royalty, and standeth in the inner-court of the house of the king over-against the house of the king, and the king is sitting on his royal throne, in the royal-house, over-against the opening of the house..."
 weight: 5
 ---
 
-# Chapter 5
+# Esther 5 
 
 **¹** And it cometh to pass on the third day, that Esther putteth on royalty, and standeth in the inner-court of the house of the king over-against the house of the king, and the king is sitting on his royal throne, in the royal-house, over-against the opening of the house,
 

@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 14 YLT | Read the Bible Online"
+linkTitle: "14"
+description: "Read Deuteronomy 14 Online | 'Sons ye [are] to Jehovah your God; ye do not cut yourselves, nor make baldness between your eyes for the dead..."
 weight: 14
 ---
 
-# Chapter 14
+# Deuteronomy 14 
 
 **¹** 'Sons ye [are] to Jehovah your God; ye do not cut yourselves, nor make baldness between your eyes for the dead;
 

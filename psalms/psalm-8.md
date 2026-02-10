@@ -1,8 +1,11 @@
 ---
+title: "Psalm 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read Psalm 8 Online | To the Overseer, 'On the Gittith.' A Psalm of David. Jehovah, our Lord, How honourable Thy name in all the earth! Who settest thine honour on the heavens..."
 weight: 8
 ---
 
-# Psalm 8
+# Psalm 8 
 
 **¹** To the Overseer, 'On the Gittith.' A Psalm of David. Jehovah, our Lord, How honourable Thy name in all the earth! Who settest thine honour on the heavens.
 

@@ -1,8 +1,11 @@
 ---
+title: "1 Peter 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read 1 Peter 4 Online | Christ, then, having suffered for us in the flesh, ye also with the same mind arm yourselves, because he who did suffer in the flesh hath done with sin..."
 weight: 4
 ---
 
-# Chapter 4
+# 1 Peter 4 
 
 **¹** Christ, then, having suffered for us in the flesh, ye also with the same mind arm yourselves, because he who did suffer in the flesh hath done with sin,
 

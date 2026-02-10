@@ -1,8 +1,11 @@
 ---
+title: "Revelation 17 YLT | Read the Bible Online"
+linkTitle: "17"
+description: "Read Revelation 17 Online | And there came one of the seven messengers, who were having the seven vials, and he spake with me, saying to me, 'Come, I will shew to thee the judgment of the great whore, who is sitting upon the many waters..."
 weight: 17
 ---
 
-# Chapter 17
+# Revelation 17 
 
 **¹** And there came one of the seven messengers, who were having the seven vials, and he spake with me, saying to me, 'Come, I will shew to thee the judgment of the great whore, who is sitting upon the many waters,
 

@@ -1,8 +1,11 @@
 ---
+title: "Romans 14 YLT | Read the Bible Online"
+linkTitle: "14"
+description: "Read Romans 14 Online | And him who is weak in the faith receive ye — not to determinations of reasonings..."
 weight: 14
 ---
 
-# Chapter 14
+# Romans 14 
 
 **¹** And him who is weak in the faith receive ye — not to determinations of reasonings;
 

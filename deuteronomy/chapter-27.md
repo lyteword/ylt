@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 27 YLT | Read the Bible Online"
+linkTitle: "27"
+description: "Read Deuteronomy 27 Online | 'And Moses — the elders of Israel also — commandeth the people, saying, Keep all the command which I am commanding you to-day..."
 weight: 27
 ---
 
-# Chapter 27
+# Deuteronomy 27 
 
 **¹** 'And Moses — the elders of Israel also — commandeth the people, saying, Keep all the command which I am commanding you to-day;
 

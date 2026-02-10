@@ -1,8 +1,11 @@
 ---
+title: "Song Of Solomon 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Song Of Solomon 3 Online | On my couch by night, I sought him whom my soul hath loved; I sought him, and I found him not..."
 weight: 3
 ---
 
-# Chapter 3
+# Song Of Solomon 3 
 
 **¹** On my couch by night, I sought him whom my soul hath loved; I sought him, and I found him not!
 

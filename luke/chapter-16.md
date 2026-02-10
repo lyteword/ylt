@@ -1,8 +1,11 @@
 ---
+title: "Luke 16 YLT | Read the Bible Online"
+linkTitle: "16"
+description: "Read Luke 16 Online | And he said also unto his disciples, 'A certain man was rich, who had a steward, and he was accused to him as scattering his goods..."
 weight: 16
 ---
 
-# Chapter 16
+# Luke 16 
 
 **¹** And he said also unto his disciples, 'A certain man was rich, who had a steward, and he was accused to him as scattering his goods;
 

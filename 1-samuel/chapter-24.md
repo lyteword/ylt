@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 24 YLT | Read the Bible Online"
+linkTitle: "24"
+description: "Read 1 Samuel 24 Online | And it cometh to pass when Saul hath turned back from after the Philistines, that they declare to him, saying, 'Lo, David [is] in the wilderness of En-gedi...."
 weight: 24
 ---
 
-# Chapter 24
+# 1 Samuel 24 
 
 **¹** And it cometh to pass when Saul hath turned back from after the Philistines, that they declare to him, saying, 'Lo, David [is] in the wilderness of En-gedi.'
 

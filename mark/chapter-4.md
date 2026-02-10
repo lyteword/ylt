@@ -1,8 +1,11 @@
 ---
+title: "Mark 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read Mark 4 Online | And again he began to teach by the sea, and there was gathered unto him a great multitude, so that he, having gone into the boat, sat in the sea, and all the multitude was near the sea, on the land..."
 weight: 4
 ---
 
-# Chapter 4
+# Mark 4 
 
 **¹** And again he began to teach by the sea, and there was gathered unto him a great multitude, so that he, having gone into the boat, sat in the sea, and all the multitude was near the sea, on the land,
 

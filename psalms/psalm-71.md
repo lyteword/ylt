@@ -1,8 +1,11 @@
 ---
+title: "Psalm 71 YLT | Read the Bible Online"
+linkTitle: "71"
+description: "Read Psalm 71 Online | In Thee, O Jehovah, I have trusted, Let me not be ashamed to the age..."
 weight: 71
 ---
 
-# Psalm 71
+# Psalm 71 
 
 **¹** In Thee, O Jehovah, I have trusted, Let me not be ashamed to the age.
 

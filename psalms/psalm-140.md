@@ -1,8 +1,11 @@
 ---
+title: "Psalm 140 YLT | Read the Bible Online"
+linkTitle: "140"
+description: "Read Psalm 140 Online | To the Overseer. — A Psalm of David. Deliver me, O Jehovah, from an evil man, From one of violence Thou keepest me..."
 weight: 140
 ---
 
-# Psalm 140
+# Psalm 140 
 
 **¹** To the Overseer. — A Psalm of David. Deliver me, O Jehovah, from an evil man, From one of violence Thou keepest me.
 

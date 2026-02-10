@@ -1,8 +1,11 @@
 ---
+title: "Revelation 7 YLT | Read the Bible Online"
+linkTitle: "7"
+description: "Read Revelation 7 Online | And after these things I saw four messengers, standing upon the four corners of the land, holding the four winds of the land, that the wind may not blow upon the land, nor upon the sea, nor upon any tree..."
 weight: 7
 ---
 
-# Chapter 7
+# Revelation 7 
 
 **¹** And after these things I saw four messengers, standing upon the four corners of the land, holding the four winds of the land, that the wind may not blow upon the land, nor upon the sea, nor upon any tree;
 

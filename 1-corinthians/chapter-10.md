@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read 1 Corinthians 10 Online | And I do not wish you to be ignorant, brethren, that all our fathers were under the cloud, and all passed through the sea..."
 weight: 10
 ---
 
-# Chapter 10
+# 1 Corinthians 10 
 
 **¹** And I do not wish you to be ignorant, brethren, that all our fathers were under the cloud, and all passed through the sea,
 

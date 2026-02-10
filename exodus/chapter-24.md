@@ -1,8 +1,11 @@
 ---
+title: "Exodus 24 YLT | Read the Bible Online"
+linkTitle: "24"
+description: "Read Exodus 24 Online | And unto Moses He said, 'Come up unto Jehovah, thou, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel, and ye have bowed yourselves afar off;..."
 weight: 24
 ---
 
-# Chapter 24
+# Exodus 24 
 
 **¹** And unto Moses He said, 'Come up unto Jehovah, thou, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel, and ye have bowed yourselves afar off;'
 

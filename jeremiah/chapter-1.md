@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Jeremiah 1 Online | Words of Jeremiah son of Hilkiah, of the priests who [are] in Anathoth, in the land of Benjamin..."
 weight: 1
 ---
 
-# Chapter 1
+# Jeremiah 1 
 
 **¹** Words of Jeremiah son of Hilkiah, of the priests who [are] in Anathoth, in the land of Benjamin,
 

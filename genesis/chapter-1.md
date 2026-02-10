@@ -1,8 +1,11 @@
 ---
+title: "Genesis 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Genesis 1 Online | In the beginning of God's preparing the heavens and the earth ..."
 weight: 1
 ---
 
-# Chapter 1
+# Genesis 1 
 
 **¹** In the beginning of God's preparing the heavens and the earth —
 

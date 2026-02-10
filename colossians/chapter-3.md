@@ -1,8 +1,11 @@
 ---
+title: "Colossians 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Colossians 3 Online | If, then, ye were raised with the Christ, the things above seek ye, where the Christ is, on the right hand of God seated..."
 weight: 3
 ---
 
-# Chapter 3
+# Colossians 3 
 
 **¹** If, then, ye were raised with the Christ, the things above seek ye, where the Christ is, on the right hand of God seated,
 

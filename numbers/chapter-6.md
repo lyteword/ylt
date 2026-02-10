@@ -1,8 +1,11 @@
 ---
+title: "Numbers 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Numbers 6 Online | And Jehovah speaketh unto Moses, saying..."
 weight: 6
 ---
 
-# Chapter 6
+# Numbers 6 
 
 **¹** And Jehovah speaketh unto Moses, saying,
 

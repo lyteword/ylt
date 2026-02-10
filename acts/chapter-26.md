@@ -1,8 +1,11 @@
 ---
+title: "Acts 26 YLT | Read the Bible Online"
+linkTitle: "26"
+description: "Read Acts 26 Online | And Agrippa said unto Paul, 'It is permitted to thee to speak for thyself;' then Paul having stretched forth the hand, was making a defence..."
 weight: 26
 ---
 
-# Chapter 26
+# Acts 26 
 
 **¹** And Agrippa said unto Paul, 'It is permitted to thee to speak for thyself;' then Paul having stretched forth the hand, was making a defence:
 

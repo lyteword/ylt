@@ -1,8 +1,11 @@
 ---
+title: "Exodus 31 YLT | Read the Bible Online"
+linkTitle: "31"
+description: "Read Exodus 31 Online | And Jehovah speaketh unto Moses, saying..."
 weight: 31
 ---
 
-# Chapter 31
+# Exodus 31 
 
 **¹** And Jehovah speaketh unto Moses, saying,
 

@@ -1,8 +1,11 @@
 ---
+title: "Job 21 YLT | Read the Bible Online"
+linkTitle: "21"
+description: "Read Job 21 Online | And Job answereth and saith: ..."
 weight: 21
 ---
 
-# Chapter 21
+# Job 21 
 
 **¹** And Job answereth and saith: —
 

@@ -1,8 +1,11 @@
 ---
+title: "Exodus 21 YLT | Read the Bible Online"
+linkTitle: "21"
+description: "Read Exodus 21 Online | 'And these [are] the judgments which thou dost set before them..."
 weight: 21
 ---
 
-# Chapter 21
+# Exodus 21 
 
 **¹** 'And these [are] the judgments which thou dost set before them:
 

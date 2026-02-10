@@ -1,8 +1,11 @@
 ---
+title: "Psalm 56 YLT | Read the Bible Online"
+linkTitle: "56"
+description: "Read Psalm 56 Online | To the Overseer. — 'On the Dumb Dove far off.' — A secret treasure of David, in the Philistines' taking hold of him in Gath. Favour me, O God, for man swallowed me up, All the day fighting he oppresseth me..."
 weight: 56
 ---
 
-# Psalm 56
+# Psalm 56 
 
 **¹** To the Overseer. — 'On the Dumb Dove far off.' — A secret treasure of David, in the Philistines' taking hold of him in Gath. Favour me, O God, for man swallowed me up, All the day fighting he oppresseth me,
 

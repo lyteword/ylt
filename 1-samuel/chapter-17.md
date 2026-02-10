@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 17 YLT | Read the Bible Online"
+linkTitle: "17"
+description: "Read 1 Samuel 17 Online | And the Philistines gather their camps to battle, and are gathered to Shochoh, which [is] to Judah, and encamp between Shochoh and Azekah, in Ephes-Dammim..."
 weight: 17
 ---
 
-# Chapter 17
+# 1 Samuel 17 
 
 **¹** And the Philistines gather their camps to battle, and are gathered to Shochoh, which [is] to Judah, and encamp between Shochoh and Azekah, in Ephes-Dammim;
 

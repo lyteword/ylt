@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 25 YLT | Read the Bible Online"
+linkTitle: "25"
+description: "Read Jeremiah 25 Online | The word that hath been unto Jeremiah concerning all the people of Judah, in the fourth year of Jehoiakim son of Josiah king of Judah, — it [is] the first year of Nebuchadrezzar king of Babylon, ..."
 weight: 25
 ---
 
-# Chapter 25
+# Jeremiah 25 
 
 **¹** The word that hath been unto Jeremiah concerning all the people of Judah, in the fourth year of Jehoiakim son of Josiah king of Judah, — it [is] the first year of Nebuchadrezzar king of Babylon, —
 

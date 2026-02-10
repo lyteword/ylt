@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 18 YLT | Read the Bible Online"
+linkTitle: "18"
+description: "Read 1 Chronicles 18 Online | And it cometh to pass after this, that David smiteth the Philistines, and humbleth them, and taketh Gath and its small towns out of the hand of the Philistines..."
 weight: 18
 ---
 
-# Chapter 18
+# 1 Chronicles 18 
 
 **¹** And it cometh to pass after this, that David smiteth the Philistines, and humbleth them, and taketh Gath and its small towns out of the hand of the Philistines;
 

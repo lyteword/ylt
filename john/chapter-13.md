@@ -1,8 +1,11 @@
 ---
+title: "John 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read John 13 Online | And before the feast of the passover, Jesus knowing that his hour hath come, that he may remove out of this world unto the Father, having loved his own who [are] in the world — to the end he loved them..."
 weight: 13
 ---
 
-# Chapter 13
+# John 13 
 
 **¹** And before the feast of the passover, Jesus knowing that his hour hath come, that he may remove out of this world unto the Father, having loved his own who [are] in the world — to the end he loved them.
 

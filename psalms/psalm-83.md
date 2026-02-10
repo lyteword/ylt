@@ -1,8 +1,11 @@
 ---
+title: "Psalm 83 YLT | Read the Bible Online"
+linkTitle: "83"
+description: "Read Psalm 83 Online | A Song, — A Psalm of Asaph. O God, let there be no silence to Thee, Be not silent, nor be quiet, O God..."
 weight: 83
 ---
 
-# Psalm 83
+# Psalm 83 
 
 **¹** A Song, — A Psalm of Asaph. O God, let there be no silence to Thee, Be not silent, nor be quiet, O God.
 

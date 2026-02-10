@@ -1,8 +1,11 @@
 ---
+title: "Joshua 19 YLT | Read the Bible Online"
+linkTitle: "19"
+description: "Read Joshua 19 Online | And the second lot goeth out for Simeon, for the tribe of the sons of Simeon, for their families; and their inheritance is in the midst of the inheritance of the sons of Judah..."
 weight: 19
 ---
 
-# Chapter 19
+# Joshua 19 
 
 **¹** And the second lot goeth out for Simeon, for the tribe of the sons of Simeon, for their families; and their inheritance is in the midst of the inheritance of the sons of Judah,
 

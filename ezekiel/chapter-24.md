@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 24 YLT | Read the Bible Online"
+linkTitle: "24"
+description: "Read Ezekiel 24 Online | And there is a word of Jehovah unto me, in the ninth year, in the tenth month, in the tenth of the month, saying..."
 weight: 24
 ---
 
-# Chapter 24
+# Ezekiel 24 
 
 **¹** And there is a word of Jehovah unto me, in the ninth year, in the tenth month, in the tenth of the month, saying,
 

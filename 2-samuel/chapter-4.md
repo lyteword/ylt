@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read 2 Samuel 4 Online | And the son of Saul heareth that Abner [is] dead in Hebron, and his hands are feeble, and all Israel have been troubled..."
 weight: 4
 ---
 
-# Chapter 4
+# 2 Samuel 4 
 
 **¹** And the son of Saul heareth that Abner [is] dead in Hebron, and his hands are feeble, and all Israel have been troubled.
 

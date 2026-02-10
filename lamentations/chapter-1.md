@@ -1,8 +1,11 @@
 ---
+title: "Lamentations 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Lamentations 1 Online | How hath she sat alone, The city abounding with people! She hath been as a widow, The mighty among nations! Princes among provinces, She hath become tributary..."
 weight: 1
 ---
 
-# Chapter 1
+# Lamentations 1 
 
 **¹** How hath she sat alone, The city abounding with people! She hath been as a widow, The mighty among nations! Princes among provinces, She hath become tributary!
 

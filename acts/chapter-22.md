@@ -1,8 +1,11 @@
 ---
+title: "Acts 22 YLT | Read the Bible Online"
+linkTitle: "22"
+description: "Read Acts 22 Online | 'Men, brethren, and fathers, hear my defence now unto you;' ..."
 weight: 22
 ---
 
-# Chapter 22
+# Acts 22 
 
 **¹** 'Men, brethren, and fathers, hear my defence now unto you;' —
 

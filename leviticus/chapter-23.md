@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 23 YLT | Read the Bible Online"
+linkTitle: "23"
+description: "Read Leviticus 23 Online | And Jehovah speaketh unto Moses, saying..."
 weight: 23
 ---
 
-# Chapter 23
+# Leviticus 23 
 
 **¹** And Jehovah speaketh unto Moses, saying,
 

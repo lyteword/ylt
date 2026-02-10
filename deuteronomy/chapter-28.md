@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 28 YLT | Read the Bible Online"
+linkTitle: "28"
+description: "Read Deuteronomy 28 Online | 'And it hath been, if thou dost hearken diligently to the voice of Jehovah thy God, to observe to do all His commands which I am commanding thee to-day, that Jehovah thy God hath made thee uppermost above all the nations of the earth..."
 weight: 28
 ---
 
-# Chapter 28
+# Deuteronomy 28 
 
 **¹** 'And it hath been, if thou dost hearken diligently to the voice of Jehovah thy God, to observe to do all His commands which I am commanding thee to-day, that Jehovah thy God hath made thee uppermost above all the nations of the earth,
 

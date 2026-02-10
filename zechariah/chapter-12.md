@@ -1,8 +1,11 @@
 ---
+title: "Zechariah 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read Zechariah 12 Online | The burden of a word of Jehovah on Israel. An affirmation of Jehovah, Stretching out heaven, and founding earth, And forming the spirit of man in his midst..."
 weight: 12
 ---
 
-# Chapter 12
+# Zechariah 12 
 
 **¹** The burden of a word of Jehovah on Israel. An affirmation of Jehovah, Stretching out heaven, and founding earth, And forming the spirit of man in his midst.
 

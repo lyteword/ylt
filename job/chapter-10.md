@@ -1,8 +1,11 @@
 ---
+title: "Job 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read Job 10 Online | My soul hath been weary of my life, I leave off my talking to myself, I speak in the bitterness of my soul..."
 weight: 10
 ---
 
-# Chapter 10
+# Job 10 
 
 **¹** My soul hath been weary of my life, I leave off my talking to myself, I speak in the bitterness of my soul.
 

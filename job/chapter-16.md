@@ -1,8 +1,11 @@
 ---
+title: "Job 16 YLT | Read the Bible Online"
+linkTitle: "16"
+description: "Read Job 16 Online | And Job answereth and saith: ..."
 weight: 16
 ---
 
-# Chapter 16
+# Job 16 
 
 **¹** And Job answereth and saith: —
 

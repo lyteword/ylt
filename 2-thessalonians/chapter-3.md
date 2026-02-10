@@ -1,8 +1,11 @@
 ---
+title: "2 Thessalonians 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read 2 Thessalonians 3 Online | As to the rest, pray ye, brethren, concerning us, that the word of the Lord may run and may be glorified, as also with you..."
 weight: 3
 ---
 
-# Chapter 3
+# 2 Thessalonians 3 
 
 **¹** As to the rest, pray ye, brethren, concerning us, that the word of the Lord may run and may be glorified, as also with you,
 

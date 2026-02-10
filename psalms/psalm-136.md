@@ -1,8 +1,11 @@
 ---
+title: "Psalm 136 YLT | Read the Bible Online"
+linkTitle: "136"
+description: "Read Psalm 136 Online | Give ye thanks to Jehovah, For good, for to the age [is] His kindness..."
 weight: 136
 ---
 
-# Psalm 136
+# Psalm 136 
 
 **¹** Give ye thanks to Jehovah, For good, for to the age [is] His kindness.
 

@@ -1,8 +1,11 @@
 ---
+title: "Genesis 33 YLT | Read the Bible Online"
+linkTitle: "33"
+description: "Read Genesis 33 Online | And Jacob lifteth up his eyes, and looketh, and lo, Esau is coming, and with him four hundred men; and he divideth the children unto Leah, and unto Rachel, and unto the two maid-servants..."
 weight: 33
 ---
 
-# Chapter 33
+# Genesis 33 
 
 **¹** And Jacob lifteth up his eyes, and looketh, and lo, Esau is coming, and with him four hundred men; and he divideth the children unto Leah, and unto Rachel, and unto the two maid-servants;
 

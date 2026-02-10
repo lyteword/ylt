@@ -1,8 +1,11 @@
 ---
+title: "Job 11 YLT | Read the Bible Online"
+linkTitle: "11"
+description: "Read Job 11 Online | And Zophar the Naamathite answereth and saith: ..."
 weight: 11
 ---
 
-# Chapter 11
+# Job 11 
 
 **¹** And Zophar the Naamathite answereth and saith: —
 

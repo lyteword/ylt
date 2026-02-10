@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 45 YLT | Read the Bible Online"
+linkTitle: "45"
+description: "Read Isaiah 45 Online | Thus said Jehovah, To His anointed, to Cyrus, Whose right hand I have laid hold on, To subdue nations before him, Yea, loins of kings I loose, To open before him two-leaved doors, Yea, gates are not shut..."
 weight: 45
 ---
 
-# Chapter 45
+# Isaiah 45 
 
 **¹** Thus said Jehovah, To His anointed, to Cyrus, Whose right hand I have laid hold on, To subdue nations before him, Yea, loins of kings I loose, To open before him two-leaved doors, Yea, gates are not shut:
 

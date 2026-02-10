@@ -1,8 +1,11 @@
 ---
+title: "Esther 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read Esther 9 Online | And in the twelfth month — it [is] the month of Adar — on the thirteenth day of it, in which the word of the king, even his law, hath come to be done, in the day that the enemies of the Jews had hoped to rule over them, and it is turned that the Jews rule over those hating them ..."
 weight: 9
 ---
 
-# Chapter 9
+# Esther 9 
 
 **¹** And in the twelfth month — it [is] the month of Adar — on the thirteenth day of it, in which the word of the king, even his law, hath come to be done, in the day that the enemies of the Jews had hoped to rule over them, and it is turned that the Jews rule over those hating them —
 

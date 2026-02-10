@@ -1,8 +1,11 @@
 ---
+title: "Romans 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Romans 6 Online | What, then, shall we say? shall we continue in the sin that the grace may abound..."
 weight: 6
 ---
 
-# Chapter 6
+# Romans 6 
 
 **¹** What, then, shall we say? shall we continue in the sin that the grace may abound?
 

@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 15 YLT | Read the Bible Online"
+linkTitle: "15"
+description: "Read Leviticus 15 Online | And Jehovah speaketh unto Moses, and unto Aaron, saying..."
 weight: 15
 ---
 
-# Chapter 15
+# Leviticus 15 
 
 **¹** And Jehovah speaketh unto Moses, and unto Aaron, saying,
 

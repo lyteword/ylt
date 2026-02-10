@@ -1,8 +1,11 @@
 ---
+title: "Judges 16 YLT | Read the Bible Online"
+linkTitle: "16"
+description: "Read Judges 16 Online | And Samson goeth to Gaza, and seeth there a woman, a harlot, and goeth in unto her..."
 weight: 16
 ---
 
-# Chapter 16
+# Judges 16 
 
 **¹** And Samson goeth to Gaza, and seeth there a woman, a harlot, and goeth in unto her;
 

@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 33 YLT | Read the Bible Online"
+linkTitle: "33"
+description: "Read 2 Chronicles 33 Online | A son of twelve years is Manasseh in his reigning, and fifty and five years he hath reigned in Jerusalem..."
 weight: 33
 ---
 
-# Chapter 33
+# 2 Chronicles 33 
 
 **¹** A son of twelve years is Manasseh in his reigning, and fifty and five years he hath reigned in Jerusalem;
 

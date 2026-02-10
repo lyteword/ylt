@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Deuteronomy 1 Online | These [are] the words which Moses hath spoken unto all Israel, beyond the Jordan, in the wilderness, in the plain over-against Suph, between Paran and Tophel, and Laban, and Hazeroth, and Di-Zahab..."
 weight: 1
 ---
 
-# Chapter 1
+# Deuteronomy 1 
 
 **¹** These [are] the words which Moses hath spoken unto all Israel, beyond the Jordan, in the wilderness, in the plain over-against Suph, between Paran and Tophel, and Laban, and Hazeroth, and Di-Zahab;
 

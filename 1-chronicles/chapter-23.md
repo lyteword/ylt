@@ -1,8 +1,11 @@
 ---
+title: "1 Chronicles 23 YLT | Read the Bible Online"
+linkTitle: "23"
+description: "Read 1 Chronicles 23 Online | And David is old, and satisfied with days, and causeth his son Solomon to reign over Israel..."
 weight: 23
 ---
 
-# Chapter 23
+# 1 Chronicles 23 
 
 **¹** And David is old, and satisfied with days, and causeth his son Solomon to reign over Israel,
 

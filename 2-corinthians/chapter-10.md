@@ -1,8 +1,11 @@
 ---
+title: "2 Corinthians 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read 2 Corinthians 10 Online | And I, Paul, myself, do call upon you — through the meekness and gentleness of the Christ — who in presence, indeed [am] humble among you, and being absent, have courage toward you..."
 weight: 10
 ---
 
-# Chapter 10
+# 2 Corinthians 10 
 
 **¹** And I, Paul, myself, do call upon you — through the meekness and gentleness of the Christ — who in presence, indeed [am] humble among you, and being absent, have courage toward you,
 

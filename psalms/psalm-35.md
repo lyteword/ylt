@@ -1,8 +1,11 @@
 ---
+title: "Psalm 35 YLT | Read the Bible Online"
+linkTitle: "35"
+description: "Read Psalm 35 Online | By David. Strive, Jehovah, with my strivers, fight with my fighters..."
 weight: 35
 ---
 
-# Psalm 35
+# Psalm 35 
 
 **¹** By David. Strive, Jehovah, with my strivers, fight with my fighters,
 

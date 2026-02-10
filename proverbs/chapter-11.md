@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 11 YLT | Read the Bible Online"
+linkTitle: "11"
+description: "Read Proverbs 11 Online | Balances of deceit [are] an abomination to Jehovah, And a perfect weight [is] His delight..."
 weight: 11
 ---
 
-# Chapter 11
+# Proverbs 11 
 
 **¹** Balances of deceit [are] an abomination to Jehovah, And a perfect weight [is] His delight.
 

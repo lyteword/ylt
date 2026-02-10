@@ -1,8 +1,11 @@
 ---
+title: "Genesis 24 YLT | Read the Bible Online"
+linkTitle: "24"
+description: "Read Genesis 24 Online | And Abraham [is] old, he hath entered into days, and Jehovah hath blessed Abraham in all [things]..."
 weight: 24
 ---
 
-# Chapter 24
+# Genesis 24 
 
 **¹** And Abraham [is] old, he hath entered into days, and Jehovah hath blessed Abraham in all [things];
 

@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 21 YLT | Read the Bible Online"
+linkTitle: "21"
+description: "Read 2 Chronicles 21 Online | And Jehoshaphat lieth with his fathers, and is buried with his fathers in the city of David, and Jehoram his son reigneth in his stead..."
 weight: 21
 ---
 
-# Chapter 21
+# 2 Chronicles 21 
 
 **¹** And Jehoshaphat lieth with his fathers, and is buried with his fathers in the city of David, and Jehoram his son reigneth in his stead.
 

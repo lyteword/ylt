@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read Proverbs 4 Online | Hear, ye sons, the instruction of a father, And give attention to know understanding..."
 weight: 4
 ---
 
-# Chapter 4
+# Proverbs 4 
 
 **¹** Hear, ye sons, the instruction of a father, And give attention to know understanding.
 

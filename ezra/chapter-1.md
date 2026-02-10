@@ -1,8 +1,11 @@
 ---
+title: "Ezra 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Ezra 1 Online | And in the first year of Cyrus king of Persia, at the completion of the word of Jehovah from the mouth of Jeremiah, hath Jehovah waked up the spirit of Cyrus king of Persia, and he causeth an intimation to pass over into all his kingdom, and also in writing, saying..."
 weight: 1
 ---
 
-# Chapter 1
+# Ezra 1 
 
 **¹** And in the first year of Cyrus king of Persia, at the completion of the word of Jehovah from the mouth of Jeremiah, hath Jehovah waked up the spirit of Cyrus king of Persia, and he causeth an intimation to pass over into all his kingdom, and also in writing, saying,
 

@@ -1,8 +1,11 @@
 ---
+title: "Malachi 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Malachi 1 Online | The burden of a word of Jehovah unto Israel by the hand of Malachi..."
 weight: 1
 ---
 
-# Chapter 1
+# Malachi 1 
 
 **¹** The burden of a word of Jehovah unto Israel by the hand of Malachi:
 

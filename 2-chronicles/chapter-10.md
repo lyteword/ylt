@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read 2 Chronicles 10 Online | And Rehoboam goeth to Shechem, for [to] Shechem have all Israel come to cause him to reign..."
 weight: 10
 ---
 
-# Chapter 10
+# 2 Chronicles 10 
 
 **¹** And Rehoboam goeth to Shechem, for [to] Shechem have all Israel come to cause him to reign.
 

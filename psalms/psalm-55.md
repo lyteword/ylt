@@ -1,8 +1,11 @@
 ---
+title: "Psalm 55 YLT | Read the Bible Online"
+linkTitle: "55"
+description: "Read Psalm 55 Online | To the Overseer with stringed instruments. — An instruction, by David. Give ear, O God, [to] my prayer, And hide not from my supplication..."
 weight: 55
 ---
 
-# Psalm 55
+# Psalm 55 
 
 **¹** To the Overseer with stringed instruments. — An instruction, by David. Give ear, O God, [to] my prayer, And hide not from my supplication.
 

@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 24 YLT | Read the Bible Online"
+linkTitle: "24"
+description: "Read Isaiah 24 Online | Lo, Jehovah is emptying the land, And is making it waste, And hath overturned [it on] its face, And hath scattered its inhabitants..."
 weight: 24
 ---
 
-# Chapter 24
+# Isaiah 24 
 
 **¹** Lo, Jehovah is emptying the land, And is making it waste, And hath overturned [it on] its face, And hath scattered its inhabitants.
 

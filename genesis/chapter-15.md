@@ -1,8 +1,11 @@
 ---
+title: "Genesis 15 YLT | Read the Bible Online"
+linkTitle: "15"
+description: "Read Genesis 15 Online | After these things hath the word of Jehovah been unto Abram in a vision, saying, 'Fear not, Abram, I [am] a shield to thee, thy reward [is] exceeding great...."
 weight: 15
 ---
 
-# Chapter 15
+# Genesis 15 
 
 **¹** After these things hath the word of Jehovah been unto Abram in a vision, saying, 'Fear not, Abram, I [am] a shield to thee, thy reward [is] exceeding great.'
 

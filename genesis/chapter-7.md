@@ -1,8 +1,11 @@
 ---
+title: "Genesis 7 YLT | Read the Bible Online"
+linkTitle: "7"
+description: "Read Genesis 7 Online | And Jehovah saith to Noah, 'Come in, thou and all thy house, unto the ark, for thee I have seen righteous before Me in this generation..."
 weight: 7
 ---
 
-# Chapter 7
+# Genesis 7 
 
 **¹** And Jehovah saith to Noah, 'Come in, thou and all thy house, unto the ark, for thee I have seen righteous before Me in this generation;
 

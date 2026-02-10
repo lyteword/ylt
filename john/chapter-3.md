@@ -1,8 +1,11 @@
 ---
+title: "John 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read John 3 Online | And there was a man of the Pharisees, Nicodemus his name, a ruler of the Jews..."
 weight: 3
 ---
 
-# Chapter 3
+# John 3 
 
 **¹** And there was a man of the Pharisees, Nicodemus his name, a ruler of the Jews,
 

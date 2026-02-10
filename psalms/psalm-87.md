@@ -1,8 +1,11 @@
 ---
+title: "Psalm 87 YLT | Read the Bible Online"
+linkTitle: "87"
+description: "Read Psalm 87 Online | By sons of Korah. — A Psalm, a song. His foundation [is] in holy mountains..."
 weight: 87
 ---
 
-# Psalm 87
+# Psalm 87 
 
 **¹** By sons of Korah. — A Psalm, a song. His foundation [is] in holy mountains.
 

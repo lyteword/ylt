@@ -1,8 +1,11 @@
 ---
+title: "Psalm 146 YLT | Read the Bible Online"
+linkTitle: "146"
+description: "Read Psalm 146 Online | Praise ye Jah! Praise, O my soul, Jehovah..."
 weight: 146
 ---
 
-# Psalm 146
+# Psalm 146 
 
 **¹** Praise ye Jah! Praise, O my soul, Jehovah.
 

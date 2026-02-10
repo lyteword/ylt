@@ -1,8 +1,11 @@
 ---
+title: "Psalm 44 YLT | Read the Bible Online"
+linkTitle: "44"
+description: "Read Psalm 44 Online | To the Overseer. — By sons of Korah. An Instruction. O God, with our ears we have heard, Our fathers have recounted to us, The work Thou didst work in their days, In the days of old..."
 weight: 44
 ---
 
-# Psalm 44
+# Psalm 44 
 
 **¹** To the Overseer. — By sons of Korah. An Instruction. O God, with our ears we have heard, Our fathers have recounted to us, The work Thou didst work in their days, In the days of old.
 

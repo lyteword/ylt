@@ -1,8 +1,11 @@
 ---
+title: "Joshua 18 YLT | Read the Bible Online"
+linkTitle: "18"
+description: "Read Joshua 18 Online | And all the company of the sons of Israel are assembled [at] Shiloh, and they cause the tent of meeting to tabernacle there, and the land hath been subdued before them..."
 weight: 18
 ---
 
-# Chapter 18
+# Joshua 18 
 
 **¹** And all the company of the sons of Israel are assembled [at] Shiloh, and they cause the tent of meeting to tabernacle there, and the land hath been subdued before them.
 

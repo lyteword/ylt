@@ -1,8 +1,11 @@
 ---
+title: "Psalm 50 YLT | Read the Bible Online"
+linkTitle: "50"
+description: "Read Psalm 50 Online | A Psalm of Asaph. The God of gods — Jehovah — hath spoken, And He calleth to the earth From the rising of the sun unto its going in..."
 weight: 50
 ---
 
-# Psalm 50
+# Psalm 50 
 
 **¹** A Psalm of Asaph. The God of gods — Jehovah — hath spoken, And He calleth to the earth From the rising of the sun unto its going in.
 

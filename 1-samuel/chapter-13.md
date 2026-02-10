@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read 1 Samuel 13 Online | A son of a year [is] Saul in his reigning, yea, two years he hath reigned over Israel..."
 weight: 13
 ---
 
-# Chapter 13
+# 1 Samuel 13 
 
 **¹** A son of a year [is] Saul in his reigning, yea, two years he hath reigned over Israel,
 

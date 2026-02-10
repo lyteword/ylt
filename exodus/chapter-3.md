@@ -1,8 +1,11 @@
 ---
+title: "Exodus 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Exodus 3 Online | And Moses hath been feeding the flock of Jethro his father-in-law, priest of Midian, and he leadeth the flock behind the wilderness, and cometh in unto the mount of God, to Horeb..."
 weight: 3
 ---
 
-# Chapter 3
+# Exodus 3 
 
 **¹** And Moses hath been feeding the flock of Jethro his father-in-law, priest of Midian, and he leadeth the flock behind the wilderness, and cometh in unto the mount of God, to Horeb;
 

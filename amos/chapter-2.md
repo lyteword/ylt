@@ -1,8 +1,11 @@
 ---
+title: "Amos 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Amos 2 Online | Thus said Jehovah: For three transgressions of Moab, And for four, I do not reverse it, Because of his burning the bones of the king of Edom to lime..."
 weight: 2
 ---
 
-# Chapter 2
+# Amos 2 
 
 **¹** Thus said Jehovah: For three transgressions of Moab, And for four, I do not reverse it, Because of his burning the bones of the king of Edom to lime,
 

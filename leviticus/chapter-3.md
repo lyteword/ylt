@@ -1,8 +1,11 @@
 ---
+title: "Leviticus 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Leviticus 3 Online | 'And if his offering [is] a sacrifice of peace-offerings, if out of the herd he is bringing near, whether male or female, a perfect one he doth bring near before Jehovah..."
 weight: 3
 ---
 
-# Chapter 3
+# Leviticus 3 
 
 **¹** 'And if his offering [is] a sacrifice of peace-offerings, if out of the herd he is bringing near, whether male or female, a perfect one he doth bring near before Jehovah,
 

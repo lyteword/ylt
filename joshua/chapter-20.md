@@ -1,8 +1,11 @@
 ---
+title: "Joshua 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read Joshua 20 Online | And Jehovah speaketh unto Joshua, saying..."
 weight: 20
 ---
 
-# Chapter 20
+# Joshua 20 
 
 **¹** And Jehovah speaketh unto Joshua, saying,
 

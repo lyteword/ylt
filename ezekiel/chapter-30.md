@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 30 YLT | Read the Bible Online"
+linkTitle: "30"
+description: "Read Ezekiel 30 Online | And there is a word of Jehovah unto me, saying..."
 weight: 30
 ---
 
-# Chapter 30
+# Ezekiel 30 
 
 **¹** And there is a word of Jehovah unto me, saying:
 

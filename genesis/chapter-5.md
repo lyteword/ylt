@@ -1,8 +1,11 @@
 ---
+title: "Genesis 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read Genesis 5 Online | This [is] an account of the births of Adam: In the day of God's preparing man, in the likeness of God He hath made him..."
 weight: 5
 ---
 
-# Chapter 5
+# Genesis 5 
 
 **¹** This [is] an account of the births of Adam: In the day of God's preparing man, in the likeness of God He hath made him;
 

@@ -1,8 +1,11 @@
 ---
+title: "Exodus 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read Exodus 8 Online | And Jehovah saith unto Moses, 'Go in unto Pharaoh: and thou hast said unto him, Thus said Jehovah, Send My people away, and they serve Me..."
 weight: 8
 ---
 
-# Chapter 8
+# Exodus 8 
 
 **¹** And Jehovah saith unto Moses, 'Go in unto Pharaoh: and thou hast said unto him, Thus said Jehovah, Send My people away, and they serve Me;
 

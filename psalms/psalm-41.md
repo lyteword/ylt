@@ -1,8 +1,11 @@
 ---
+title: "Psalm 41 YLT | Read the Bible Online"
+linkTitle: "41"
+description: "Read Psalm 41 Online | To the Overseer. — A Psalm of David. O the happiness of him Who is acting wisely unto the poor, In a day of evil doth Jehovah deliver him..."
 weight: 41
 ---
 
-# Psalm 41
+# Psalm 41 
 
 **¹** To the Overseer. — A Psalm of David. O the happiness of him Who is acting wisely unto the poor, In a day of evil doth Jehovah deliver him.
 

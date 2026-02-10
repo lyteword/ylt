@@ -1,8 +1,11 @@
 ---
+title: "Psalm 130 YLT | Read the Bible Online"
+linkTitle: "130"
+description: "Read Psalm 130 Online | A Song of the Ascents. From depths I have called Thee, Jehovah..."
 weight: 130
 ---
 
-# Psalm 130
+# Psalm 130 
 
 **¹** A Song of the Ascents. From depths I have called Thee, Jehovah.
 

@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 18 YLT | Read the Bible Online"
+linkTitle: "18"
+description: "Read 2 Samuel 18 Online | And David inspecteth the people who [are] with him, and setteth over them heads of thousands and heads of hundreds..."
 weight: 18
 ---
 
-# Chapter 18
+# 2 Samuel 18 
 
 **¹** And David inspecteth the people who [are] with him, and setteth over them heads of thousands and heads of hundreds,
 

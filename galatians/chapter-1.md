@@ -1,8 +1,11 @@
 ---
+title: "Galatians 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Galatians 1 Online | Paul, an apostle — not from men, nor through man, but through Jesus Christ, and God the Father, who did raise him out of the dead ..."
 weight: 1
 ---
 
-# Chapter 1
+# Galatians 1 
 
 **¹** Paul, an apostle — not from men, nor through man, but through Jesus Christ, and God the Father, who did raise him out of the dead —
 

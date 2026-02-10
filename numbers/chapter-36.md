@@ -1,8 +1,11 @@
 ---
+title: "Numbers 36 YLT | Read the Bible Online"
+linkTitle: "36"
+description: "Read Numbers 36 Online | And the heads of the fathers of the families of the sons of Gilead, son of Machir, son of Manasseh, of the families of the sons of Joseph, come near, and speak before Moses, and before the princes, heads of the fathers of the sons of Israel..."
 weight: 36
 ---
 
-# Chapter 36
+# Numbers 36 
 
 **¹** And the heads of the fathers of the families of the sons of Gilead, son of Machir, son of Manasseh, of the families of the sons of Joseph, come near, and speak before Moses, and before the princes, heads of the fathers of the sons of Israel,
 

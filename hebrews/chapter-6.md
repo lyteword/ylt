@@ -1,8 +1,11 @@
 ---
+title: "Hebrews 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Hebrews 6 Online | Wherefore, having left the word of the beginning of the Christ, unto the perfection we may advance, not again a foundation laying of reformation from dead works, and of faith on God..."
 weight: 6
 ---
 
-# Chapter 6
+# Hebrews 6 
 
 **¹** Wherefore, having left the word of the beginning of the Christ, unto the perfection we may advance, not again a foundation laying of reformation from dead works, and of faith on God,
 

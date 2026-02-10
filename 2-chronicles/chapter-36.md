@@ -1,8 +1,11 @@
 ---
+title: "2 Chronicles 36 YLT | Read the Bible Online"
+linkTitle: "36"
+description: "Read 2 Chronicles 36 Online | And the people of the land take Jehoahaz son of Josiah, and cause him to reign instead of his father in Jerusalem..."
 weight: 36
 ---
 
-# Chapter 36
+# 2 Chronicles 36 
 
 **¹** And the people of the land take Jehoahaz son of Josiah, and cause him to reign instead of his father in Jerusalem.
 

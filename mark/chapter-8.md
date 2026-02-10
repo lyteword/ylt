@@ -1,8 +1,11 @@
 ---
+title: "Mark 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read Mark 8 Online | In those days the multitude being very great, and not having what they may eat, Jesus having called near his disciples, saith to them..."
 weight: 8
 ---
 
-# Chapter 8
+# Mark 8 
 
 **¹** In those days the multitude being very great, and not having what they may eat, Jesus having called near his disciples, saith to them,
 

@@ -1,8 +1,11 @@
 ---
+title: "Psalm 57 YLT | Read the Bible Online"
+linkTitle: "57"
+description: "Read Psalm 57 Online | To the Overseer. — 'Destroy not.' — A secret treasure of David, in his fleeing from the face of Saul into a cave. Favour me, O God, favour me, For in Thee is my soul trusting, And in the shadow of Thy wings I trust, Until the calamities pass over..."
 weight: 57
 ---
 
-# Psalm 57
+# Psalm 57 
 
 **¹** To the Overseer. — 'Destroy not.' — A secret treasure of David, in his fleeing from the face of Saul into a cave. Favour me, O God, favour me, For in Thee is my soul trusting, And in the shadow of Thy wings I trust, Until the calamities pass over.
 

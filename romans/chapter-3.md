@@ -1,8 +1,11 @@
 ---
+title: "Romans 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Romans 3 Online | What, then, [is] the superiority of the Jew? or what the profit of the circumcision..."
 weight: 3
 ---
 
-# Chapter 3
+# Romans 3 
 
 **¹** What, then, [is] the superiority of the Jew? or what the profit of the circumcision?
 

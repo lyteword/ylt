@@ -1,8 +1,11 @@
 ---
+title: "Exodus 20 YLT | Read the Bible Online"
+linkTitle: "20"
+description: "Read Exodus 20 Online | 'And God speaketh all these words, saying..."
 weight: 20
 ---
 
-# Chapter 20
+# Exodus 20 
 
 **¹** 'And God speaketh all these words, saying,
 

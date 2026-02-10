@@ -1,8 +1,11 @@
 ---
+title: "Genesis 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read Genesis 12 Online | And Jehovah saith unto Abram, 'Go for thyself, from thy land, and from thy kindred, and from the house of thy father, unto the land which I shew thee..."
 weight: 12
 ---
 
-# Chapter 12
+# Genesis 12 
 
 **¹** And Jehovah saith unto Abram, 'Go for thyself, from thy land, and from thy kindred, and from the house of thy father, unto the land which I shew thee.
 

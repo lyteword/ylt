@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read 2 Samuel 12 Online | And Jehovah sendeth Nathan unto David, and he cometh unto him, and saith to him: 'Two men have been in one city; One rich and one poor..."
 weight: 12
 ---
 
-# Chapter 12
+# 2 Samuel 12 
 
 **¹** And Jehovah sendeth Nathan unto David, and he cometh unto him, and saith to him: 'Two men have been in one city; One rich and one poor;
 

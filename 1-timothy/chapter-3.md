@@ -1,8 +1,11 @@
 ---
+title: "1 Timothy 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read 1 Timothy 3 Online | Stedfast [is] the word: If any one the oversight doth long for, a right work he desireth..."
 weight: 3
 ---
 
-# Chapter 3
+# 1 Timothy 3 
 
 **¹** Stedfast [is] the word: If any one the oversight doth long for, a right work he desireth;
 

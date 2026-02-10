@@ -1,8 +1,11 @@
 ---
+title: "Acts 15 YLT | Read the Bible Online"
+linkTitle: "15"
+description: "Read Acts 15 Online | And certain having come down from Judea, were teaching the brethren — 'If ye be not circumcised after the custom of Moses, ye are not able to be saved;..."
 weight: 15
 ---
 
-# Chapter 15
+# Acts 15 
 
 **¹** And certain having come down from Judea, were teaching the brethren — 'If ye be not circumcised after the custom of Moses, ye are not able to be saved;'
 

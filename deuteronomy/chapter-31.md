@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 31 YLT | Read the Bible Online"
+linkTitle: "31"
+description: "Read Deuteronomy 31 Online | And Moses goeth and speaketh these words unto all Israel..."
 weight: 31
 ---
 
-# Chapter 31
+# Deuteronomy 31 
 
 **¹** And Moses goeth and speaketh these words unto all Israel,
 

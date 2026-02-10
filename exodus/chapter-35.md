@@ -1,8 +1,11 @@
 ---
+title: "Exodus 35 YLT | Read the Bible Online"
+linkTitle: "35"
+description: "Read Exodus 35 Online | And Moses assembleth all the company of the sons of Israel, and saith unto them, 'These [are] the things which Jehovah hath commanded — to do them..."
 weight: 35
 ---
 
-# Chapter 35
+# Exodus 35 
 
 **¹** And Moses assembleth all the company of the sons of Israel, and saith unto them, 'These [are] the things which Jehovah hath commanded — to do them:
 

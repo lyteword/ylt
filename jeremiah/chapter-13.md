@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read Jeremiah 13 Online | Thus said Jehovah unto me, 'Go, and thou hast got for thee a girdle of linen, and hast placed it on thy loins, and into water thou dost not cause it to enter:..."
 weight: 13
 ---
 
-# Chapter 13
+# Jeremiah 13 
 
 **¹** Thus said Jehovah unto me, 'Go, and thou hast got for thee a girdle of linen, and hast placed it on thy loins, and into water thou dost not cause it to enter:'
 

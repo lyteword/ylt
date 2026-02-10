@@ -1,8 +1,11 @@
 ---
+title: "Genesis 27 YLT | Read the Bible Online"
+linkTitle: "27"
+description: "Read Genesis 27 Online | And it cometh to pass that Isaac [is] aged, and his eyes are too dim for seeing, and he calleth Esau his elder son, and saith unto him, 'My son;' and he saith unto him, 'Here [am] I...."
 weight: 27
 ---
 
-# Chapter 27
+# Genesis 27 
 
 **¹** And it cometh to pass that Isaac [is] aged, and his eyes are too dim for seeing, and he calleth Esau his elder son, and saith unto him, 'My son;' and he saith unto him, 'Here [am] I.'
 

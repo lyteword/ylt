@@ -1,8 +1,11 @@
 ---
+title: "Zechariah 13 YLT | Read the Bible Online"
+linkTitle: "13"
+description: "Read Zechariah 13 Online | In that day there is a fountain opened To the house of David And to the inhabitants of Jerusalem, For sin and for impurity..."
 weight: 13
 ---
 
-# Chapter 13
+# Zechariah 13 
 
 **¹** In that day there is a fountain opened To the house of David And to the inhabitants of Jerusalem, For sin and for impurity.
 

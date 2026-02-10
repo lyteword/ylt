@@ -1,8 +1,11 @@
 ---
+title: "Matthew 11 YLT | Read the Bible Online"
+linkTitle: "11"
+description: "Read Matthew 11 Online | And it came to pass, when Jesus ended directing his twelve disciples, he departed thence to teach and to preach in their cities..."
 weight: 11
 ---
 
-# Chapter 11
+# Matthew 11 
 
 **¹** And it came to pass, when Jesus ended directing his twelve disciples, he departed thence to teach and to preach in their cities.
 

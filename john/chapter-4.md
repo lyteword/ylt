@@ -1,8 +1,11 @@
 ---
+title: "John 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read John 4 Online | When therefore the Lord knew that the Pharisees heard that Jesus more disciples doth make and baptize than John..."
 weight: 4
 ---
 
-# Chapter 4
+# John 4 
 
 **¹** When therefore the Lord knew that the Pharisees heard that Jesus more disciples doth make and baptize than John,
 

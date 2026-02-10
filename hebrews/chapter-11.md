@@ -1,8 +1,11 @@
 ---
+title: "Hebrews 11 YLT | Read the Bible Online"
+linkTitle: "11"
+description: "Read Hebrews 11 Online | And faith is of things hoped for a confidence, of matters not seen a conviction..."
 weight: 11
 ---
 
-# Chapter 11
+# Hebrews 11 
 
 **¹** And faith is of things hoped for a confidence, of matters not seen a conviction,
 

@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 21 YLT | Read the Bible Online"
+linkTitle: "21"
+description: "Read Deuteronomy 21 Online | 'When one is found slain on the ground which Jehovah thy God is giving to thee to possess it — fallen in a field — it is not known who hath smitten him..."
 weight: 21
 ---
 
-# Chapter 21
+# Deuteronomy 21 
 
 **¹** 'When one is found slain on the ground which Jehovah thy God is giving to thee to possess it — fallen in a field — it is not known who hath smitten him,
 

@@ -1,8 +1,11 @@
 ---
+title: "Joshua 7 YLT | Read the Bible Online"
+linkTitle: "7"
+description: "Read Joshua 7 Online | And the sons of Israel commit a trespass in the devoted thing, and Achan, son of Carmi, son of Zabdi, son of Zerah, of the tribe of Judah, taketh of the devoted thing, and the anger of Jehovah burneth against the sons of Israel..."
 weight: 7
 ---
 
-# Chapter 7
+# Joshua 7 
 
 **¹** And the sons of Israel commit a trespass in the devoted thing, and Achan, son of Carmi, son of Zabdi, son of Zerah, of the tribe of Judah, taketh of the devoted thing, and the anger of Jehovah burneth against the sons of Israel.
 

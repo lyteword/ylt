@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 19 YLT | Read the Bible Online"
+linkTitle: "19"
+description: "Read Proverbs 19 Online | Better [is] the poor walking in his integrity, Than the perverse [in] his lips, who [is] a fool..."
 weight: 19
 ---
 
-# Chapter 19
+# Proverbs 19 
 
 **¹** Better [is] the poor walking in his integrity, Than the perverse [in] his lips, who [is] a fool.
 

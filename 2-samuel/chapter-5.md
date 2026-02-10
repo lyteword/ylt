@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read 2 Samuel 5 Online | And all the tribes of Israel come unto David, to Hebron, and speak, saying, 'Lo, we [are] thy bone and thy flesh..."
 weight: 5
 ---
 
-# Chapter 5
+# 2 Samuel 5 
 
 **¹** And all the tribes of Israel come unto David, to Hebron, and speak, saying, 'Lo, we [are] thy bone and thy flesh;
 

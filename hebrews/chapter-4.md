@@ -1,8 +1,11 @@
 ---
+title: "Hebrews 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read Hebrews 4 Online | We may fear, then, lest a promise being left of entering into His rest, any one of you may seem to have come short..."
 weight: 4
 ---
 
-# Chapter 4
+# Hebrews 4 
 
 **¹** We may fear, then, lest a promise being left of entering into His rest, any one of you may seem to have come short,
 

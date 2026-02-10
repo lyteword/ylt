@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 18 YLT | Read the Bible Online"
+linkTitle: "18"
+description: "Read Jeremiah 18 Online | The word that hath been unto Jeremiah from Jehovah, saying..."
 weight: 18
 ---
 
-# Chapter 18
+# Jeremiah 18 
 
 **¹** The word that hath been unto Jeremiah from Jehovah, saying,
 

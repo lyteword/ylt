@@ -1,8 +1,11 @@
 ---
+title: "1 Corinthians 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read 1 Corinthians 6 Online | Dare any one of you, having a matter with the other, go to be judged before the unrighteous, and not before the saints..."
 weight: 6
 ---
 
-# Chapter 6
+# 1 Corinthians 6 
 
 **¹** Dare any one of you, having a matter with the other, go to be judged before the unrighteous, and not before the saints?
 

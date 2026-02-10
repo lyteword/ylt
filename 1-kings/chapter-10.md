@@ -1,8 +1,11 @@
 ---
+title: "1 Kings 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read 1 Kings 10 Online | And the queen of Sheba is hearing of the fame of Solomon concerning the name of Jehovah, and cometh to try him with enigmas..."
 weight: 10
 ---
 
-# Chapter 10
+# 1 Kings 10 
 
 **¹** And the queen of Sheba is hearing of the fame of Solomon concerning the name of Jehovah, and cometh to try him with enigmas,
 

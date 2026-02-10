@@ -1,8 +1,11 @@
 ---
+title: "Mark 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Mark 2 Online | And again he entered into Capernaum, after [some] days, and it was heard that he is in the house..."
 weight: 2
 ---
 
-# Chapter 2
+# Mark 2 
 
 **¹** And again he entered into Capernaum, after [some] days, and it was heard that he is in the house,
 

@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read Jeremiah 9 Online | Who doth make my head waters, And mine eye a fountain of tears? And I weep by day and by night, For the wounded of the daughter of my people..."
 weight: 9
 ---
 
-# Chapter 9
+# Jeremiah 9 
 
 **¹** Who doth make my head waters, And mine eye a fountain of tears? And I weep by day and by night, For the wounded of the daughter of my people.
 

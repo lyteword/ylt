@@ -1,8 +1,11 @@
 ---
+title: "Esther 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read Esther 4 Online | And Mordecai hath known all that hath been done, and Mordecai rendeth his garments, and putteth on sackcloth and ashes, and goeth forth into the midst of the city and crieth — a cry loud and bitter..."
 weight: 4
 ---
 
-# Chapter 4
+# Esther 4 
 
 **¹** And Mordecai hath known all that hath been done, and Mordecai rendeth his garments, and putteth on sackcloth and ashes, and goeth forth into the midst of the city and crieth — a cry loud and bitter,
 

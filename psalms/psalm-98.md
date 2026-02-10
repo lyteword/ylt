@@ -1,8 +1,11 @@
 ---
+title: "Psalm 98 YLT | Read the Bible Online"
+linkTitle: "98"
+description: "Read Psalm 98 Online | A Psalm. Sing ye to Jehovah a new song, For wonders He hath done, Given salvation to Him hath His right hand and His holy arm..."
 weight: 98
 ---
 
-# Psalm 98
+# Psalm 98 
 
 **¹** A Psalm. Sing ye to Jehovah a new song, For wonders He hath done, Given salvation to Him hath His right hand and His holy arm.
 

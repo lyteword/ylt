@@ -1,8 +1,11 @@
 ---
+title: "Job 23 YLT | Read the Bible Online"
+linkTitle: "23"
+description: "Read Job 23 Online | And Job answereth and saith: ..."
 weight: 23
 ---
 
-# Chapter 23
+# Job 23 
 
 **¹** And Job answereth and saith: —
 

@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 37 YLT | Read the Bible Online"
+linkTitle: "37"
+description: "Read Isaiah 37 Online | And it cometh to pass, at the king Hezekiah's hearing, that he rendeth his garments, and covereth himself with sackcloth, and entereth the house of Jehovah..."
 weight: 37
 ---
 
-# Chapter 37
+# Isaiah 37 
 
 **¹** And it cometh to pass, at the king Hezekiah's hearing, that he rendeth his garments, and covereth himself with sackcloth, and entereth the house of Jehovah,
 

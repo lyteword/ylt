@@ -1,8 +1,11 @@
 ---
+title: "Jonah 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Jonah 1 Online | And there is a word of Jehovah unto Jonah son of Amittai, saying..."
 weight: 1
 ---
 
-# Chapter 1
+# Jonah 1 
 
 **¹** And there is a word of Jehovah unto Jonah son of Amittai, saying:
 

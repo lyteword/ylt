@@ -1,8 +1,11 @@
 ---
+title: "2 Samuel 11 YLT | Read the Bible Online"
+linkTitle: "11"
+description: "Read 2 Samuel 11 Online | And it cometh to pass, at the revolution of the year — at the time of the going out of the messengers — that David sendeth Joab, and his servants with him, and all Israel, and they destroy the Bene-Ammon, and lay siege against Rabbah. And David is dwelling in Jerusalem..."
 weight: 11
 ---
 
-# Chapter 11
+# 2 Samuel 11 
 
 **¹** And it cometh to pass, at the revolution of the year — at the time of the going out of the messengers — that David sendeth Joab, and his servants with him, and all Israel, and they destroy the Bene-Ammon, and lay siege against Rabbah. And David is dwelling in Jerusalem,
 

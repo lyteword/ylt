@@ -1,8 +1,11 @@
 ---
+title: "Philippians 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Philippians 2 Online | If, then, any exhortation [is] in Christ, if any comfort of love, if any fellowship of spirit, if any bowels and mercies..."
 weight: 2
 ---
 
-# Chapter 2
+# Philippians 2 
 
 **¹** If, then, any exhortation [is] in Christ, if any comfort of love, if any fellowship of spirit, if any bowels and mercies,
 

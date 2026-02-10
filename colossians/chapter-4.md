@@ -1,8 +1,11 @@
 ---
+title: "Colossians 4 YLT | Read the Bible Online"
+linkTitle: "4"
+description: "Read Colossians 4 Online | The masters! that which is righteous and equal to the servants give ye, having known that ye also have a Master in the heavens..."
 weight: 4
 ---
 
-# Chapter 4
+# Colossians 4 
 
 **¹** The masters! that which is righteous and equal to the servants give ye, having known that ye also have a Master in the heavens.
 

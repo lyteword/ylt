@@ -1,8 +1,11 @@
 ---
+title: "2 Corinthians 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read 2 Corinthians 12 Online | To boast, really, is not profitable for me, for I will come to visions and revelations of the Lord..."
 weight: 12
 ---
 
-# Chapter 12
+# 2 Corinthians 12 
 
 **¹** To boast, really, is not profitable for me, for I will come to visions and revelations of the Lord.
 

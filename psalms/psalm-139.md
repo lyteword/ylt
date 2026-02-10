@@ -1,8 +1,11 @@
 ---
+title: "Psalm 139 YLT | Read the Bible Online"
+linkTitle: "139"
+description: "Read Psalm 139 Online | To the Overseer. — A Psalm by David. Jehovah, Thou hast searched me, and knowest..."
 weight: 139
 ---
 
-# Psalm 139
+# Psalm 139 
 
 **¹** To the Overseer. — A Psalm by David. Jehovah, Thou hast searched me, and knowest.
 

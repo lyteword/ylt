@@ -1,8 +1,11 @@
 ---
+title: "Nahum 1 YLT | Read the Bible Online"
+linkTitle: "1"
+description: "Read Nahum 1 Online | Burden of Nineveh. The Book of the Vision of Nahum the Elkoshite..."
 weight: 1
 ---
 
-# Chapter 1
+# Nahum 1 
 
 **¹** Burden of Nineveh. The Book of the Vision of Nahum the Elkoshite.
 

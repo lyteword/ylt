@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 33 YLT | Read the Bible Online"
+linkTitle: "33"
+description: "Read Deuteronomy 33 Online | And this [is] the blessing [with] which Moses the man of God blessed the sons of Israel before his death..."
 weight: 33
 ---
 
-# Chapter 33
+# Deuteronomy 33 
 
 **¹** And this [is] the blessing [with] which Moses the man of God blessed the sons of Israel before his death,
 

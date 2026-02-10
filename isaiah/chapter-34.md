@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 34 YLT | Read the Bible Online"
+linkTitle: "34"
+description: "Read Isaiah 34 Online | Come near, ye nations, to hear, And ye peoples, give attention, Hear doth the earth and its fulness, The world, and all its productions..."
 weight: 34
 ---
 
-# Chapter 34
+# Isaiah 34 
 
 **¹** Come near, ye nations, to hear, And ye peoples, give attention, Hear doth the earth and its fulness, The world, and all its productions.
 

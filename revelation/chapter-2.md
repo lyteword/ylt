@@ -1,8 +1,11 @@
 ---
+title: "Revelation 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Revelation 2 Online | 'To the messenger of the Ephesian assembly write: These things saith he who is holding the seven stars in his right hand, who is walking in the midst of the seven lamp-stands — the golden..."
 weight: 2
 ---
 
-# Chapter 2
+# Revelation 2 
 
 **¹** 'To the messenger of the Ephesian assembly write: These things saith he who is holding the seven stars in his right hand, who is walking in the midst of the seven lamp-stands — the golden:
 

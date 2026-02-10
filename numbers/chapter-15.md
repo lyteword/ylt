@@ -1,8 +1,11 @@
 ---
+title: "Numbers 15 YLT | Read the Bible Online"
+linkTitle: "15"
+description: "Read Numbers 15 Online | And Jehovah speaketh unto Moses, saying..."
 weight: 15
 ---
 
-# Chapter 15
+# Numbers 15 
 
 **¹** And Jehovah speaketh unto Moses, saying,
 

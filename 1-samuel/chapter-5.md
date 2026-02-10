@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 5 YLT | Read the Bible Online"
+linkTitle: "5"
+description: "Read 1 Samuel 5 Online | And the Philistines have taken the ark of God, and bring it in from Eben-Ezer to Ashdod..."
 weight: 5
 ---
 
-# Chapter 5
+# 1 Samuel 5 
 
 **¹** And the Philistines have taken the ark of God, and bring it in from Eben-Ezer to Ashdod,
 

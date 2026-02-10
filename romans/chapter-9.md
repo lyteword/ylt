@@ -1,8 +1,11 @@
 ---
+title: "Romans 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read Romans 9 Online | Truth I say in Christ, I lie not, my conscience bearing testimony with me in the Holy Spirit..."
 weight: 9
 ---
 
-# Chapter 9
+# Romans 9 
 
 **¹** Truth I say in Christ, I lie not, my conscience bearing testimony with me in the Holy Spirit,
 

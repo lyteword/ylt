@@ -1,8 +1,11 @@
 ---
+title: "Joshua 24 YLT | Read the Bible Online"
+linkTitle: "24"
+description: "Read Joshua 24 Online | And Joshua gathereth all the tribes of Israel to Shechem, and calleth for the elders of Israel, and for its heads, and for its judges, and for its authorities, and they station themselves before God..."
 weight: 24
 ---
 
-# Chapter 24
+# Joshua 24 
 
 **¹** And Joshua gathereth all the tribes of Israel to Shechem, and calleth for the elders of Israel, and for its heads, and for its judges, and for its authorities, and they station themselves before God.
 

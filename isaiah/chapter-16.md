@@ -1,8 +1,11 @@
 ---
+title: "Isaiah 16 YLT | Read the Bible Online"
+linkTitle: "16"
+description: "Read Isaiah 16 Online | Send ye a lamb [to] the ruler of the land, From Selah in the wilderness, Unto the mount of the daughter of Zion..."
 weight: 16
 ---
 
-# Chapter 16
+# Isaiah 16 
 
 **¹** Send ye a lamb [to] the ruler of the land, From Selah in the wilderness, Unto the mount of the daughter of Zion.
 

@@ -1,8 +1,11 @@
 ---
+title: "Ezra 6 YLT | Read the Bible Online"
+linkTitle: "6"
+description: "Read Ezra 6 Online | Then Darius the king made a decree, and they sought in the house of the books of the treasuries placed there in Babylon..."
 weight: 6
 ---
 
-# Chapter 6
+# Ezra 6 
 
 **¹** Then Darius the king made a decree, and they sought in the house of the books of the treasuries placed there in Babylon,
 

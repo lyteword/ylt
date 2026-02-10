@@ -1,8 +1,11 @@
 ---
+title: "Psalm 89 YLT | Read the Bible Online"
+linkTitle: "89"
+description: "Read Psalm 89 Online | An instruction, by Ethan the Ezrahite. Of the kind acts of Jehovah, to the age I sing, To all generations I make known Thy faithfulness with my mouth..."
 weight: 89
 ---
 
-# Psalm 89
+# Psalm 89 
 
 **¹** An instruction, by Ethan the Ezrahite. Of the kind acts of Jehovah, to the age I sing, To all generations I make known Thy faithfulness with my mouth,
 

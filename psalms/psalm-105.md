@@ -1,8 +1,11 @@
 ---
+title: "Psalm 105 YLT | Read the Bible Online"
+linkTitle: "105"
+description: "Read Psalm 105 Online | Give ye thanks to Jehovah — call ye in His name, Make known among the peoples His acts..."
 weight: 105
 ---
 
-# Psalm 105
+# Psalm 105 
 
 **¹** Give ye thanks to Jehovah — call ye in His name, Make known among the peoples His acts.
 

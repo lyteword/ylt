@@ -1,8 +1,11 @@
 ---
+title: "John 10 YLT | Read the Bible Online"
+linkTitle: "10"
+description: "Read John 10 Online | 'Verily, verily, I say to you, He who is not entering through the door to the fold of the sheep, but is going up from another side, that one is a thief and a robber..."
 weight: 10
 ---
 
-# Chapter 10
+# John 10 
 
 **¹** 'Verily, verily, I say to you, He who is not entering through the door to the fold of the sheep, but is going up from another side, that one is a thief and a robber;
 

@@ -1,8 +1,11 @@
 ---
+title: "Judges 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read Judges 2 Online | And a messenger of Jehovah goeth up from Gilgal unto Bochim..."
 weight: 2
 ---
 
-# Chapter 2
+# Judges 2 
 
 **¹** And a messenger of Jehovah goeth up from Gilgal unto Bochim,
 

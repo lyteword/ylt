@@ -1,8 +1,11 @@
 ---
+title: "Genesis 22 YLT | Read the Bible Online"
+linkTitle: "22"
+description: "Read Genesis 22 Online | And it cometh to pass after these things that God hath tried Abraham, and saith unto him, 'Abraham;' and he saith, 'Here [am] I...."
 weight: 22
 ---
 
-# Chapter 22
+# Genesis 22 
 
 **¹** And it cometh to pass after these things that God hath tried Abraham, and saith unto him, 'Abraham;' and he saith, 'Here [am] I.'
 

@@ -1,8 +1,11 @@
 ---
+title: "Proverbs 14 YLT | Read the Bible Online"
+linkTitle: "14"
+description: "Read Proverbs 14 Online | Every wise woman hath builded her house, And the foolish with her hands breaketh it down..."
 weight: 14
 ---
 
-# Chapter 14
+# Proverbs 14 
 
 **¹** Every wise woman hath builded her house, And the foolish with her hands breaketh it down.
 

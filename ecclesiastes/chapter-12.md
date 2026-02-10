@@ -1,8 +1,11 @@
 ---
+title: "Ecclesiastes 12 YLT | Read the Bible Online"
+linkTitle: "12"
+description: "Read Ecclesiastes 12 Online | Remember also thy Creators in days of thy youth, While that the evil days come not, Nor the years have arrived, that thou sayest, 'I have no pleasure in them...."
 weight: 12
 ---
 
-# Chapter 12
+# Ecclesiastes 12 
 
 **¹** Remember also thy Creators in days of thy youth, While that the evil days come not, Nor the years have arrived, that thou sayest, 'I have no pleasure in them.'
 

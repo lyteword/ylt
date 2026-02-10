@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 26 YLT | Read the Bible Online"
+linkTitle: "26"
+description: "Read Ezekiel 26 Online | And it cometh to pass, in the eleventh year, in the first of the month, there hath been a word of Jehovah unto me, saying: 'Son of man..."
 weight: 26
 ---
 
-# Chapter 26
+# Ezekiel 26 
 
 **¹** And it cometh to pass, in the eleventh year, in the first of the month, there hath been a word of Jehovah unto me, saying: 'Son of man,
 

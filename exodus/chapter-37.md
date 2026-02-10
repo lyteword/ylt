@@ -1,8 +1,11 @@
 ---
+title: "Exodus 37 YLT | Read the Bible Online"
+linkTitle: "37"
+description: "Read Exodus 37 Online | And Bezaleel maketh the ark of shittim wood, two cubits and a half its length, and a cubit and a half its breadth, and a cubit and a half its height..."
 weight: 37
 ---
 
-# Chapter 37
+# Exodus 37 
 
 **¹** And Bezaleel maketh the ark of shittim wood, two cubits and a half its length, and a cubit and a half its breadth, and a cubit and a half its height;
 

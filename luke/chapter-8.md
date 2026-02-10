@@ -1,8 +1,11 @@
 ---
+title: "Luke 8 YLT | Read the Bible Online"
+linkTitle: "8"
+description: "Read Luke 8 Online | And it came to pass thereafter, that he was going through every city and village, preaching and proclaiming good news of the reign of God, and the twelve [are] with him..."
 weight: 8
 ---
 
-# Chapter 8
+# Luke 8 
 
 **¹** And it came to pass thereafter, that he was going through every city and village, preaching and proclaiming good news of the reign of God, and the twelve [are] with him,
 

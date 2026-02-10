@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 25 YLT | Read the Bible Online"
+linkTitle: "25"
+description: "Read 1 Samuel 25 Online | And Samuel dieth, and all Israel are gathered, and mourn for him, and bury him in his house, in Ramah; and David riseth and goeth down unto the wilderness of Paran..."
 weight: 25
 ---
 
-# Chapter 25
+# 1 Samuel 25 
 
 **¹** And Samuel dieth, and all Israel are gathered, and mourn for him, and bury him in his house, in Ramah; and David riseth and goeth down unto the wilderness of Paran.
 

@@ -1,8 +1,11 @@
 ---
+title: "Mark 9 YLT | Read the Bible Online"
+linkTitle: "9"
+description: "Read Mark 9 Online | And he said to them, 'Verily I say to you, That there are certain of those standing here, who may not taste of death till they see the reign of God having come in power...."
 weight: 9
 ---
 
-# Chapter 9
+# Mark 9 
 
 **¹** And he said to them, 'Verily I say to you, That there are certain of those standing here, who may not taste of death till they see the reign of God having come in power.'
 

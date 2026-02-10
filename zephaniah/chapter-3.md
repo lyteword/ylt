@@ -1,8 +1,11 @@
 ---
+title: "Zephaniah 3 YLT | Read the Bible Online"
+linkTitle: "3"
+description: "Read Zephaniah 3 Online | Woe [to] the rebellious and polluted, The oppressing city..."
 weight: 3
 ---
 
-# Chapter 3
+# Zephaniah 3 
 
 **¹** Woe [to] the rebellious and polluted, The oppressing city!
 

@@ -1,8 +1,11 @@
 ---
+title: "Ezekiel 37 YLT | Read the Bible Online"
+linkTitle: "37"
+description: "Read Ezekiel 37 Online | There hath been upon me a hand of Jehovah, and He taketh me forth in the Spirit of Jehovah, and doth place me in the midst of the valley, and it is full of bones..."
 weight: 37
 ---
 
-# Chapter 37
+# Ezekiel 37 
 
 **¹** There hath been upon me a hand of Jehovah, and He taketh me forth in the Spirit of Jehovah, and doth place me in the midst of the valley, and it is full of bones,
 

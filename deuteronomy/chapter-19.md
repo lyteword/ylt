@@ -1,8 +1,11 @@
 ---
+title: "Deuteronomy 19 YLT | Read the Bible Online"
+linkTitle: "19"
+description: "Read Deuteronomy 19 Online | 'When Jehovah thy God doth cut off the nations, whose land Jehovah thy God is giving to thee, and thou hast succeeded them, and dwelt in their cities, and in their houses..."
 weight: 19
 ---
 
-# Chapter 19
+# Deuteronomy 19 
 
 **¹** 'When Jehovah thy God doth cut off the nations, whose land Jehovah thy God is giving to thee, and thou hast succeeded them, and dwelt in their cities, and in their houses,
 

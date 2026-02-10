@@ -1,8 +1,11 @@
 ---
+title: "1 Samuel 2 YLT | Read the Bible Online"
+linkTitle: "2"
+description: "Read 1 Samuel 2 Online | And Hannah prayeth, and saith: 'My heart hath exulted in Jehovah, My horn hath been high in Jehovah, My mouth hath been large over mine enemies, For I have rejoiced in Thy salvation..."
 weight: 2
 ---
 
-# Chapter 2
+# 1 Samuel 2 
 
 **¹** And Hannah prayeth, and saith: 'My heart hath exulted in Jehovah, My horn hath been high in Jehovah, My mouth hath been large over mine enemies, For I have rejoiced in Thy salvation.
 

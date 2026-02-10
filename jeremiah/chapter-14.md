@@ -1,8 +1,11 @@
 ---
+title: "Jeremiah 14 YLT | Read the Bible Online"
+linkTitle: "14"
+description: "Read Jeremiah 14 Online | That which hath been the word of Jehovah unto Jeremiah concerning the matters of the dearths..."
 weight: 14
 ---
 
-# Chapter 14
+# Jeremiah 14 
 
 **¹** That which hath been the word of Jehovah unto Jeremiah concerning the matters of the dearths:
 
