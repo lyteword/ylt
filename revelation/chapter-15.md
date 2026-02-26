@@ -1,7 +1,8 @@
 ---
 title: "Revelation 15 YLT | Read the Bible Online"
 linkTitle: "15"
-description: "Read Revelation 15 Online | And I saw another sign in the heaven, great and wonderful, seven messengers having the seven last plagues, because in these was completed the wrath of God..."
+description: >
+  Read Revelation 15 Online | And I saw another sign in the heaven, great and wonderful, seven messengers having the seven last plagues, because in these was completed the wrath of God...
 weight: 15
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Matthew 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Matthew 3 Online | And in those days cometh John the Baptist, proclaiming in the wilderness of Judea..."
+description: >
+  Read Matthew 3 Online | And in those days cometh John the Baptist, proclaiming in the wilderness of Judea...
 weight: 3
 ---
 

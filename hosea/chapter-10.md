@@ -1,7 +1,8 @@
 ---
 title: "Hosea 10 YLT | Read the Bible Online"
 linkTitle: "10"
-description: "Read Hosea 10 Online | 'An empty vine [is] Israel, Fruit he maketh like to himself, According to the abundance of his fruit, He hath multiplied for the altars, According to the goodness of his land, They have made goodly standing-pillars..."
+description: >
+  Read Hosea 10 Online | 'An empty vine [is] Israel, Fruit he maketh like to himself, According to the abundance of his fruit, He hath multiplied for the altars, According to the goodness of his land, They have made goodly standing-pillars...
 weight: 10
 ---
 

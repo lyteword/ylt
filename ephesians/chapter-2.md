@@ -1,7 +1,8 @@
 ---
 title: "Ephesians 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Ephesians 2 Online | Also you — being dead in the trespasses and the sins..."
+description: >
+  Read Ephesians 2 Online | Also you — being dead in the trespasses and the sins...
 weight: 2
 ---
 

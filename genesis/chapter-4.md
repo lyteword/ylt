@@ -1,7 +1,8 @@
 ---
 title: "Genesis 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Genesis 4 Online | And the man knew Eve his wife, and she conceiveth and beareth Cain, and saith, 'I have gotten a man by Jehovah;..."
+description: >
+  Read Genesis 4 Online | And the man knew Eve his wife, and she conceiveth and beareth Cain, and saith, 'I have gotten a man by Jehovah;...
 weight: 4
 ---
 

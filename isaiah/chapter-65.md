@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 65 YLT | Read the Bible Online"
 linkTitle: "65"
-description: "Read Isaiah 65 Online | I have been inquired of by those who asked not, I have been found by those who sought Me not, I have said, 'Behold Me, behold Me,' Unto a nation not calling in My name..."
+description: >
+  Read Isaiah 65 Online | I have been inquired of by those who asked not, I have been found by those who sought Me not, I have said, 'Behold Me, behold Me,' Unto a nation not calling in My name...
 weight: 65
 ---
 

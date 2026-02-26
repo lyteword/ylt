@@ -1,7 +1,8 @@
 ---
 title: "Esther 6 YLT | Read the Bible Online"
 linkTitle: "6"
-description: "Read Esther 6 Online | On that night hath the sleep of the king fled away, and he saith to bring in the book of memorials of the Chronicles, and they are read before the king..."
+description: >
+  Read Esther 6 Online | On that night hath the sleep of the king fled away, and he saith to bring in the book of memorials of the Chronicles, and they are read before the king...
 weight: 6
 ---
 

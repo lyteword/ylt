@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 25 YLT | Read the Bible Online"
 linkTitle: "25"
-description: "Read 2 Chronicles 25 Online | A son of twenty and five years hath Amaziah reigned, and twenty and nine years he hath reigned in Jerusalem, and the name of his mother [is] Jehoaddan of Jerusalem..."
+description: >
+  Read 2 Chronicles 25 Online | A son of twenty and five years hath Amaziah reigned, and twenty and nine years he hath reigned in Jerusalem, and the name of his mother [is] Jehoaddan of Jerusalem...
 weight: 25
 ---
 

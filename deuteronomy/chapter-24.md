@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 24 YLT | Read the Bible Online"
 linkTitle: "24"
-description: "Read Deuteronomy 24 Online | 'When a man doth take a wife, and hath married her, and it hath been, if she doth not find grace in his eyes (for he hath found in her nakedness of anything), and he hath written for her a writing of divorce, and given [it] into her hand, and sent her out of his house..."
+description: >
+  Read Deuteronomy 24 Online | 'When a man doth take a wife, and hath married her, and it hath been, if she doth not find grace in his eyes (for he hath found in her nakedness of anything), and he hath written for her a writing of divorce, and given [it] into her hand, and sent her out of his house...
 weight: 24
 ---
 

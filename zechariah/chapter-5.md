@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read Zechariah 5 Online | And I turn back, and lift up mine eyes, and look, and lo, a flying roll..."
+description: >
+  Read Zechariah 5 Online | And I turn back, and lift up mine eyes, and look, and lo, a flying roll...
 weight: 5
 ---
 

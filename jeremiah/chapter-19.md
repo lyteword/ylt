@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 19 YLT | Read the Bible Online"
 linkTitle: "19"
-description: "Read Jeremiah 19 Online | Thus said Jehovah, 'Go, and thou hast got a potter's earthen vessel, and of the elders of the people, and of the elders of the priests..."
+description: >
+  Read Jeremiah 19 Online | Thus said Jehovah, 'Go, and thou hast got a potter's earthen vessel, and of the elders of the people, and of the elders of the priests...
 weight: 19
 ---
 

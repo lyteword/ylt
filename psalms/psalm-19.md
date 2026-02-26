@@ -1,7 +1,8 @@
 ---
 title: "Psalm 19 YLT | Read the Bible Online"
 linkTitle: "19"
-description: "Read Psalm 19 Online | To the Overseer. — A Psalm of David. The heavens [are] recounting the honour of God, And the work of His hands The expanse [is] declaring..."
+description: >
+  Read Psalm 19 Online | To the Overseer. — A Psalm of David. The heavens [are] recounting the honour of God, And the work of His hands The expanse [is] declaring...
 weight: 19
 ---
 

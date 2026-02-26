@@ -1,7 +1,8 @@
 ---
 title: "Psalm 33 YLT | Read the Bible Online"
 linkTitle: "33"
-description: "Read Psalm 33 Online | Sing, ye righteous, in Jehovah, For upright ones praise [is] comely..."
+description: >
+  Read Psalm 33 Online | Sing, ye righteous, in Jehovah, For upright ones praise [is] comely...
 weight: 33
 ---
 

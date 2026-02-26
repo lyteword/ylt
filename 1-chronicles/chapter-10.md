@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 10 YLT | Read the Bible Online"
 linkTitle: "10"
-description: "Read 1 Chronicles 10 Online | And the Philistines have fought with Israel, and the men of Israel flee from the face of the Philistines, and fall wounded in mount Gilboa..."
+description: >
+  Read 1 Chronicles 10 Online | And the Philistines have fought with Israel, and the men of Israel flee from the face of the Philistines, and fall wounded in mount Gilboa...
 weight: 10
 ---
 

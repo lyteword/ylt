@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 21 YLT | Read the Bible Online"
 linkTitle: "21"
-description: "Read Proverbs 21 Online | Rivulets of waters [is] the heart of a king in the hand of Jehovah, Wherever He pleaseth He inclineth it..."
+description: >
+  Read Proverbs 21 Online | Rivulets of waters [is] the heart of a king in the hand of Jehovah, Wherever He pleaseth He inclineth it...
 weight: 21
 ---
 

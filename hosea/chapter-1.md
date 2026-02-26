@@ -1,7 +1,8 @@
 ---
 title: "Hosea 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Hosea 1 Online | A word of Jehovah that hath been unto Hosea, son of Beeri, in the days of Uzziah, Jotham, Ahaz, Hezekiah, kings of Judah, and in the days of Jeroboam son of Joash, king of Israel..."
+description: >
+  Read Hosea 1 Online | A word of Jehovah that hath been unto Hosea, son of Beeri, in the days of Uzziah, Jotham, Ahaz, Hezekiah, kings of Judah, and in the days of Jeroboam son of Joash, king of Israel...
 weight: 1
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Thessalonians 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read 1 Thessalonians 3 Online | Wherefore no longer forbearing, we thought good to be left in Athens alone..."
+description: >
+  Read 1 Thessalonians 3 Online | Wherefore no longer forbearing, we thought good to be left in Athens alone...
 weight: 3
 ---
 

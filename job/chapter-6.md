@@ -1,7 +1,8 @@
 ---
 title: "Job 6 YLT | Read the Bible Online"
 linkTitle: "6"
-description: "Read Job 6 Online | And Job answereth and saith: ..."
+description: >
+  Read Job 6 Online | And Job answereth and saith: ...
 weight: 6
 ---
 

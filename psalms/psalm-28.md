@@ -1,7 +1,8 @@
 ---
 title: "Psalm 28 YLT | Read the Bible Online"
 linkTitle: "28"
-description: "Read Psalm 28 Online | By David. Unto Thee, O Jehovah, I call, My rock, be not silent to me! Lest Thou be silent to me, And I have been compared With those going down to the pit..."
+description: >
+  Read Psalm 28 Online | By David. Unto Thee, O Jehovah, I call, My rock, be not silent to me! Lest Thou be silent to me, And I have been compared With those going down to the pit...
 weight: 28
 ---
 

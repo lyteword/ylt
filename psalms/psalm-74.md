@@ -1,7 +1,8 @@
 ---
 title: "Psalm 74 YLT | Read the Bible Online"
 linkTitle: "74"
-description: "Read Psalm 74 Online | An Instruction of Asaph. Why, O God, hast Thou cast off for ever? Thine anger smoketh against the flock of Thy pasture..."
+description: >
+  Read Psalm 74 Online | An Instruction of Asaph. Why, O God, hast Thou cast off for ever? Thine anger smoketh against the flock of Thy pasture...
 weight: 74
 ---
 

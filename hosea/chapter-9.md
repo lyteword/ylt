@@ -1,7 +1,8 @@
 ---
 title: "Hosea 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read Hosea 9 Online | 'Rejoice not, O Israel, be not joyful like the peoples, For thou hast gone a-whoring from thy God, Thou hast loved a gift near all floors of corn..."
+description: >
+  Read Hosea 9 Online | 'Rejoice not, O Israel, be not joyful like the peoples, For thou hast gone a-whoring from thy God, Thou hast loved a gift near all floors of corn...
 weight: 9
 ---
 

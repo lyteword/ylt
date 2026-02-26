@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 49 YLT | Read the Bible Online"
 linkTitle: "49"
-description: "Read Isaiah 49 Online | Hearken, O isles, unto me, And attend, O peoples, from afar, Jehovah from the womb hath called me, From the bowels of my mother He hath made mention of my name..."
+description: >
+  Read Isaiah 49 Online | Hearken, O isles, unto me, And attend, O peoples, from afar, Jehovah from the womb hath called me, From the bowels of my mother He hath made mention of my name...
 weight: 49
 ---
 

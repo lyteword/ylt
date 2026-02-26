@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 19 YLT | Read the Bible Online"
 linkTitle: "19"
-description: "Read 1 Chronicles 19 Online | And it cometh to pass after this, that Nahash king of the sons of Ammon dieth, and his son reigneth in his stead..."
+description: >
+  Read 1 Chronicles 19 Online | And it cometh to pass after this, that Nahash king of the sons of Ammon dieth, and his son reigneth in his stead...
 weight: 19
 ---
 

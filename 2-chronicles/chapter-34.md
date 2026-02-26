@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 34 YLT | Read the Bible Online"
 linkTitle: "34"
-description: "Read 2 Chronicles 34 Online | A son of eight years [is] Josiah in his reigning, and thirty and one years he hath reigned in Jerusalem..."
+description: >
+  Read 2 Chronicles 34 Online | A son of eight years [is] Josiah in his reigning, and thirty and one years he hath reigned in Jerusalem...
 weight: 34
 ---
 

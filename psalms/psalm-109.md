@@ -1,7 +1,8 @@
 ---
 title: "Psalm 109 YLT | Read the Bible Online"
 linkTitle: "109"
-description: "Read Psalm 109 Online | To the Overseer. — A Psalm of David. O God of my praise, be not silent..."
+description: >
+  Read Psalm 109 Online | To the Overseer. — A Psalm of David. O God of my praise, be not silent...
 weight: 109
 ---
 

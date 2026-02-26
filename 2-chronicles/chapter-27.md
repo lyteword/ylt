@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 27 YLT | Read the Bible Online"
 linkTitle: "27"
-description: "Read 2 Chronicles 27 Online | A son of twenty and five years [is] Jotham in his reigning, and sixteen years he hath reigned in Jerusalem, and the name of his mother [is] Jerushah daughter of Zadok..."
+description: >
+  Read 2 Chronicles 27 Online | A son of twenty and five years [is] Jotham in his reigning, and sixteen years he hath reigned in Jerusalem, and the name of his mother [is] Jerushah daughter of Zadok...
 weight: 27
 ---
 

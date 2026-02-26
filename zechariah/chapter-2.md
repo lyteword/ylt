@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Zechariah 2 Online | And I lift up mine eyes, and look, and lo, a man, and in his hand a measuring line..."
+description: >
+  Read Zechariah 2 Online | And I lift up mine eyes, and look, and lo, a man, and in his hand a measuring line...
 weight: 2
 ---
 

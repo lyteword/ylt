@@ -1,7 +1,8 @@
 ---
 title: "Psalm 25 YLT | Read the Bible Online"
 linkTitle: "25"
-description: "Read Psalm 25 Online | By David. Unto Thee, O Jehovah, my soul I lift up..."
+description: >
+  Read Psalm 25 Online | By David. Unto Thee, O Jehovah, my soul I lift up...
 weight: 25
 ---
 

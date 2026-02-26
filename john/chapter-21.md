@@ -1,7 +1,8 @@
 ---
 title: "John 21 YLT | Read the Bible Online"
 linkTitle: "21"
-description: "Read John 21 Online | After these things did Jesus manifest himself again to the disciples on the sea of Tiberias, and he did manifest himself thus..."
+description: >
+  Read John 21 Online | After these things did Jesus manifest himself again to the disciples on the sea of Tiberias, and he did manifest himself thus...
 weight: 21
 ---
 

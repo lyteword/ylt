@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Nehemiah 4 Online | And it cometh to pass, when Sanballat hath heard that we are building the wall, that it is displeasing to him, and he is very angry and mocketh at the Jews..."
+description: >
+  Read Nehemiah 4 Online | And it cometh to pass, when Sanballat hath heard that we are building the wall, that it is displeasing to him, and he is very angry and mocketh at the Jews...
 weight: 4
 ---
 

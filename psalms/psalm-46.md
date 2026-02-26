@@ -1,7 +1,8 @@
 ---
 title: "Psalm 46 YLT | Read the Bible Online"
 linkTitle: "46"
-description: "Read Psalm 46 Online | To the Overseer. — By sons of Korah. 'For the Virgins.' — A song. God [is] to us a refuge and strength, A help in adversities found most surely..."
+description: >
+  Read Psalm 46 Online | To the Overseer. — By sons of Korah. 'For the Virgins.' — A song. God [is] to us a refuge and strength, A help in adversities found most surely...
 weight: 46
 ---
 

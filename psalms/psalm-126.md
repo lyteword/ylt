@@ -1,7 +1,8 @@
 ---
 title: "Psalm 126 YLT | Read the Bible Online"
 linkTitle: "126"
-description: "Read Psalm 126 Online | A Song of the Ascents. In Jehovah's turning back [to] the captivity of Zion, We have been as dreamers..."
+description: >
+  Read Psalm 126 Online | A Song of the Ascents. In Jehovah's turning back [to] the captivity of Zion, We have been as dreamers...
 weight: 126
 ---
 

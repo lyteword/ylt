@@ -1,7 +1,8 @@
 ---
 title: "Matthew 6 YLT | Read the Bible Online"
 linkTitle: "6"
-description: "Read Matthew 6 Online | 'Take heed your kindness not to do before men, to be seen by them, and if not — reward ye have not from your Father who [is] in the heavens..."
+description: >
+  Read Matthew 6 Online | 'Take heed your kindness not to do before men, to be seen by them, and if not — reward ye have not from your Father who [is] in the heavens...
 weight: 6
 ---
 

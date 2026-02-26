@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 6 YLT | Read the Bible Online"
 linkTitle: "6"
-description: "Read 2 Corinthians 6 Online | And working together also we call upon [you] that ye receive not in vain the grace of God ..."
+description: >
+  Read 2 Corinthians 6 Online | And working together also we call upon [you] that ye receive not in vain the grace of God ...
 weight: 6
 ---
 

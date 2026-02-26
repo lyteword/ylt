@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 22 YLT | Read the Bible Online"
 linkTitle: "22"
-description: "Read Proverbs 22 Online | A name is chosen rather than much wealth, Than silver and than gold — good grace..."
+description: >
+  Read Proverbs 22 Online | A name is chosen rather than much wealth, Than silver and than gold — good grace...
 weight: 22
 ---
 

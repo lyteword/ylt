@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 10 YLT | Read the Bible Online"
 linkTitle: "10"
-description: "Read Jeremiah 10 Online | Hear ye the word, O house of Israel, That Jehovah hath spoken for you..."
+description: >
+  Read Jeremiah 10 Online | Hear ye the word, O house of Israel, That Jehovah hath spoken for you...
 weight: 10
 ---
 

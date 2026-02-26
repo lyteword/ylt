@@ -1,7 +1,8 @@
 ---
 title: "Job 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Job 2 Online | And the day is, that sons of God come in to station themselves by Jehovah, and there doth come also the Adversary in their midst to station himself by Jehovah..."
+description: >
+  Read Job 2 Online | And the day is, that sons of God come in to station themselves by Jehovah, and there doth come also the Adversary in their midst to station himself by Jehovah...
 weight: 2
 ---
 

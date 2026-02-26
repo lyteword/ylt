@@ -1,7 +1,8 @@
 ---
 title: "Job 29 YLT | Read the Bible Online"
 linkTitle: "29"
-description: "Read Job 29 Online | And Job addeth to lift up his simile, and saith: ..."
+description: >
+  Read Job 29 Online | And Job addeth to lift up his simile, and saith: ...
 weight: 29
 ---
 

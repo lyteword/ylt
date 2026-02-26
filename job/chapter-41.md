@@ -1,7 +1,8 @@
 ---
 title: "Job 41 YLT | Read the Bible Online"
 linkTitle: "41"
-description: "Read Job 41 Online | Dost thou draw leviathan with an angle? And with a rope thou lettest down — his tongue..."
+description: >
+  Read Job 41 Online | Dost thou draw leviathan with an angle? And with a rope thou lettest down — his tongue...
 weight: 41
 ---
 

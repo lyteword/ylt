@@ -1,7 +1,8 @@
 ---
 title: "Joshua 13 YLT | Read the Bible Online"
 linkTitle: "13"
-description: "Read Joshua 13 Online | And Joshua is old, entering into days, and Jehovah saith unto him, 'Thou hast become aged, thou hast entered into days; as to the land, very much hath been left to possess..."
+description: >
+  Read Joshua 13 Online | And Joshua is old, entering into days, and Jehovah saith unto him, 'Thou hast become aged, thou hast entered into days; as to the land, very much hath been left to possess...
 weight: 13
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read Leviticus 7 Online | 'And this [is] a law of the guilt-offering: it [is] most holy..."
+description: >
+  Read Leviticus 7 Online | 'And this [is] a law of the guilt-offering: it [is] most holy...
 weight: 7
 ---
 

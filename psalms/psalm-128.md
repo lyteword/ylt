@@ -1,7 +1,8 @@
 ---
 title: "Psalm 128 YLT | Read the Bible Online"
 linkTitle: "128"
-description: "Read Psalm 128 Online | A Song of the Ascents. O the happiness of every one fearing Jehovah, Who is walking in His ways..."
+description: >
+  Read Psalm 128 Online | A Song of the Ascents. O the happiness of every one fearing Jehovah, Who is walking in His ways...
 weight: 128
 ---
 

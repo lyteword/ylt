@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 11 YLT | Read the Bible Online"
 linkTitle: "11"
-description: "Read 2 Corinthians 11 Online | O that ye were bearing with me a little of the folly, but ye also do bear with me..."
+description: >
+  Read 2 Corinthians 11 Online | O that ye were bearing with me a little of the folly, but ye also do bear with me...
 weight: 11
 ---
 

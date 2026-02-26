@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 16 YLT | Read the Bible Online"
 linkTitle: "16"
-description: "Read Proverbs 16 Online | Of man [are] arrangements of the heart, And from Jehovah an answer of the tongue..."
+description: >
+  Read Proverbs 16 Online | Of man [are] arrangements of the heart, And from Jehovah an answer of the tongue...
 weight: 16
 ---
 

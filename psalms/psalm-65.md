@@ -1,7 +1,8 @@
 ---
 title: "Psalm 65 YLT | Read the Bible Online"
 linkTitle: "65"
-description: "Read Psalm 65 Online | To the Overseer. — A Psalm of David. A Song. To Thee, silence — praise, O God, [is] in Zion, And to Thee is a vow completed..."
+description: >
+  Read Psalm 65 Online | To the Overseer. — A Psalm of David. A Song. To Thee, silence — praise, O God, [is] in Zion, And to Thee is a vow completed...
 weight: 65
 ---
 

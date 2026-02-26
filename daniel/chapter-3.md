@@ -1,7 +1,8 @@
 ---
 title: "Daniel 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Daniel 3 Online | Nebuchadnezzar the king hath made an image of gold, its height sixty cubits, its breadth six cubits; he hath raised it up in the valley of Dura, in the province of Babylon..."
+description: >
+  Read Daniel 3 Online | Nebuchadnezzar the king hath made an image of gold, its height sixty cubits, its breadth six cubits; he hath raised it up in the valley of Dura, in the province of Babylon...
 weight: 3
 ---
 

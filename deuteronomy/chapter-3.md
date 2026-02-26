@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Deuteronomy 3 Online | 'And we turn, and go up the way to Bashan, and Og king of Bashan cometh out to meet us, he and all his people, to battle, [to] Edrei..."
+description: >
+  Read Deuteronomy 3 Online | 'And we turn, and go up the way to Bashan, and Og king of Bashan cometh out to meet us, he and all his people, to battle, [to] Edrei...
 weight: 3
 ---
 

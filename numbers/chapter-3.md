@@ -1,7 +1,8 @@
 ---
 title: "Numbers 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Numbers 3 Online | And these [are] births of Aaron and Moses, in the day of Jehovah's speaking with Moses in mount Sinai..."
+description: >
+  Read Numbers 3 Online | And these [are] births of Aaron and Moses, in the day of Jehovah's speaking with Moses in mount Sinai...
 weight: 3
 ---
 

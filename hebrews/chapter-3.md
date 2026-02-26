@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Hebrews 3 Online | Wherefore, holy brethren, partakers of a heavenly calling, consider the apostle and chief priest of our profession, Christ Jesus..."
+description: >
+  Read Hebrews 3 Online | Wherefore, holy brethren, partakers of a heavenly calling, consider the apostle and chief priest of our profession, Christ Jesus...
 weight: 3
 ---
 

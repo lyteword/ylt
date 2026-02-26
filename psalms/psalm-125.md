@@ -1,7 +1,8 @@
 ---
 title: "Psalm 125 YLT | Read the Bible Online"
 linkTitle: "125"
-description: "Read Psalm 125 Online | A Song of the Ascents. Those trusting in Jehovah [are] as Mount Zion, It is not moved — to the age it abideth..."
+description: >
+  Read Psalm 125 Online | A Song of the Ascents. Those trusting in Jehovah [are] as Mount Zion, It is not moved — to the age it abideth...
 weight: 125
 ---
 

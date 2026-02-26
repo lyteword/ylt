@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read 2 Chronicles 4 Online | And he maketh an altar of brass, twenty cubits its length, and twenty cubits its breadth, and ten cubits its height..."
+description: >
+  Read 2 Chronicles 4 Online | And he maketh an altar of brass, twenty cubits its length, and twenty cubits its breadth, and ten cubits its height...
 weight: 4
 ---
 

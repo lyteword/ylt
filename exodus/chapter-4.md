@@ -1,7 +1,8 @@
 ---
 title: "Exodus 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Exodus 4 Online | And Moses answereth and saith, 'And, if they do not give credence to me, nor hearken to my voice, and say, Jehovah hath not appeared unto thee?..."
+description: >
+  Read Exodus 4 Online | And Moses answereth and saith, 'And, if they do not give credence to me, nor hearken to my voice, and say, Jehovah hath not appeared unto thee?...
 weight: 4
 ---
 

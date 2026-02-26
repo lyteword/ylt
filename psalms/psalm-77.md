@@ -1,7 +1,8 @@
 ---
 title: "Psalm 77 YLT | Read the Bible Online"
 linkTitle: "77"
-description: "Read Psalm 77 Online | To the Overseer, for Jeduthun. — A Psalm of Asaph. My voice [is] to God, and I cry, my voice [is] to God, And He hath given ear unto me..."
+description: >
+  Read Psalm 77 Online | To the Overseer, for Jeduthun. — A Psalm of Asaph. My voice [is] to God, and I cry, my voice [is] to God, And He hath given ear unto me...
 weight: 77
 ---
 

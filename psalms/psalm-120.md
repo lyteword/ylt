@@ -1,7 +1,8 @@
 ---
 title: "Psalm 120 YLT | Read the Bible Online"
 linkTitle: "120"
-description: "Read Psalm 120 Online | A Song of the Ascents. Unto Jehovah in my distress I have called, And He answereth me..."
+description: >
+  Read Psalm 120 Online | A Song of the Ascents. Unto Jehovah in my distress I have called, And He answereth me...
 weight: 120
 ---
 

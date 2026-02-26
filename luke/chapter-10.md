@@ -1,7 +1,8 @@
 ---
 title: "Luke 10 YLT | Read the Bible Online"
 linkTitle: "10"
-description: "Read Luke 10 Online | And after these things, the Lord did appoint also other seventy, and sent them by twos before his face, to every city and place whither he himself was about to come..."
+description: >
+  Read Luke 10 Online | And after these things, the Lord did appoint also other seventy, and sent them by twos before his face, to every city and place whither he himself was about to come...
 weight: 10
 ---
 

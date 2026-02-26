@@ -1,7 +1,8 @@
 ---
 title: "Genesis 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read Genesis 9 Online | And God blesseth Noah, and his sons, and saith to them, 'Be fruitful, and multiply, and fill the earth..."
+description: >
+  Read Genesis 9 Online | And God blesseth Noah, and his sons, and saith to them, 'Be fruitful, and multiply, and fill the earth...
 weight: 9
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 42 YLT | Read the Bible Online"
 linkTitle: "42"
-description: "Read Isaiah 42 Online | Lo, My servant, I take hold on him, My chosen one — My soul hath accepted, I have put My Spirit upon him, Judgment to nations he bringeth forth..."
+description: >
+  Read Isaiah 42 Online | Lo, My servant, I take hold on him, My chosen one — My soul hath accepted, I have put My Spirit upon him, Judgment to nations he bringeth forth...
 weight: 42
 ---
 

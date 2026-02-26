@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read 1 Corinthians 2 Online | And I, having come unto you, brethren, came — not in superiority of discourse or wisdom — declaring to you the testimony of God..."
+description: >
+  Read 1 Corinthians 2 Online | And I, having come unto you, brethren, came — not in superiority of discourse or wisdom — declaring to you the testimony of God...
 weight: 2
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Thessalonians 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read 1 Thessalonians 5 Online | And concerning the times and the seasons, brethren, ye have no need of my writing to you..."
+description: >
+  Read 1 Thessalonians 5 Online | And concerning the times and the seasons, brethren, ye have no need of my writing to you...
 weight: 5
 ---
 

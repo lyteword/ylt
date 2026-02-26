@@ -1,7 +1,8 @@
 ---
 title: "Ecclesiastes 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Ecclesiastes 2 Online | I said in my heart, 'Pray, come, I try thee with mirth, and look thou on gladness;' and lo, even it [is] vanity..."
+description: >
+  Read Ecclesiastes 2 Online | I said in my heart, 'Pray, come, I try thee with mirth, and look thou on gladness;' and lo, even it [is] vanity...
 weight: 2
 ---
 

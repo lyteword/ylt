@@ -1,7 +1,8 @@
 ---
 title: "Joshua 16 YLT | Read the Bible Online"
 linkTitle: "16"
-description: "Read Joshua 16 Online | And the lot for the sons of Joseph goeth out from Jordan [by] Jericho, to the waters of Jericho on the east, to the wilderness going up from Jericho in the hill-country of Beth-El..."
+description: >
+  Read Joshua 16 Online | And the lot for the sons of Joseph goeth out from Jordan [by] Jericho, to the waters of Jericho on the east, to the wilderness going up from Jericho in the hill-country of Beth-El...
 weight: 16
 ---
 

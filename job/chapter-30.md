@@ -1,7 +1,8 @@
 ---
 title: "Job 30 YLT | Read the Bible Online"
 linkTitle: "30"
-description: "Read Job 30 Online | And now, laughed at me, Have the younger in days than I, Whose fathers I have loathed to set With the dogs of my flock..."
+description: >
+  Read Job 30 Online | And now, laughed at me, Have the younger in days than I, Whose fathers I have loathed to set With the dogs of my flock...
 weight: 30
 ---
 

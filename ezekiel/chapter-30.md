@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 30 YLT | Read the Bible Online"
 linkTitle: "30"
-description: "Read Ezekiel 30 Online | And there is a word of Jehovah unto me, saying..."
+description: >
+  Read Ezekiel 30 Online | And there is a word of Jehovah unto me, saying...
 weight: 30
 ---
 

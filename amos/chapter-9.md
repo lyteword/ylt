@@ -1,7 +1,8 @@
 ---
 title: "Amos 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read Amos 9 Online | I have seen the Lord standing by the altar, and He saith: 'Smite the knob, and the thresholds shake, And cut them off by the head — all of them, And their posterity with a sword I do slay, Not flee to them doth the fleer, Nor escape to them doth a fugitive..."
+description: >
+  Read Amos 9 Online | I have seen the Lord standing by the altar, and He saith: 'Smite the knob, and the thresholds shake, And cut them off by the head — all of them, And their posterity with a sword I do slay, Not flee to them doth the fleer, Nor escape to them doth a fugitive...
 weight: 9
 ---
 

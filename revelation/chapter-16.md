@@ -1,7 +1,8 @@
 ---
 title: "Revelation 16 YLT | Read the Bible Online"
 linkTitle: "16"
-description: "Read Revelation 16 Online | And I heard a great voice out of the sanctuary saying to the seven messengers, 'Go away, and pour out the vials of the wrath of God to the earth;..."
+description: >
+  Read Revelation 16 Online | And I heard a great voice out of the sanctuary saying to the seven messengers, 'Go away, and pour out the vials of the wrath of God to the earth;...
 weight: 16
 ---
 

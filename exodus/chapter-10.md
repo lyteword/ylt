@@ -1,7 +1,8 @@
 ---
 title: "Exodus 10 YLT | Read the Bible Online"
 linkTitle: "10"
-description: "Read Exodus 10 Online | And Jehovah saith unto Moses, 'Go in unto Pharaoh, for I have declared hard his heart, and the heart of his servants, so that I set these My signs in their midst..."
+description: >
+  Read Exodus 10 Online | And Jehovah saith unto Moses, 'Go in unto Pharaoh, for I have declared hard his heart, and the heart of his servants, so that I set these My signs in their midst...
 weight: 10
 ---
 

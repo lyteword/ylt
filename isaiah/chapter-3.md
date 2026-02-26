@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Isaiah 3 Online | For, lo, the Lord, Jehovah of Hosts, Is turning aside from Jerusalem, And from Judah, stay and staff, Every stay of bread, and every stay of water..."
+description: >
+  Read Isaiah 3 Online | For, lo, the Lord, Jehovah of Hosts, Is turning aside from Jerusalem, And from Judah, stay and staff, Every stay of bread, and every stay of water...
 weight: 3
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Proverbs 2 Online | My son, if thou dost accept my sayings, And my commands dost lay up with thee..."
+description: >
+  Read Proverbs 2 Online | My son, if thou dost accept my sayings, And my commands dost lay up with thee...
 weight: 2
 ---
 

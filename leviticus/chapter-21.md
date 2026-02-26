@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 21 YLT | Read the Bible Online"
 linkTitle: "21"
-description: "Read Leviticus 21 Online | And Jehovah saith unto Moses, 'Speak unto the priests, sons of Aaron, and thou hast said unto them, For [any] person [a priest] is not defiled among his people..."
+description: >
+  Read Leviticus 21 Online | And Jehovah saith unto Moses, 'Speak unto the priests, sons of Aaron, and thou hast said unto them, For [any] person [a priest] is not defiled among his people...
 weight: 21
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Hosea 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Hosea 3 Online | And Jehovah saith unto me: 'Again, go, love a woman, loved of a friend, and an adulteress, like the loved of Jehovah, the sons of Israel, and they are turning unto other gods, and are lovers of grape-cakes...."
+description: >
+  Read Hosea 3 Online | And Jehovah saith unto me: 'Again, go, love a woman, loved of a friend, and an adulteress, like the loved of Jehovah, the sons of Israel, and they are turning unto other gods, and are lovers of grape-cakes....
 weight: 3
 ---
 

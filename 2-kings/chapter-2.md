@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read 2 Kings 2 Online | And it cometh to pass, at Jehovah's taking up Elijah in a whirlwind to the heavens, that Elijah goeth, and Elisha, from Gilgal..."
+description: >
+  Read 2 Kings 2 Online | And it cometh to pass, at Jehovah's taking up Elijah in a whirlwind to the heavens, that Elijah goeth, and Elisha, from Gilgal...
 weight: 2
 ---
 

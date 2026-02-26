@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 18 YLT | Read the Bible Online"
 linkTitle: "18"
-description: "Read 1 Kings 18 Online | And the days are many, and the word of Jehovah hath been unto Elijah in the third year, saying, 'Go, appear unto Ahab, and I give rain on the face of the ground;..."
+description: >
+  Read 1 Kings 18 Online | And the days are many, and the word of Jehovah hath been unto Elijah in the third year, saying, 'Go, appear unto Ahab, and I give rain on the face of the ground;...
 weight: 18
 ---
 

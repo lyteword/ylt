@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 43 YLT | Read the Bible Online"
 linkTitle: "43"
-description: "Read Isaiah 43 Online | And now, thus said Jehovah, Thy Creator, O Jacob, and thy Fashioner, O Israel, Be not afraid, for I have redeemed thee, I have called on thy name — thou [art] Mine..."
+description: >
+  Read Isaiah 43 Online | And now, thus said Jehovah, Thy Creator, O Jacob, and thy Fashioner, O Israel, Be not afraid, for I have redeemed thee, I have called on thy name — thou [art] Mine...
 weight: 43
 ---
 

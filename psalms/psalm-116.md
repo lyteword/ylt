@@ -1,7 +1,8 @@
 ---
 title: "Psalm 116 YLT | Read the Bible Online"
 linkTitle: "116"
-description: "Read Psalm 116 Online | I have loved, because Jehovah heareth My voice, my supplication..."
+description: >
+  Read Psalm 116 Online | I have loved, because Jehovah heareth My voice, my supplication...
 weight: 116
 ---
 

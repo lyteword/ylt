@@ -1,7 +1,8 @@
 ---
 title: "Judges 18 YLT | Read the Bible Online"
 linkTitle: "18"
-description: "Read Judges 18 Online | In those days there is no king in Israel, and in those days the tribe of the Danite is seeking for itself an inheritance to inhabit, for [that] hath not fallen to it unto that day in the midst of the tribes of Israel by inheritance..."
+description: >
+  Read Judges 18 Online | In those days there is no king in Israel, and in those days the tribe of the Danite is seeking for itself an inheritance to inhabit, for [that] hath not fallen to it unto that day in the midst of the tribes of Israel by inheritance...
 weight: 18
 ---
 

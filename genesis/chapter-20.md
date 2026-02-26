@@ -1,7 +1,8 @@
 ---
 title: "Genesis 20 YLT | Read the Bible Online"
 linkTitle: "20"
-description: "Read Genesis 20 Online | And Abraham journeyeth from thence toward the land of the south, and dwelleth between Kadesh and Shur, and sojourneth in Gerar..."
+description: >
+  Read Genesis 20 Online | And Abraham journeyeth from thence toward the land of the south, and dwelleth between Kadesh and Shur, and sojourneth in Gerar...
 weight: 20
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 68 YLT | Read the Bible Online"
 linkTitle: "68"
-description: "Read Psalm 68 Online | To the Overseer. — A Psalm, a song of David. Rise doth God — scattered are His enemies! And those hating Him flee from His face..."
+description: >
+  Read Psalm 68 Online | To the Overseer. — A Psalm, a song of David. Rise doth God — scattered are His enemies! And those hating Him flee from His face...
 weight: 68
 ---
 

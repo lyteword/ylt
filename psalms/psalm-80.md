@@ -1,7 +1,8 @@
 ---
 title: "Psalm 80 YLT | Read the Bible Online"
 linkTitle: "80"
-description: "Read Psalm 80 Online | To the Overseer. — 'On the Lilies.' A testimony of Asaph. — A Psalm. Shepherd of Israel, give ear, Leading Joseph as a flock, Inhabiting the cherubs — shine forth..."
+description: >
+  Read Psalm 80 Online | To the Overseer. — 'On the Lilies.' A testimony of Asaph. — A Psalm. Shepherd of Israel, give ear, Leading Joseph as a flock, Inhabiting the cherubs — shine forth...
 weight: 80
 ---
 

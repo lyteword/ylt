@@ -1,7 +1,8 @@
 ---
 title: "Hosea 14 YLT | Read the Bible Online"
 linkTitle: "14"
-description: "Read Hosea 14 Online | Turn back, O Israel, unto Jehovah thy God, For thou hast stumbled by thine iniquity..."
+description: >
+  Read Hosea 14 Online | Turn back, O Israel, unto Jehovah thy God, For thou hast stumbled by thine iniquity...
 weight: 14
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 60 YLT | Read the Bible Online"
 linkTitle: "60"
-description: "Read Psalm 60 Online | To the Overseer. — 'Concerning the Lily of Testimony,' a secret treasure of David, to teach, in his striving with Aram-Naharaim, and with Aram-Zobah, and Joab turneth back and smiteth Edom in the valley of Salt — twelve thousand. O God, Thou hadst cast us off, Thou hadst broken us — hadst been angry! — Thou dost turn back to us..."
+description: >
+  Read Psalm 60 Online | To the Overseer. — 'Concerning the Lily of Testimony,' a secret treasure of David, to teach, in his striving with Aram-Naharaim, and with Aram-Zobah, and Joab turneth back and smiteth Edom in the valley of Salt — twelve thousand. O God, Thou hadst cast us off, Thou hadst broken us — hadst been angry! — Thou dost turn back to us...
 weight: 60
 ---
 

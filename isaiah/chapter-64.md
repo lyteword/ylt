@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 64 YLT | Read the Bible Online"
 linkTitle: "64"
-description: "Read Isaiah 64 Online | Didst Thou not rend the heavens? Thou didst come down, From thy presence did mountains flow..."
+description: >
+  Read Isaiah 64 Online | Didst Thou not rend the heavens? Thou didst come down, From thy presence did mountains flow...
 weight: 64
 ---
 

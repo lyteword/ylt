@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 6 YLT | Read the Bible Online"
 linkTitle: "6"
-description: "Read Zechariah 6 Online | And I turn back, and lift up mine eyes, and look, and lo, four chariots are coming forth from between two of the mountains, and the mountains [are] mountains of brass..."
+description: >
+  Read Zechariah 6 Online | And I turn back, and lift up mine eyes, and look, and lo, four chariots are coming forth from between two of the mountains, and the mountains [are] mountains of brass...
 weight: 6
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Judges 15 YLT | Read the Bible Online"
 linkTitle: "15"
-description: "Read Judges 15 Online | And it cometh to pass, after [some] days, in the days of wheat-harvest, that Samson looketh after his wife, with a kid of the goats, and saith, 'I go in unto my wife, to the inner chamber;' and her father hath not permitted him to go in..."
+description: >
+  Read Judges 15 Online | And it cometh to pass, after [some] days, in the days of wheat-harvest, that Samson looketh after his wife, with a kid of the goats, and saith, 'I go in unto my wife, to the inner chamber;' and her father hath not permitted him to go in...
 weight: 15
 ---
 

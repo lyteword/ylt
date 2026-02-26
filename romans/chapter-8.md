@@ -1,7 +1,8 @@
 ---
 title: "Romans 8 YLT | Read the Bible Online"
 linkTitle: "8"
-description: "Read Romans 8 Online | There is, then, now no condemnation to those in Christ Jesus, who walk not according to the flesh, but according to the Spirit..."
+description: >
+  Read Romans 8 Online | There is, then, now no condemnation to those in Christ Jesus, who walk not according to the flesh, but according to the Spirit...
 weight: 8
 ---
 

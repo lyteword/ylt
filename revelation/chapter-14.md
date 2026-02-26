@@ -1,7 +1,8 @@
 ---
 title: "Revelation 14 YLT | Read the Bible Online"
 linkTitle: "14"
-description: "Read Revelation 14 Online | And I saw, and lo, a Lamb having stood upon the mount Sion, and with him an hundred forty-four thousands, having the name of his Father written upon their foreheads..."
+description: >
+  Read Revelation 14 Online | And I saw, and lo, a Lamb having stood upon the mount Sion, and with him an hundred forty-four thousands, having the name of his Father written upon their foreheads...
 weight: 14
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Judges 17 YLT | Read the Bible Online"
 linkTitle: "17"
-description: "Read Judges 17 Online | And there is a man of the hill-country of Ephraim, and his name [is] Micah..."
+description: >
+  Read Judges 17 Online | And there is a man of the hill-country of Ephraim, and his name [is] Micah...
 weight: 17
 ---
 

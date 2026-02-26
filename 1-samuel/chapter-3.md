@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read 1 Samuel 3 Online | And the youth Samuel is serving Jehovah before Eli, and the word of Jehovah hath been precious in those days — there is no vision broken forth..."
+description: >
+  Read 1 Samuel 3 Online | And the youth Samuel is serving Jehovah before Eli, and the word of Jehovah hath been precious in those days — there is no vision broken forth...
 weight: 3
 ---
 

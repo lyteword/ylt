@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Isaiah 4 Online | And taken hold have seven women on one man, In that day, saying, 'Our own bread we do eat, And our own raiment we put on, Only, let thy name be called over us, Remove thou our reproach...."
+description: >
+  Read Isaiah 4 Online | And taken hold have seven women on one man, In that day, saying, 'Our own bread we do eat, And our own raiment we put on, Only, let thy name be called over us, Remove thou our reproach....
 weight: 4
 ---
 

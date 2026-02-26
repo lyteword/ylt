@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 8 YLT | Read the Bible Online"
 linkTitle: "8"
-description: "Read Ezekiel 8 Online | And it cometh to pass, in the sixth year, in the sixth [month], in the fifth of the month, I am sitting in my house, and elders of Judah are sitting before me, and fall on me there doth a hand of the Lord Jehovah..."
+description: >
+  Read Ezekiel 8 Online | And it cometh to pass, in the sixth year, in the sixth [month], in the fifth of the month, I am sitting in my house, and elders of Judah are sitting before me, and fall on me there doth a hand of the Lord Jehovah...
 weight: 8
 ---
 

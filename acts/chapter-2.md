@@ -1,7 +1,8 @@
 ---
 title: "Acts 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Acts 2 Online | And in the day of the Pentecost being fulfilled, they were all with one accord at the same place..."
+description: >
+  Read Acts 2 Online | And in the day of the Pentecost being fulfilled, they were all with one accord at the same place...
 weight: 2
 ---
 

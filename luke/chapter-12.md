@@ -1,7 +1,8 @@
 ---
 title: "Luke 12 YLT | Read the Bible Online"
 linkTitle: "12"
-description: "Read Luke 12 Online | At which time the myriads of the multitude having been gathered together, so as to tread upon one another, he began to say unto his disciples, first, 'Take heed to yourselves of the leaven of the Pharisees, which is hypocrisy..."
+description: >
+  Read Luke 12 Online | At which time the myriads of the multitude having been gathered together, so as to tread upon one another, he began to say unto his disciples, first, 'Take heed to yourselves of the leaven of the Pharisees, which is hypocrisy...
 weight: 12
 ---
 

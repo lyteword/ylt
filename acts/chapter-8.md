@@ -1,7 +1,8 @@
 ---
 title: "Acts 8 YLT | Read the Bible Online"
 linkTitle: "8"
-description: "Read Acts 8 Online | And Saul was assenting to his death, and there came in that day a great persecution upon the assembly in Jerusalem, all also were scattered abroad in the regions of Judea and Samaria, except the apostles..."
+description: >
+  Read Acts 8 Online | And Saul was assenting to his death, and there came in that day a great persecution upon the assembly in Jerusalem, all also were scattered abroad in the regions of Judea and Samaria, except the apostles...
 weight: 8
 ---
 

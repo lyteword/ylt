@@ -1,7 +1,8 @@
 ---
 title: "Psalm 144 YLT | Read the Bible Online"
 linkTitle: "144"
-description: "Read Psalm 144 Online | By David. Blessed [is] Jehovah my rock, who is teaching My hands for war, my fingers for battle..."
+description: >
+  Read Psalm 144 Online | By David. Blessed [is] Jehovah my rock, who is teaching My hands for war, my fingers for battle...
 weight: 144
 ---
 

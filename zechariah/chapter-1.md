@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Zechariah 1 Online | In the eighth month, in the second year of Darius, hath a word of Jehovah been unto Zechariah, son of Berechiah, son of Iddo, the prophet, saying..."
+description: >
+  Read Zechariah 1 Online | In the eighth month, in the second year of Darius, hath a word of Jehovah been unto Zechariah, son of Berechiah, son of Iddo, the prophet, saying...
 weight: 1
 ---
 

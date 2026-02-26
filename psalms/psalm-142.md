@@ -1,7 +1,8 @@
 ---
 title: "Psalm 142 YLT | Read the Bible Online"
 linkTitle: "142"
-description: "Read Psalm 142 Online | An Instruction of David, a Prayer when he is in the cave. My voice [is] unto Jehovah, I cry, My voice [is] unto Jehovah, I entreat grace..."
+description: >
+  Read Psalm 142 Online | An Instruction of David, a Prayer when he is in the cave. My voice [is] unto Jehovah, I cry, My voice [is] unto Jehovah, I entreat grace...
 weight: 142
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Amos 8 YLT | Read the Bible Online"
 linkTitle: "8"
-description: "Read Amos 8 Online | Thus hath the Lord Jehovah shewed me, and, lo, a basket of summer-fruit..."
+description: >
+  Read Amos 8 Online | Thus hath the Lord Jehovah shewed me, and, lo, a basket of summer-fruit...
 weight: 8
 ---
 

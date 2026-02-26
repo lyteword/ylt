@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 17 YLT | Read the Bible Online"
 linkTitle: "17"
-description: "Read 2 Chronicles 17 Online | And Jehoshaphat his son reigneth in his stead, and he strengtheneth himself against Israel..."
+description: >
+  Read 2 Chronicles 17 Online | And Jehoshaphat his son reigneth in his stead, and he strengtheneth himself against Israel...
 weight: 17
 ---
 

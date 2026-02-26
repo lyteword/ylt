@@ -1,7 +1,8 @@
 ---
 title: "Jonah 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Jonah 2 Online | And Jonah prayeth unto Jehovah his God from the bowels of the fish..."
+description: >
+  Read Jonah 2 Online | And Jonah prayeth unto Jehovah his God from the bowels of the fish...
 weight: 2
 ---
 

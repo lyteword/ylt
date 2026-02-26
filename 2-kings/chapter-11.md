@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 11 YLT | Read the Bible Online"
 linkTitle: "11"
-description: "Read 2 Kings 11 Online | And Athaliah [is] mother of Ahaziah, and she hath seen that her son [is] dead, and she riseth, and destroyeth all the seed of the kingdom..."
+description: >
+  Read 2 Kings 11 Online | And Athaliah [is] mother of Ahaziah, and she hath seen that her son [is] dead, and she riseth, and destroyeth all the seed of the kingdom...
 weight: 11
 ---
 

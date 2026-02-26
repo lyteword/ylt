@@ -1,7 +1,8 @@
 ---
 title: "Revelation 21 YLT | Read the Bible Online"
 linkTitle: "21"
-description: "Read Revelation 21 Online | And I saw a new heaven and a new earth, for the first heaven and the first earth did pass away, and the sea is not any more..."
+description: >
+  Read Revelation 21 Online | And I saw a new heaven and a new earth, for the first heaven and the first earth did pass away, and the sea is not any more...
 weight: 21
 ---
 

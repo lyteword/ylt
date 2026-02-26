@@ -1,7 +1,8 @@
 ---
 title: "Genesis 23 YLT | Read the Bible Online"
 linkTitle: "23"
-description: "Read Genesis 23 Online | And the life of Sarah is a hundred and twenty and seven years — years of the life of Sarah..."
+description: >
+  Read Genesis 23 Online | And the life of Sarah is a hundred and twenty and seven years — years of the life of Sarah...
 weight: 23
 ---
 

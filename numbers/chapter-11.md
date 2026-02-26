@@ -1,7 +1,8 @@
 ---
 title: "Numbers 11 YLT | Read the Bible Online"
 linkTitle: "11"
-description: "Read Numbers 11 Online | And the people is evil, as those sighing habitually in the ears of Jehovah, and Jehovah heareth, and His anger burneth, and the fire of Jehovah burneth among them, and consumeth in the extremity of the camp..."
+description: >
+  Read Numbers 11 Online | And the people is evil, as those sighing habitually in the ears of Jehovah, and Jehovah heareth, and His anger burneth, and the fire of Jehovah burneth among them, and consumeth in the extremity of the camp...
 weight: 11
 ---
 

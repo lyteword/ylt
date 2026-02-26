@@ -1,7 +1,8 @@
 ---
 title: "Judges 21 YLT | Read the Bible Online"
 linkTitle: "21"
-description: "Read Judges 21 Online | And the men of Israel have sworn in Mizpeh, saying, 'None of us doth give his daughter to Benjamin for a wife...."
+description: >
+  Read Judges 21 Online | And the men of Israel have sworn in Mizpeh, saying, 'None of us doth give his daughter to Benjamin for a wife....
 weight: 21
 ---
 

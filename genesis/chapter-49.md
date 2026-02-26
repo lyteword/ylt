@@ -1,7 +1,8 @@
 ---
 title: "Genesis 49 YLT | Read the Bible Online"
 linkTitle: "49"
-description: "Read Genesis 49 Online | And Jacob calleth unto his sons and saith, 'Be gathered together, and I declare to you that which doth happen with you in the latter end of the days..."
+description: >
+  Read Genesis 49 Online | And Jacob calleth unto his sons and saith, 'Be gathered together, and I declare to you that which doth happen with you in the latter end of the days...
 weight: 49
 ---
 

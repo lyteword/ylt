@@ -1,7 +1,8 @@
 ---
 title: "Numbers 34 YLT | Read the Bible Online"
 linkTitle: "34"
-description: "Read Numbers 34 Online | And Jehovah speaketh unto Moses, saying..."
+description: >
+  Read Numbers 34 Online | And Jehovah speaketh unto Moses, saying...
 weight: 34
 ---
 

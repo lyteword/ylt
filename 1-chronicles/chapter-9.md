@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read 1 Chronicles 9 Online | And all Israel have reckoned themselves by genealogy, and lo, they are written on the book of the kings of Israel and Judah — they were removed to Babylon for their trespass..."
+description: >
+  Read 1 Chronicles 9 Online | And all Israel have reckoned themselves by genealogy, and lo, they are written on the book of the kings of Israel and Judah — they were removed to Babylon for their trespass...
 weight: 9
 ---
 

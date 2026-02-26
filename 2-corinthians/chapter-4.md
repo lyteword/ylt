@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read 2 Corinthians 4 Online | Because of this, having this ministration, according as we did receive kindness, we do not faint..."
+description: >
+  Read 2 Corinthians 4 Online | Because of this, having this ministration, according as we did receive kindness, we do not faint...
 weight: 4
 ---
 

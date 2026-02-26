@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 44 YLT | Read the Bible Online"
 linkTitle: "44"
-description: "Read Isaiah 44 Online | And now, hear, O Jacob, My servant, And Israel, whom I have fixed on..."
+description: >
+  Read Isaiah 44 Online | And now, hear, O Jacob, My servant, And Israel, whom I have fixed on...
 weight: 44
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Numbers 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Numbers 1 Online | And Jehovah speaketh unto Moses in the wilderness of Sinai, in the tent of meeting, on the first of the second month, in the second year of their going out of the land of Egypt, saying..."
+description: >
+  Read Numbers 1 Online | And Jehovah speaketh unto Moses in the wilderness of Sinai, in the tent of meeting, on the first of the second month, in the second year of their going out of the land of Egypt, saying...
 weight: 1
 ---
 

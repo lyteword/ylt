@@ -1,7 +1,8 @@
 ---
 title: "Job 37 YLT | Read the Bible Online"
 linkTitle: "37"
-description: "Read Job 37 Online | Also, at this my heart trembleth, And it moveth from its place..."
+description: >
+  Read Job 37 Online | Also, at this my heart trembleth, And it moveth from its place...
 weight: 37
 ---
 

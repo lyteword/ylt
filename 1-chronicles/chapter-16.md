@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 16 YLT | Read the Bible Online"
 linkTitle: "16"
-description: "Read 1 Chronicles 16 Online | And they bring in the ark of God, and set it up in the midst of the tent that David hath stretched out for it, and they bring near burnt-offerings and peace-offerings before God..."
+description: >
+  Read 1 Chronicles 16 Online | And they bring in the ark of God, and set it up in the midst of the tent that David hath stretched out for it, and they bring near burnt-offerings and peace-offerings before God...
 weight: 16
 ---
 

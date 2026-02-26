@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read Ezekiel 7 Online | And there is a word of Jehovah unto me, saying, 'And thou, son of man, Thus said the Lord Jehovah to the ground of Israel..."
+description: >
+  Read Ezekiel 7 Online | And there is a word of Jehovah unto me, saying, 'And thou, son of man, Thus said the Lord Jehovah to the ground of Israel...
 weight: 7
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Ezekiel 2 Online | It [is] the appearance of the likeness of the honour of Jehovah, and I see, and fall on my face, and I hear a voice speaking, and He saith unto me, 'Son of man, stand on thy feet, and I speak with thee...."
+description: >
+  Read Ezekiel 2 Online | It [is] the appearance of the likeness of the honour of Jehovah, and I see, and fall on my face, and I hear a voice speaking, and He saith unto me, 'Son of man, stand on thy feet, and I speak with thee....
 weight: 2
 ---
 

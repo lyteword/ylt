@@ -1,7 +1,8 @@
 ---
 title: "1 Peter 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read 1 Peter 2 Online | Having put aside, then, all evil, and all guile, and hypocrisies, and envyings, and all evil speakings..."
+description: >
+  Read 1 Peter 2 Online | Having put aside, then, all evil, and all guile, and hypocrisies, and envyings, and all evil speakings...
 weight: 2
 ---
 

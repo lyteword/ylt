@@ -1,7 +1,8 @@
 ---
 title: "Psalm 141 YLT | Read the Bible Online"
 linkTitle: "141"
-description: "Read Psalm 141 Online | A Psalm, by David. O Jehovah, I have called Thee, haste to me, Give ear [to] my voice when I call to Thee..."
+description: >
+  Read Psalm 141 Online | A Psalm, by David. O Jehovah, I have called Thee, haste to me, Give ear [to] my voice when I call to Thee...
 weight: 141
 ---
 

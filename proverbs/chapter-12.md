@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 12 YLT | Read the Bible Online"
 linkTitle: "12"
-description: "Read Proverbs 12 Online | Whoso is loving instruction, is loving knowledge, And whoso is hating reproof [is] brutish..."
+description: >
+  Read Proverbs 12 Online | Whoso is loving instruction, is loving knowledge, And whoso is hating reproof [is] brutish...
 weight: 12
 ---
 

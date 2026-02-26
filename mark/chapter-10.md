@@ -1,7 +1,8 @@
 ---
 title: "Mark 10 YLT | Read the Bible Online"
 linkTitle: "10"
-description: "Read Mark 10 Online | And having risen thence, he doth come to the coasts of Judea, through the other side of the Jordan, and again do multitudes come together unto him, and, as he had been accustomed, again he was teaching them..."
+description: >
+  Read Mark 10 Online | And having risen thence, he doth come to the coasts of Judea, through the other side of the Jordan, and again do multitudes come together unto him, and, as he had been accustomed, again he was teaching them...
 weight: 10
 ---
 

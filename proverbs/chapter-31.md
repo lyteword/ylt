@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 31 YLT | Read the Bible Online"
 linkTitle: "31"
-description: "Read Proverbs 31 Online | Words of Lemuel a king, a declaration that his mother taught him..."
+description: >
+  Read Proverbs 31 Online | Words of Lemuel a king, a declaration that his mother taught him...
 weight: 31
 ---
 

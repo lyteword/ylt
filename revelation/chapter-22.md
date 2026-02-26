@@ -1,7 +1,8 @@
 ---
 title: "Revelation 22 YLT | Read the Bible Online"
 linkTitle: "22"
-description: "Read Revelation 22 Online | And he shewed me a pure river of water of life, bright as crystal, going forth out of the throne of God and of the Lamb..."
+description: >
+  Read Revelation 22 Online | And he shewed me a pure river of water of life, bright as crystal, going forth out of the throne of God and of the Lamb...
 weight: 22
 ---
 

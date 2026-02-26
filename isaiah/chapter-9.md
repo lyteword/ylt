@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read Isaiah 9 Online | As the former time made light The land of Zebulun and the land of Naphtali, So the latter hath honoured the way of the sea, Beyond the Jordan, Galilee of the nations..."
+description: >
+  Read Isaiah 9 Online | As the former time made light The land of Zebulun and the land of Naphtali, So the latter hath honoured the way of the sea, Beyond the Jordan, Galilee of the nations...
 weight: 9
 ---
 

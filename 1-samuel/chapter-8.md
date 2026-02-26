@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 8 YLT | Read the Bible Online"
 linkTitle: "8"
-description: "Read 1 Samuel 8 Online | And it cometh to pass, when Samuel [is] aged, that he maketh his sons judges over Israel..."
+description: >
+  Read 1 Samuel 8 Online | And it cometh to pass, when Samuel [is] aged, that he maketh his sons judges over Israel...
 weight: 8
 ---
 

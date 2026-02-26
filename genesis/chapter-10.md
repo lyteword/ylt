@@ -1,7 +1,8 @@
 ---
 title: "Genesis 10 YLT | Read the Bible Online"
 linkTitle: "10"
-description: "Read Genesis 10 Online | And these [are] births of the sons of Noah, Shem, Ham, and Japheth; and born to them are sons after the deluge..."
+description: >
+  Read Genesis 10 Online | And these [are] births of the sons of Noah, Shem, Ham, and Japheth; and born to them are sons after the deluge...
 weight: 10
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read 2 Chronicles 1 Online | And strengthen himself doth Solomon son of David over his kingdom, and Jehovah his God [is] with him, and maketh him exceedingly great..."
+description: >
+  Read 2 Chronicles 1 Online | And strengthen himself doth Solomon son of David over his kingdom, and Jehovah his God [is] with him, and maketh him exceedingly great...
 weight: 1
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Genesis 28 YLT | Read the Bible Online"
 linkTitle: "28"
-description: "Read Genesis 28 Online | And Isaac calleth unto Jacob, and blesseth him, and commandeth him, and saith to him, 'Thou dost not take a wife of the daughters of Caanan..."
+description: >
+  Read Genesis 28 Online | And Isaac calleth unto Jacob, and blesseth him, and commandeth him, and saith to him, 'Thou dost not take a wife of the daughters of Caanan...
 weight: 28
 ---
 

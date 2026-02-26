@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 27 YLT | Read the Bible Online"
 linkTitle: "27"
-description: "Read Proverbs 27 Online | Boast not thyself of to-morrow, For thou knowest not what a day bringeth forth..."
+description: >
+  Read Proverbs 27 Online | Boast not thyself of to-morrow, For thou knowest not what a day bringeth forth...
 weight: 27
 ---
 

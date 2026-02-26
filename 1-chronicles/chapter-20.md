@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 20 YLT | Read the Bible Online"
 linkTitle: "20"
-description: "Read 1 Chronicles 20 Online | And it cometh to pass, at the time of the turn of the year — at the time of the going out of the messengers — that Joab leadeth out the force of the host, and destroyeth the land of the sons of Ammon, and cometh in and beseigeth Rabbah — David is abiding in Jerusalem — and Joab smiteth Rabbah, and breaketh it down..."
+description: >
+  Read 1 Chronicles 20 Online | And it cometh to pass, at the time of the turn of the year — at the time of the going out of the messengers — that Joab leadeth out the force of the host, and destroyeth the land of the sons of Ammon, and cometh in and beseigeth Rabbah — David is abiding in Jerusalem — and Joab smiteth Rabbah, and breaketh it down...
 weight: 20
 ---
 

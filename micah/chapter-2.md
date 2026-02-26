@@ -1,7 +1,8 @@
 ---
 title: "Micah 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Micah 2 Online | Woe [to] those devising iniquity, And working evil on their beds, In the light of the morning they do it, For their hand is — to God..."
+description: >
+  Read Micah 2 Online | Woe [to] those devising iniquity, And working evil on their beds, In the light of the morning they do it, For their hand is — to God...
 weight: 2
 ---
 

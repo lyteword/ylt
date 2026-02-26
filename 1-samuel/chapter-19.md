@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 19 YLT | Read the Bible Online"
 linkTitle: "19"
-description: "Read 1 Samuel 19 Online | And Saul speaketh unto Jonathan his son, and unto all his servants, to put David to death..."
+description: >
+  Read 1 Samuel 19 Online | And Saul speaketh unto Jonathan his son, and unto all his servants, to put David to death...
 weight: 19
 ---
 

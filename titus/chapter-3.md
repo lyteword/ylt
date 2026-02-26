@@ -1,7 +1,8 @@
 ---
 title: "Titus 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Titus 3 Online | Remind them to be subject to principalities and authorities, to obey rule, unto every good work to be ready..."
+description: >
+  Read Titus 3 Online | Remind them to be subject to principalities and authorities, to obey rule, unto every good work to be ready...
 weight: 3
 ---
 

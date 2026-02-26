@@ -1,7 +1,8 @@
 ---
 title: "Psalm 39 YLT | Read the Bible Online"
 linkTitle: "39"
-description: "Read Psalm 39 Online | To the Overseer, to Jeduthun. — A Psalm of David. I have said, 'I observe my ways, Against sinning with my tongue, I keep for my mouth a curb, while the wicked [is] before me...."
+description: >
+  Read Psalm 39 Online | To the Overseer, to Jeduthun. — A Psalm of David. I have said, 'I observe my ways, Against sinning with my tongue, I keep for my mouth a curb, while the wicked [is] before me....
 weight: 39
 ---
 

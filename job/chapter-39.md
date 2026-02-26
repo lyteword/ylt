@@ -1,7 +1,8 @@
 ---
 title: "Job 39 YLT | Read the Bible Online"
 linkTitle: "39"
-description: "Read Job 39 Online | Hast thou known the time of The bearing of the wild goats of the rock? The bringing forth of hinds thou dost mark..."
+description: >
+  Read Job 39 Online | Hast thou known the time of The bearing of the wild goats of the rock? The bringing forth of hinds thou dost mark...
 weight: 39
 ---
 

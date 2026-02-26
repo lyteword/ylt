@@ -1,7 +1,8 @@
 ---
 title: "Obadiah 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Obadiah 1 Online | Thus said the Lord Jehovah to Edom, A report we have heard from Jehovah, And an ambassador among nations was sent, 'Rise, yea, let us rise against her for battle...."
+description: >
+  Read Obadiah 1 Online | Thus said the Lord Jehovah to Edom, A report we have heard from Jehovah, And an ambassador among nations was sent, 'Rise, yea, let us rise against her for battle....
 weight: 1
 ---
 

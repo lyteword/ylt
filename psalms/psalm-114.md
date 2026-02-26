@@ -1,7 +1,8 @@
 ---
 title: "Psalm 114 YLT | Read the Bible Online"
 linkTitle: "114"
-description: "Read Psalm 114 Online | In the going out of Israel from Egypt, The house of Jacob from a strange people..."
+description: >
+  Read Psalm 114 Online | In the going out of Israel from Egypt, The house of Jacob from a strange people...
 weight: 114
 ---
 

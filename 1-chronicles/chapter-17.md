@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 17 YLT | Read the Bible Online"
 linkTitle: "17"
-description: "Read 1 Chronicles 17 Online | And it cometh to pass as David sat in his house, that David saith unto Nathan the prophet, 'Lo, I am dwelling in a house of cedars, and the ark of the covenant of Jehovah [is] under curtains;..."
+description: >
+  Read 1 Chronicles 17 Online | And it cometh to pass as David sat in his house, that David saith unto Nathan the prophet, 'Lo, I am dwelling in a house of cedars, and the ark of the covenant of Jehovah [is] under curtains;...
 weight: 17
 ---
 

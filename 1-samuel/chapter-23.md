@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 23 YLT | Read the Bible Online"
 linkTitle: "23"
-description: "Read 1 Samuel 23 Online | And they declare to David, saying, 'Lo, the Philistines are fighting against Keilah, and they are spoiling the threshing-floors...."
+description: >
+  Read 1 Samuel 23 Online | And they declare to David, saying, 'Lo, the Philistines are fighting against Keilah, and they are spoiling the threshing-floors....
 weight: 23
 ---
 

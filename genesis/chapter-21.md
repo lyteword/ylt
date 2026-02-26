@@ -1,7 +1,8 @@
 ---
 title: "Genesis 21 YLT | Read the Bible Online"
 linkTitle: "21"
-description: "Read Genesis 21 Online | And Jehovah hath looked after Sarah as He hath said, and Jehovah doth to Sarah as He hath spoken..."
+description: >
+  Read Genesis 21 Online | And Jehovah hath looked after Sarah as He hath said, and Jehovah doth to Sarah as He hath spoken...
 weight: 21
 ---
 

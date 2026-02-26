@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 26 YLT | Read the Bible Online"
 linkTitle: "26"
-description: "Read 1 Samuel 26 Online | And the Ziphites come in unto Saul, at Gibeah, saying, 'Is not David hiding himself in the height of Hachilah, on the front of the desert?..."
+description: >
+  Read 1 Samuel 26 Online | And the Ziphites come in unto Saul, at Gibeah, saying, 'Is not David hiding himself in the height of Hachilah, on the front of the desert?...
 weight: 26
 ---
 

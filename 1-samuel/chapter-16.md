@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 16 YLT | Read the Bible Online"
 linkTitle: "16"
-description: "Read 1 Samuel 16 Online | And Jehovah saith unto Samuel, 'Till when art thou mourning for Saul, and I have rejected him from reigning over Israel? fill thy horn with oil, and go, I send thee unto Jesse the Beth-Lehemite, for I have seen among his sons for Myself a king..."
+description: >
+  Read 1 Samuel 16 Online | And Jehovah saith unto Samuel, 'Till when art thou mourning for Saul, and I have rejected him from reigning over Israel? fill thy horn with oil, and go, I send thee unto Jesse the Beth-Lehemite, for I have seen among his sons for Myself a king...
 weight: 16
 ---
 

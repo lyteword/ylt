@@ -1,7 +1,8 @@
 ---
 title: "Acts 23 YLT | Read the Bible Online"
 linkTitle: "23"
-description: "Read Acts 23 Online | And Paul having earnestly beheld the sanhedrim, said, 'Men, brethren, I in all good conscience have lived to God unto this day;..."
+description: >
+  Read Acts 23 Online | And Paul having earnestly beheld the sanhedrim, said, 'Men, brethren, I in all good conscience have lived to God unto this day;...
 weight: 23
 ---
 

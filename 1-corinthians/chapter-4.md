@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read 1 Corinthians 4 Online | Let a man so reckon us as officers of Christ, and stewards of the secrets of God..."
+description: >
+  Read 1 Corinthians 4 Online | Let a man so reckon us as officers of Christ, and stewards of the secrets of God...
 weight: 4
 ---
 

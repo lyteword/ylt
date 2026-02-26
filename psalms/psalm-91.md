@@ -1,7 +1,8 @@
 ---
 title: "Psalm 91 YLT | Read the Bible Online"
 linkTitle: "91"
-description: "Read Psalm 91 Online | He who is dwelling In the secret place of the Most High, In the shade of the Mighty lodgeth habitually..."
+description: >
+  Read Psalm 91 Online | He who is dwelling In the secret place of the Most High, In the shade of the Mighty lodgeth habitually...
 weight: 91
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Jonah 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Jonah 1 Online | And there is a word of Jehovah unto Jonah son of Amittai, saying..."
+description: >
+  Read Jonah 1 Online | And there is a word of Jehovah unto Jonah son of Amittai, saying...
 weight: 1
 ---
 

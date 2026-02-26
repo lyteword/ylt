@@ -1,7 +1,8 @@
 ---
 title: "Acts 19 YLT | Read the Bible Online"
 linkTitle: "19"
-description: "Read Acts 19 Online | And it came to pass, in Apollos' being in Corinth, Paul having gone through the upper parts, came to Ephesus, and having found certain disciples..."
+description: >
+  Read Acts 19 Online | And it came to pass, in Apollos' being in Corinth, Paul having gone through the upper parts, came to Ephesus, and having found certain disciples...
 weight: 19
 ---
 

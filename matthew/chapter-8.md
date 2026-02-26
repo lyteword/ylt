@@ -1,7 +1,8 @@
 ---
 title: "Matthew 8 YLT | Read the Bible Online"
 linkTitle: "8"
-description: "Read Matthew 8 Online | And when he came down from the mount, great multitudes did follow him..."
+description: >
+  Read Matthew 8 Online | And when he came down from the mount, great multitudes did follow him...
 weight: 8
 ---
 

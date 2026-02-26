@@ -1,7 +1,8 @@
 ---
 title: "Psalm 133 YLT | Read the Bible Online"
 linkTitle: "133"
-description: "Read Psalm 133 Online | A Song of the Ascents, by David. Lo, how good and how pleasant The dwelling of brethren — even together..."
+description: >
+  Read Psalm 133 Online | A Song of the Ascents, by David. Lo, how good and how pleasant The dwelling of brethren — even together...
 weight: 133
 ---
 

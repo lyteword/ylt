@@ -1,7 +1,8 @@
 ---
 title: "Amos 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read Amos 5 Online | Hear this word that I am bearing to you, A lamentation, O house of Israel..."
+description: >
+  Read Amos 5 Online | Hear this word that I am bearing to you, A lamentation, O house of Israel...
 weight: 5
 ---
 

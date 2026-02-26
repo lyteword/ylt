@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 32 YLT | Read the Bible Online"
 linkTitle: "32"
-description: "Read 2 Chronicles 32 Online | After these things and this truth, come hath Sennacherib king of Asshur, yea, he cometh in to Judah, and encampeth against the cities of the bulwarks, and saith to rend them unto himself..."
+description: >
+  Read 2 Chronicles 32 Online | After these things and this truth, come hath Sennacherib king of Asshur, yea, he cometh in to Judah, and encampeth against the cities of the bulwarks, and saith to rend them unto himself...
 weight: 32
 ---
 

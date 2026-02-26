@@ -1,7 +1,8 @@
 ---
 title: "Mark 16 YLT | Read the Bible Online"
 linkTitle: "16"
-description: "Read Mark 16 Online | And the sabbath having past, Mary the Magdalene, and Mary of James, and Salome, bought spices, that having come, they may anoint him..."
+description: >
+  Read Mark 16 Online | And the sabbath having past, Mary the Magdalene, and Mary of James, and Salome, bought spices, that having come, they may anoint him...
 weight: 16
 ---
 

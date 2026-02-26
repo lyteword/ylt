@@ -1,7 +1,8 @@
 ---
 title: "Matthew 24 YLT | Read the Bible Online"
 linkTitle: "24"
-description: "Read Matthew 24 Online | And having gone forth, Jesus departed from the temple, and his disciples came near to show him the buildings of the temple..."
+description: >
+  Read Matthew 24 Online | And having gone forth, Jesus departed from the temple, and his disciples came near to show him the buildings of the temple...
 weight: 24
 ---
 

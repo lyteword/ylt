@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read 2 Chronicles 9 Online | And the queen of Sheba hath heard of the fame of Solomon, and cometh in to try Solomon with acute sayings, to Jerusalem, with a very great company, and camels bearing spices and gold in abundance, and precious stone; and she cometh in unto Solomon, and speaketh with him all that hath been with her heart..."
+description: >
+  Read 2 Chronicles 9 Online | And the queen of Sheba hath heard of the fame of Solomon, and cometh in to try Solomon with acute sayings, to Jerusalem, with a very great company, and camels bearing spices and gold in abundance, and precious stone; and she cometh in unto Solomon, and speaketh with him all that hath been with her heart...
 weight: 9
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Exodus 17 YLT | Read the Bible Online"
 linkTitle: "17"
-description: "Read Exodus 17 Online | And all the company of the sons of Israel journey from the wilderness of Sin, on their journeyings, by the command of Jehovah, and encamp in Rephidim, and there is no water for the people to drink..."
+description: >
+  Read Exodus 17 Online | And all the company of the sons of Israel journey from the wilderness of Sin, on their journeyings, by the command of Jehovah, and encamp in Rephidim, and there is no water for the people to drink...
 weight: 17
 ---
 

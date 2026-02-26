@@ -1,7 +1,8 @@
 ---
 title: "Exodus 40 YLT | Read the Bible Online"
 linkTitle: "40"
-description: "Read Exodus 40 Online | And Jehovah speaketh unto Moses, saying..."
+description: >
+  Read Exodus 40 Online | And Jehovah speaketh unto Moses, saying...
 weight: 40
 ---
 

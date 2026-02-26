@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Leviticus 4 Online | And Jehovah speaketh unto Moses, saying..."
+description: >
+  Read Leviticus 4 Online | And Jehovah speaketh unto Moses, saying...
 weight: 4
 ---
 

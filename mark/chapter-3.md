@@ -1,7 +1,8 @@
 ---
 title: "Mark 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Mark 3 Online | And he entered again into the synagogue, and there was there a man having the hand withered..."
+description: >
+  Read Mark 3 Online | And he entered again into the synagogue, and there was there a man having the hand withered...
 weight: 3
 ---
 

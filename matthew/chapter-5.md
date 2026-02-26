@@ -1,7 +1,8 @@
 ---
 title: "Matthew 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read Matthew 5 Online | And having seen the multitudes, he went up to the mount, and he having sat down, his disciples came to him..."
+description: >
+  Read Matthew 5 Online | And having seen the multitudes, he went up to the mount, and he having sat down, his disciples came to him...
 weight: 5
 ---
 

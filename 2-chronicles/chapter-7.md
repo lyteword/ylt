@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read 2 Chronicles 7 Online | And at Solomon's finishing to pray, then the fire hath come down from the heavens, and consumeth the burnt-offering and the sacrifices, and the honour of Jehovah hath filled the house..."
+description: >
+  Read 2 Chronicles 7 Online | And at Solomon's finishing to pray, then the fire hath come down from the heavens, and consumeth the burnt-offering and the sacrifices, and the honour of Jehovah hath filled the house...
 weight: 7
 ---
 

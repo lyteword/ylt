@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 18 YLT | Read the Bible Online"
 linkTitle: "18"
-description: "Read 2 Chronicles 18 Online | And Jehoshaphat hath riches and honour in abundance, and joineth affinity to Ahab..."
+description: >
+  Read 2 Chronicles 18 Online | And Jehoshaphat hath riches and honour in abundance, and joineth affinity to Ahab...
 weight: 18
 ---
 

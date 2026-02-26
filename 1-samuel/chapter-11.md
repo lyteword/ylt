@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 11 YLT | Read the Bible Online"
 linkTitle: "11"
-description: "Read 1 Samuel 11 Online | And Nahash the Ammonite cometh up, and encampeth against Jabesh-Gilead, and all the men of Jabesh say unto Nahash, 'Make with us a covenant, and we serve thee...."
+description: >
+  Read 1 Samuel 11 Online | And Nahash the Ammonite cometh up, and encampeth against Jabesh-Gilead, and all the men of Jabesh say unto Nahash, 'Make with us a covenant, and we serve thee....
 weight: 11
 ---
 

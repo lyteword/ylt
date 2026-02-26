@@ -1,7 +1,8 @@
 ---
 title: "Genesis 16 YLT | Read the Bible Online"
 linkTitle: "16"
-description: "Read Genesis 16 Online | And Sarai, Abram's wife, hath not borne to him, and she hath an handmaid, an Egyptian, and her name [is] Hagar..."
+description: >
+  Read Genesis 16 Online | And Sarai, Abram's wife, hath not borne to him, and she hath an handmaid, an Egyptian, and her name [is] Hagar...
 weight: 16
 ---
 

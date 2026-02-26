@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 13 YLT | Read the Bible Online"
 linkTitle: "13"
-description: "Read Isaiah 13 Online | The burden of Babylon that Isaiah son of Amoz hath seen..."
+description: >
+  Read Isaiah 13 Online | The burden of Babylon that Isaiah son of Amoz hath seen...
 weight: 13
 ---
 

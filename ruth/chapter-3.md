@@ -1,7 +1,8 @@
 ---
 title: "Ruth 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Ruth 3 Online | And Naomi her mother-in-law saith to her, 'My daughter, do not I seek for thee rest, that it may be well with thee..."
+description: >
+  Read Ruth 3 Online | And Naomi her mother-in-law saith to her, 'My daughter, do not I seek for thee rest, that it may be well with thee...
 weight: 3
 ---
 

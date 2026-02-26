@@ -1,7 +1,8 @@
 ---
 title: "Psalm 23 YLT | Read the Bible Online"
 linkTitle: "23"
-description: "Read Psalm 23 Online | A Psalm of David. Jehovah [is] my shepherd, I do not lack..."
+description: >
+  Read Psalm 23 Online | A Psalm of David. Jehovah [is] my shepherd, I do not lack...
 weight: 23
 ---
 

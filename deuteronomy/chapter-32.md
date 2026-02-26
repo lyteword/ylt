@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 32 YLT | Read the Bible Online"
 linkTitle: "32"
-description: "Read Deuteronomy 32 Online | 'Give ear, O heavens, and I speak; And thou dost hear, O earth, sayings of my mouth..."
+description: >
+  Read Deuteronomy 32 Online | 'Give ear, O heavens, and I speak; And thou dost hear, O earth, sayings of my mouth...
 weight: 32
 ---
 

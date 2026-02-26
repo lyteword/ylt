@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 29 YLT | Read the Bible Online"
 linkTitle: "29"
-description: "Read Isaiah 29 Online | Woe [to] Ariel, Ariel, The city of the encampment of David! Add year to year, let festivals go round..."
+description: >
+  Read Isaiah 29 Online | Woe [to] Ariel, Ariel, The city of the encampment of David! Add year to year, let festivals go round...
 weight: 29
 ---
 

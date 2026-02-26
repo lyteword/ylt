@@ -1,7 +1,8 @@
 ---
 title: "Genesis 13 YLT | Read the Bible Online"
 linkTitle: "13"
-description: "Read Genesis 13 Online | And Abram goeth up from Egypt (he and his wife, and all that he hath, and Lot with him) towards the south..."
+description: >
+  Read Genesis 13 Online | And Abram goeth up from Egypt (he and his wife, and all that he hath, and Lot with him) towards the south...
 weight: 13
 ---
 

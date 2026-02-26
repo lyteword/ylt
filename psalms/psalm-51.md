@@ -1,7 +1,8 @@
 ---
 title: "Psalm 51 YLT | Read the Bible Online"
 linkTitle: "51"
-description: "Read Psalm 51 Online | To the Overseer. — A Psalm of David, in the coming in unto him of Nathan the prophet, when he hath gone in unto Bath-Sheba. Favour me, O God, according to Thy kindness, According to the abundance of Thy mercies, Blot out my transgressions..."
+description: >
+  Read Psalm 51 Online | To the Overseer. — A Psalm of David, in the coming in unto him of Nathan the prophet, when he hath gone in unto Bath-Sheba. Favour me, O God, according to Thy kindness, According to the abundance of Thy mercies, Blot out my transgressions...
 weight: 51
 ---
 

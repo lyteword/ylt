@@ -1,7 +1,8 @@
 ---
 title: "Psalm 52 YLT | Read the Bible Online"
 linkTitle: "52"
-description: "Read Psalm 52 Online | To the Overseer. — An instruction, by David, in the coming in of Doeg the Edomite, and he declareth to Saul, and saith to him, 'David came in unto the house of Ahimelech.' What, boasteth thou in evil, O mighty one? The kindness of God [is] all the day..."
+description: >
+  Read Psalm 52 Online | To the Overseer. — An instruction, by David, in the coming in of Doeg the Edomite, and he declareth to Saul, and saith to him, 'David came in unto the house of Ahimelech.' What, boasteth thou in evil, O mighty one? The kindness of God [is] all the day...
 weight: 52
 ---
 

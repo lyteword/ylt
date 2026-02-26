@@ -1,7 +1,8 @@
 ---
 title: "Jonah 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Jonah 4 Online | And it is grievous unto Jonah — a great evil — and he is displeased at it..."
+description: >
+  Read Jonah 4 Online | And it is grievous unto Jonah — a great evil — and he is displeased at it...
 weight: 4
 ---
 

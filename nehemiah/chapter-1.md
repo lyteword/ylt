@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Nehemiah 1 Online | Words of Nehemiah son of Hachaliah. And it cometh to pass, in the month of Chisleu, the twentieth year, and I have been in Shushan the palace..."
+description: >
+  Read Nehemiah 1 Online | Words of Nehemiah son of Hachaliah. And it cometh to pass, in the month of Chisleu, the twentieth year, and I have been in Shushan the palace...
 weight: 1
 ---
 

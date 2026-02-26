@@ -1,7 +1,8 @@
 ---
 title: "Mark 14 YLT | Read the Bible Online"
 linkTitle: "14"
-description: "Read Mark 14 Online | And the passover and the unleavened food were after two days, and the chief priests and the scribes were seeking how, by guile, having taken hold of him, they might kill him..."
+description: >
+  Read Mark 14 Online | And the passover and the unleavened food were after two days, and the chief priests and the scribes were seeking how, by guile, having taken hold of him, they might kill him...
 weight: 14
 ---
 

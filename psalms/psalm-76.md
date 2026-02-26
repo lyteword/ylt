@@ -1,7 +1,8 @@
 ---
 title: "Psalm 76 YLT | Read the Bible Online"
 linkTitle: "76"
-description: "Read Psalm 76 Online | To the Overseer with stringed instruments. — A Psalm of Asaph. — A Song. In Judah [is] God known, in Israel His name [is] great..."
+description: >
+  Read Psalm 76 Online | To the Overseer with stringed instruments. — A Psalm of Asaph. — A Song. In Judah [is] God known, in Israel His name [is] great...
 weight: 76
 ---
 

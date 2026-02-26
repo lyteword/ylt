@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 24 YLT | Read the Bible Online"
 linkTitle: "24"
-description: "Read 2 Kings 24 Online | In his days hath Nebuchadnezzar king of Babylon come up, and Jehoiakim is to him a servant three years; and he turneth and rebelleth against him..."
+description: >
+  Read 2 Kings 24 Online | In his days hath Nebuchadnezzar king of Babylon come up, and Jehoiakim is to him a servant three years; and he turneth and rebelleth against him...
 weight: 24
 ---
 

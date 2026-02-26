@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 26 YLT | Read the Bible Online"
 linkTitle: "26"
-description: "Read 2 Chronicles 26 Online | And all the people of Judah take Uzziah (and he [is] a son of sixteen years), and cause him to reign instead of his father Amaziah..."
+description: >
+  Read 2 Chronicles 26 Online | And all the people of Judah take Uzziah (and he [is] a son of sixteen years), and cause him to reign instead of his father Amaziah...
 weight: 26
 ---
 

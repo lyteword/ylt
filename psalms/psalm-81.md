@@ -1,7 +1,8 @@
 ---
 title: "Psalm 81 YLT | Read the Bible Online"
 linkTitle: "81"
-description: "Read Psalm 81 Online | To the Overseer. — 'On the Gittith.' By Asaph. Cry aloud to God our strength, Shout to the God of Jacob..."
+description: >
+  Read Psalm 81 Online | To the Overseer. — 'On the Gittith.' By Asaph. Cry aloud to God our strength, Shout to the God of Jacob...
 weight: 81
 ---
 

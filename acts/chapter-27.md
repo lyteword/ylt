@@ -1,7 +1,8 @@
 ---
 title: "Acts 27 YLT | Read the Bible Online"
 linkTitle: "27"
-description: "Read Acts 27 Online | And when our sailing to Italy was determined, they were delivering up both Paul and certain others, prisoners, to a centurion, by name Julius, of the band of Sebastus..."
+description: >
+  Read Acts 27 Online | And when our sailing to Italy was determined, they were delivering up both Paul and certain others, prisoners, to a centurion, by name Julius, of the band of Sebastus...
 weight: 27
 ---
 

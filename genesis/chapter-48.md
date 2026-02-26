@@ -1,7 +1,8 @@
 ---
 title: "Genesis 48 YLT | Read the Bible Online"
 linkTitle: "48"
-description: "Read Genesis 48 Online | And it cometh to pass, after these things, that [one] saith to Joseph, 'Lo, thy father is sick;' and he taketh his two sons with him, Manasseh and Ephraim..."
+description: >
+  Read Genesis 48 Online | And it cometh to pass, after these things, that [one] saith to Joseph, 'Lo, thy father is sick;' and he taketh his two sons with him, Manasseh and Ephraim...
 weight: 48
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read 2 Corinthians 7 Online | Having, then, these promises, beloved, may we cleanse ourselves from every pollution of flesh and spirit, perfecting sanctification in the fear of God..."
+description: >
+  Read 2 Corinthians 7 Online | Having, then, these promises, beloved, may we cleanse ourselves from every pollution of flesh and spirit, perfecting sanctification in the fear of God...
 weight: 7
 ---
 

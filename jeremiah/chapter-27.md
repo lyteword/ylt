@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 27 YLT | Read the Bible Online"
 linkTitle: "27"
-description: "Read Jeremiah 27 Online | In the beginning of the reign of Jehoiakim son of Josiah, king of Judah, hath this word been unto Jeremiah from Jehovah, saying..."
+description: >
+  Read Jeremiah 27 Online | In the beginning of the reign of Jehoiakim son of Josiah, king of Judah, hath this word been unto Jeremiah from Jehovah, saying...
 weight: 27
 ---
 

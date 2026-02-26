@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 11 YLT | Read the Bible Online"
 linkTitle: "11"
-description: "Read Zechariah 11 Online | Open, O Lebanon, thy doors, And fire doth devour among thy cedars..."
+description: >
+  Read Zechariah 11 Online | Open, O Lebanon, thy doors, And fire doth devour among thy cedars...
 weight: 11
 ---
 

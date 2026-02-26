@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 44 YLT | Read the Bible Online"
 linkTitle: "44"
-description: "Read Ezekiel 44 Online | And he causeth me to turn back the way of the gate of the outer sanctuary that is looking eastward, and it is shut..."
+description: >
+  Read Ezekiel 44 Online | And he causeth me to turn back the way of the gate of the outer sanctuary that is looking eastward, and it is shut...
 weight: 44
 ---
 

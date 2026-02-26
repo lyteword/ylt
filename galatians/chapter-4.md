@@ -1,7 +1,8 @@
 ---
 title: "Galatians 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Galatians 4 Online | And I say, so long time as the heir is a babe, he differeth nothing from a servant — being lord of all..."
+description: >
+  Read Galatians 4 Online | And I say, so long time as the heir is a babe, he differeth nothing from a servant — being lord of all...
 weight: 4
 ---
 

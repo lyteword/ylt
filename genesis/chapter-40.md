@@ -1,7 +1,8 @@
 ---
 title: "Genesis 40 YLT | Read the Bible Online"
 linkTitle: "40"
-description: "Read Genesis 40 Online | And it cometh to pass, after these things — the butler of the king of Egypt and the baker have sinned against their lord, against the king of Egypt..."
+description: >
+  Read Genesis 40 Online | And it cometh to pass, after these things — the butler of the king of Egypt and the baker have sinned against their lord, against the king of Egypt...
 weight: 40
 ---
 

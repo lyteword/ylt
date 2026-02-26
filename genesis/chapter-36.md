@@ -1,7 +1,8 @@
 ---
 title: "Genesis 36 YLT | Read the Bible Online"
 linkTitle: "36"
-description: "Read Genesis 36 Online | And these [are] births of Esau, who [is] Edom..."
+description: >
+  Read Genesis 36 Online | And these [are] births of Esau, who [is] Edom...
 weight: 36
 ---
 

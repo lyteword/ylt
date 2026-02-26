@@ -1,7 +1,8 @@
 ---
 title: "Genesis 14 YLT | Read the Bible Online"
 linkTitle: "14"
-description: "Read Genesis 14 Online | And it cometh to pass in the days of Amraphel king of Shinar, Arioch king of Ellasar, Chedorlaomer king of Elam, and Tidal king of Goyim..."
+description: >
+  Read Genesis 14 Online | And it cometh to pass in the days of Amraphel king of Shinar, Arioch king of Ellasar, Chedorlaomer king of Elam, and Tidal king of Goyim...
 weight: 14
 ---
 

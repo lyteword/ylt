@@ -1,7 +1,8 @@
 ---
 title: "Revelation 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Revelation 3 Online | And to the messenger of the assembly in Sardis write: These things saith he who is having the Seven Spirits of God, and the seven stars: I have known thy works, and that thou hast the name that thou dost live, and thou art dead..."
+description: >
+  Read Revelation 3 Online | And to the messenger of the assembly in Sardis write: These things saith he who is having the Seven Spirits of God, and the seven stars: I have known thy works, and that thou hast the name that thou dost live, and thou art dead...
 weight: 3
 ---
 

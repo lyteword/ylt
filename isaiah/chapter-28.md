@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 28 YLT | Read the Bible Online"
 linkTitle: "28"
-description: "Read Isaiah 28 Online | Woe [to] the proud crown of the drunkards of Ephraim. And the fading flower of the beauty of his glory, That [is] on the head of the fat valley of the broken down of wine..."
+description: >
+  Read Isaiah 28 Online | Woe [to] the proud crown of the drunkards of Ephraim. And the fading flower of the beauty of his glory, That [is] on the head of the fat valley of the broken down of wine...
 weight: 28
 ---
 

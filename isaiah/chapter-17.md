@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 17 YLT | Read the Bible Online"
 linkTitle: "17"
-description: "Read Isaiah 17 Online | The burden of Damascus. Lo, Damascus is taken away from [being] a city, And it hath been a heap — a ruin..."
+description: >
+  Read Isaiah 17 Online | The burden of Damascus. Lo, Damascus is taken away from [being] a city, And it hath been a heap — a ruin...
 weight: 17
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Lamentations 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read Lamentations 5 Online | Remember, O Jehovah, what hath befallen us, Look attentively, and see our reproach..."
+description: >
+  Read Lamentations 5 Online | Remember, O Jehovah, what hath befallen us, Look attentively, and see our reproach...
 weight: 5
 ---
 

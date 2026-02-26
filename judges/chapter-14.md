@@ -1,7 +1,8 @@
 ---
 title: "Judges 14 YLT | Read the Bible Online"
 linkTitle: "14"
-description: "Read Judges 14 Online | And Samson goeth down to Timnath, and seeth a woman in Timnath of the daughters of the Philistines..."
+description: >
+  Read Judges 14 Online | And Samson goeth down to Timnath, and seeth a woman in Timnath of the daughters of the Philistines...
 weight: 14
 ---
 

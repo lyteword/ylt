@@ -1,7 +1,8 @@
 ---
 title: "Job 17 YLT | Read the Bible Online"
 linkTitle: "17"
-description: "Read Job 17 Online | My spirit hath been destroyed, My days extinguished — graves [are] for me..."
+description: >
+  Read Job 17 Online | My spirit hath been destroyed, My days extinguished — graves [are] for me...
 weight: 17
 ---
 

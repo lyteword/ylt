@@ -1,7 +1,8 @@
 ---
 title: "Exodus 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read Exodus 9 Online | And Jehovah saith unto Moses, 'Go in unto Pharaoh, and thou hast spoken unto him, Thus said Jehovah, God of the Hebrews, Send My people away, and they serve me..."
+description: >
+  Read Exodus 9 Online | And Jehovah saith unto Moses, 'Go in unto Pharaoh, and thou hast spoken unto him, Thus said Jehovah, God of the Hebrews, Send My people away, and they serve me...
 weight: 9
 ---
 

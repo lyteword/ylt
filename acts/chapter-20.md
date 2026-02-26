@@ -1,7 +1,8 @@
 ---
 title: "Acts 20 YLT | Read the Bible Online"
 linkTitle: "20"
-description: "Read Acts 20 Online | And after the ceasing of the tumult, Paul having called near the disciples, and having embraced [them], went forth to go on to Macedonia..."
+description: >
+  Read Acts 20 Online | And after the ceasing of the tumult, Paul having called near the disciples, and having embraced [them], went forth to go on to Macedonia...
 weight: 20
 ---
 

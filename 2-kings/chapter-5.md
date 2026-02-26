@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read 2 Kings 5 Online | And Naaman, head of the host of the king of Aram, was a great man before his lord, and accepted of face, for by him had Jehovah given salvation to Aram, and the man was mighty in valour — leprous..."
+description: >
+  Read 2 Kings 5 Online | And Naaman, head of the host of the king of Aram, was a great man before his lord, and accepted of face, for by him had Jehovah given salvation to Aram, and the man was mighty in valour — leprous...
 weight: 5
 ---
 

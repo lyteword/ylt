@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 39 YLT | Read the Bible Online"
 linkTitle: "39"
-description: "Read Jeremiah 39 Online | In the ninth year of Zedekiah king of Judah, in the tenth month, come hath Nebuchadrezzar king of Babylon and all his force unto Jerusalem, and they lay siege against it..."
+description: >
+  Read Jeremiah 39 Online | In the ninth year of Zedekiah king of Judah, in the tenth month, come hath Nebuchadrezzar king of Babylon and all his force unto Jerusalem, and they lay siege against it...
 weight: 39
 ---
 

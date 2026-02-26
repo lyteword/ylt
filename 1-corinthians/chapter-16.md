@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 16 YLT | Read the Bible Online"
 linkTitle: "16"
-description: "Read 1 Corinthians 16 Online | And concerning the collection that [is] for the saints, as I directed to the assemblies of Galatia, so also ye — do ye..."
+description: >
+  Read 1 Corinthians 16 Online | And concerning the collection that [is] for the saints, as I directed to the assemblies of Galatia, so also ye — do ye...
 weight: 16
 ---
 

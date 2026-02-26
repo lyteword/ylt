@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 22 YLT | Read the Bible Online"
 linkTitle: "22"
-description: "Read 2 Chronicles 22 Online | And the inhabitants of Jerusalem cause Ahaziah his youngest son to reign in his stead, (for all the elder had the troop slain that came in with the Arabians to the camp,) and Ahaziah son of Jehoram king of Judah reigneth..."
+description: >
+  Read 2 Chronicles 22 Online | And the inhabitants of Jerusalem cause Ahaziah his youngest son to reign in his stead, (for all the elder had the troop slain that came in with the Arabians to the camp,) and Ahaziah son of Jehoram king of Judah reigneth...
 weight: 22
 ---
 

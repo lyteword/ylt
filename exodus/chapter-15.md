@@ -1,7 +1,8 @@
 ---
 title: "Exodus 15 YLT | Read the Bible Online"
 linkTitle: "15"
-description: "Read Exodus 15 Online | Then singeth Moses and the sons of Israel this song to Jehovah, and they speak, saying: — 'I sing to Jehovah, For triumphing He hath triumphed; The horse and its rider He hath thrown into the sea..."
+description: >
+  Read Exodus 15 Online | Then singeth Moses and the sons of Israel this song to Jehovah, and they speak, saying: — 'I sing to Jehovah, For triumphing He hath triumphed; The horse and its rider He hath thrown into the sea...
 weight: 15
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 29 YLT | Read the Bible Online"
 linkTitle: "29"
-description: "Read Deuteronomy 29 Online | These [are] the words of the covenant which Jehovah hath commanded Moses to make with the sons of Israel in the land of Moab, apart from the covenant which He made with them in Horeb..."
+description: >
+  Read Deuteronomy 29 Online | These [are] the words of the covenant which Jehovah hath commanded Moses to make with the sons of Israel in the land of Moab, apart from the covenant which He made with them in Horeb...
 weight: 29
 ---
 

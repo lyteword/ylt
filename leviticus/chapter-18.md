@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 18 YLT | Read the Bible Online"
 linkTitle: "18"
-description: "Read Leviticus 18 Online | And Jehovah speaketh unto Moses, saying..."
+description: >
+  Read Leviticus 18 Online | And Jehovah speaketh unto Moses, saying...
 weight: 18
 ---
 

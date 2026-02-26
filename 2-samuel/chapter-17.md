@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 17 YLT | Read the Bible Online"
 linkTitle: "17"
-description: "Read 2 Samuel 17 Online | And Ahithophel said unto Absalom, 'Let me choose, I pray thee, twelve thousand men, and I arise and pursue after David to-night..."
+description: >
+  Read 2 Samuel 17 Online | And Ahithophel said unto Absalom, 'Let me choose, I pray thee, twelve thousand men, and I arise and pursue after David to-night...
 weight: 17
 ---
 

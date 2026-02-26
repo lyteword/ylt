@@ -1,7 +1,8 @@
 ---
 title: "Mark 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read Mark 5 Online | And they came to the other side of the sea, to the region of the Gadarenes..."
+description: >
+  Read Mark 5 Online | And they came to the other side of the sea, to the region of the Gadarenes...
 weight: 5
 ---
 

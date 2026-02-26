@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 27 YLT | Read the Bible Online"
 linkTitle: "27"
-description: "Read 1 Chronicles 27 Online | And the sons of Israel, after their number, heads of the fathers, and princes of the thousands and of the hundreds, and their officers, those serving the king in any matter of the courses, that are coming in and going out month by month, throughout all months of the year — [are] in each course twenty and four thousand..."
+description: >
+  Read 1 Chronicles 27 Online | And the sons of Israel, after their number, heads of the fathers, and princes of the thousands and of the hundreds, and their officers, those serving the king in any matter of the courses, that are coming in and going out month by month, throughout all months of the year — [are] in each course twenty and four thousand...
 weight: 27
 ---
 

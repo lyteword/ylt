@@ -1,7 +1,8 @@
 ---
 title: "Matthew 13 YLT | Read the Bible Online"
 linkTitle: "13"
-description: "Read Matthew 13 Online | And in that day Jesus, having gone forth from the house, was sitting by the sea..."
+description: >
+  Read Matthew 13 Online | And in that day Jesus, having gone forth from the house, was sitting by the sea...
 weight: 13
 ---
 

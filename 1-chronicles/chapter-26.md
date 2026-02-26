@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 26 YLT | Read the Bible Online"
 linkTitle: "26"
-description: "Read 1 Chronicles 26 Online | For the courses of the gatekeepers: of the Korhites [is] Meshelemiah son of Kore, of the sons of Asaph..."
+description: >
+  Read 1 Chronicles 26 Online | For the courses of the gatekeepers: of the Korhites [is] Meshelemiah son of Kore, of the sons of Asaph...
 weight: 26
 ---
 

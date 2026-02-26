@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 15 YLT | Read the Bible Online"
 linkTitle: "15"
-description: "Read Proverbs 15 Online | A soft answer turneth back fury, And a grievous word raiseth up anger..."
+description: >
+  Read Proverbs 15 Online | A soft answer turneth back fury, And a grievous word raiseth up anger...
 weight: 15
 ---
 

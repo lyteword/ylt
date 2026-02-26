@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read Nehemiah 9 Online | And in the twenty and fourth day of this month have the sons of Israel been gathered, with fasting, and with sackcloth, and earth upon them..."
+description: >
+  Read Nehemiah 9 Online | And in the twenty and fourth day of this month have the sons of Israel been gathered, with fasting, and with sackcloth, and earth upon them...
 weight: 9
 ---
 

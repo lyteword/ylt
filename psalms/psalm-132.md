@@ -1,7 +1,8 @@
 ---
 title: "Psalm 132 YLT | Read the Bible Online"
 linkTitle: "132"
-description: "Read Psalm 132 Online | A Song of the Ascents. Remember, Jehovah, for David, all his afflictions..."
+description: >
+  Read Psalm 132 Online | A Song of the Ascents. Remember, Jehovah, for David, all his afflictions...
 weight: 132
 ---
 

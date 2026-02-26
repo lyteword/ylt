@@ -1,7 +1,8 @@
 ---
 title: "Habakkuk 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Habakkuk 3 Online | A prayer of Habakkuk the prophet concerning erring ones..."
+description: >
+  Read Habakkuk 3 Online | A prayer of Habakkuk the prophet concerning erring ones...
 weight: 3
 ---
 

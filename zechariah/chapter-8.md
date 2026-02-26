@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 8 YLT | Read the Bible Online"
 linkTitle: "8"
-description: "Read Zechariah 8 Online | And there is a word of Jehovah of Hosts, saying..."
+description: >
+  Read Zechariah 8 Online | And there is a word of Jehovah of Hosts, saying...
 weight: 8
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Numbers 29 YLT | Read the Bible Online"
 linkTitle: "29"
-description: "Read Numbers 29 Online | 'And in the seventh month, in the first of the month, a holy convocation ye have, ye do no servile work; a day of shouting it is to you..."
+description: >
+  Read Numbers 29 Online | 'And in the seventh month, in the first of the month, a holy convocation ye have, ye do no servile work; a day of shouting it is to you...
 weight: 29
 ---
 

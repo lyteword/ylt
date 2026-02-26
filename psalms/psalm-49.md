@@ -1,7 +1,8 @@
 ---
 title: "Psalm 49 YLT | Read the Bible Online"
 linkTitle: "49"
-description: "Read Psalm 49 Online | To the Overseer. — By sons of Korah. A Psalm. Hear this, all ye peoples, Give ear, all ye inhabitants of the world..."
+description: >
+  Read Psalm 49 Online | To the Overseer. — By sons of Korah. A Psalm. Hear this, all ye peoples, Give ear, all ye inhabitants of the world...
 weight: 49
 ---
 

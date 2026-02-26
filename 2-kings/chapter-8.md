@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 8 YLT | Read the Bible Online"
 linkTitle: "8"
-description: "Read 2 Kings 8 Online | And Elisha spake unto the woman whose son he had revived, saying, 'Rise and go, thou and thy household, and sojourn where thou dost sojourn, for Jehovah hath called for a famine, and also, it is coming unto the land seven years...."
+description: >
+  Read 2 Kings 8 Online | And Elisha spake unto the woman whose son he had revived, saying, 'Rise and go, thou and thy household, and sojourn where thou dost sojourn, for Jehovah hath called for a famine, and also, it is coming unto the land seven years....
 weight: 8
 ---
 

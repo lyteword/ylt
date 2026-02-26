@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 14 YLT | Read the Bible Online"
 linkTitle: "14"
-description: "Read Zechariah 14 Online | Lo, a day hath come to Jehovah, And divided hath been thy spoil in thy midst..."
+description: >
+  Read Zechariah 14 Online | Lo, a day hath come to Jehovah, And divided hath been thy spoil in thy midst...
 weight: 14
 ---
 

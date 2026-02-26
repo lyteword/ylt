@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 16 YLT | Read the Bible Online"
 linkTitle: "16"
-description: "Read Jeremiah 16 Online | And there is a word of Jehovah unto me, saying..."
+description: >
+  Read Jeremiah 16 Online | And there is a word of Jehovah unto me, saying...
 weight: 16
 ---
 

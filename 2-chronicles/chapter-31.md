@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 31 YLT | Read the Bible Online"
 linkTitle: "31"
-description: "Read 2 Chronicles 31 Online | And at the completion of all this, gone out have all Israel who are found present to the cities of Judah, and break the standing-pillars, and cut down the shrines, and break down the high places and the altars, out of all Judah and Benjamin, and in Ephraim and Manasseh, even to completion, and all the sons of Israel turn back, each to his Possession, to their cities..."
+description: >
+  Read 2 Chronicles 31 Online | And at the completion of all this, gone out have all Israel who are found present to the cities of Judah, and break the standing-pillars, and cut down the shrines, and break down the high places and the altars, out of all Judah and Benjamin, and in Ephraim and Manasseh, even to completion, and all the sons of Israel turn back, each to his Possession, to their cities...
 weight: 31
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ecclesiastes 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Ecclesiastes 3 Online | To everything — a season, and a time to every delight under the heavens..."
+description: >
+  Read Ecclesiastes 3 Online | To everything — a season, and a time to every delight under the heavens...
 weight: 3
 ---
 

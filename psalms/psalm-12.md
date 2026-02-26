@@ -1,7 +1,8 @@
 ---
 title: "Psalm 12 YLT | Read the Bible Online"
 linkTitle: "12"
-description: "Read Psalm 12 Online | To the Overseer, on the octave. — A Psalm of David. Save, Jehovah, for the saintly hath failed, For the stedfast have ceased From the sons of men..."
+description: >
+  Read Psalm 12 Online | To the Overseer, on the octave. — A Psalm of David. Save, Jehovah, for the saintly hath failed, For the stedfast have ceased From the sons of men...
 weight: 12
 ---
 

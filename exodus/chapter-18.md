@@ -1,7 +1,8 @@
 ---
 title: "Exodus 18 YLT | Read the Bible Online"
 linkTitle: "18"
-description: "Read Exodus 18 Online | And Jethro priest of Midian, father-in-law of Moses, heareth all that God hath done for Moses, and for Israel his people, that Jehovah hath brought out Israel from Egypt..."
+description: >
+  Read Exodus 18 Online | And Jethro priest of Midian, father-in-law of Moses, heareth all that God hath done for Moses, and for Israel his people, that Jehovah hath brought out Israel from Egypt...
 weight: 18
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Peter 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read 1 Peter 5 Online | Elders who [are] among you, I exhort, who [am] a fellow-elder, and a witness of the sufferings of the Christ, and of the glory about to be revealed a partaker..."
+description: >
+  Read 1 Peter 5 Online | Elders who [are] among you, I exhort, who [am] a fellow-elder, and a witness of the sufferings of the Christ, and of the glory about to be revealed a partaker...
 weight: 5
 ---
 

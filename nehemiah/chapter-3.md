@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Nehemiah 3 Online | And Eliashib the high priest riseth, and his brethren the priests, and they build the sheep-gate; they have sanctified it, and set up its doors, even unto the tower of Meah they have sanctified it, unto the tower of Hananeel..."
+description: >
+  Read Nehemiah 3 Online | And Eliashib the high priest riseth, and his brethren the priests, and they build the sheep-gate; they have sanctified it, and set up its doors, even unto the tower of Meah they have sanctified it, unto the tower of Hananeel...
 weight: 3
 ---
 

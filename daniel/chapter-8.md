@@ -1,7 +1,8 @@
 ---
 title: "Daniel 8 YLT | Read the Bible Online"
 linkTitle: "8"
-description: "Read Daniel 8 Online | 'In the third year of the reign of Belshazzar the king, a vision hath appeared unto me — I Daniel — after that which had appeared unto me at the beginning..."
+description: >
+  Read Daniel 8 Online | 'In the third year of the reign of Belshazzar the king, a vision hath appeared unto me — I Daniel — after that which had appeared unto me at the beginning...
 weight: 8
 ---
 

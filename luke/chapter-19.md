@@ -1,7 +1,8 @@
 ---
 title: "Luke 19 YLT | Read the Bible Online"
 linkTitle: "19"
-description: "Read Luke 19 Online | And having entered, he was passing through Jericho..."
+description: >
+  Read Luke 19 Online | And having entered, he was passing through Jericho...
 weight: 19
 ---
 

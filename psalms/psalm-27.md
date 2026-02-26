@@ -1,7 +1,8 @@
 ---
 title: "Psalm 27 YLT | Read the Bible Online"
 linkTitle: "27"
-description: "Read Psalm 27 Online | By David. Jehovah [is] my light and my salvation, Whom do I fear? Jehovah [is] the strength of my life, Of whom am I afraid..."
+description: >
+  Read Psalm 27 Online | By David. Jehovah [is] my light and my salvation, Whom do I fear? Jehovah [is] the strength of my life, Of whom am I afraid...
 weight: 27
 ---
 

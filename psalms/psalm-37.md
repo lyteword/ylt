@@ -1,7 +1,8 @@
 ---
 title: "Psalm 37 YLT | Read the Bible Online"
 linkTitle: "37"
-description: "Read Psalm 37 Online | By David. Do not fret because of evil doers, Be not envious against doers of iniquity..."
+description: >
+  Read Psalm 37 Online | By David. Do not fret because of evil doers, Be not envious against doers of iniquity...
 weight: 37
 ---
 

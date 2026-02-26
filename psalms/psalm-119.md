@@ -1,7 +1,8 @@
 ---
 title: "Psalm 119 YLT | Read the Bible Online"
 linkTitle: "119"
-description: "Read Psalm 119 Online | [Aleph.] O the happiness of those perfect in the way, They are walking in the law of Jehovah..."
+description: >
+  Read Psalm 119 Online | [Aleph.] O the happiness of those perfect in the way, They are walking in the law of Jehovah...
 weight: 119
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Timothy 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read 1 Timothy 5 Online | An aged person thou mayest not rebuke, but be entreating as a father; younger persons as brethren..."
+description: >
+  Read 1 Timothy 5 Online | An aged person thou mayest not rebuke, but be entreating as a father; younger persons as brethren...
 weight: 5
 ---
 

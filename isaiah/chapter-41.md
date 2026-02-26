@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 41 YLT | Read the Bible Online"
 linkTitle: "41"
-description: "Read Isaiah 41 Online | Keep silent towards Me, O isles, And the peoples pass on [to] power, They come nigh, then they speak, 'Together — to judgment we draw near...."
+description: >
+  Read Isaiah 41 Online | Keep silent towards Me, O isles, And the peoples pass on [to] power, They come nigh, then they speak, 'Together — to judgment we draw near....
 weight: 41
 ---
 

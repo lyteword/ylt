@@ -1,7 +1,8 @@
 ---
 title: "Song Of Solomon 8 YLT | Read the Bible Online"
 linkTitle: "8"
-description: "Read Song Of Solomon 8 Online | Who doth make thee as a brother to me, Sucking the breasts of my mother? I find thee without, I kiss thee, Yea, they do not despise me..."
+description: >
+  Read Song Of Solomon 8 Online | Who doth make thee as a brother to me, Sucking the breasts of my mother? I find thee without, I kiss thee, Yea, they do not despise me...
 weight: 8
 ---
 

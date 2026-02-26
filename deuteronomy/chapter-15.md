@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 15 YLT | Read the Bible Online"
 linkTitle: "15"
-description: "Read Deuteronomy 15 Online | 'At the end of seven years thou dost make a release..."
+description: >
+  Read Deuteronomy 15 Online | 'At the end of seven years thou dost make a release...
 weight: 15
 ---
 

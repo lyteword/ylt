@@ -1,7 +1,8 @@
 ---
 title: "Psalm 14 YLT | Read the Bible Online"
 linkTitle: "14"
-description: "Read Psalm 14 Online | To the Overseer. — By David. A fool hath said in his heart, 'God is not;' They have done corruptly, They have done abominable actions, There is not a doer of good..."
+description: >
+  Read Psalm 14 Online | To the Overseer. — By David. A fool hath said in his heart, 'God is not;' They have done corruptly, They have done abominable actions, There is not a doer of good...
 weight: 14
 ---
 

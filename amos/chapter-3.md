@@ -1,7 +1,8 @@
 ---
 title: "Amos 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Amos 3 Online | Hear ye this word that Jehovah hath spoken concerning you, O sons of Israel, concerning all the family that I brought up from the land of Egypt, saying..."
+description: >
+  Read Amos 3 Online | Hear ye this word that Jehovah hath spoken concerning you, O sons of Israel, concerning all the family that I brought up from the land of Egypt, saying...
 weight: 3
 ---
 

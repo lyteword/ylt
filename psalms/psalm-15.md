@@ -1,7 +1,8 @@
 ---
 title: "Psalm 15 YLT | Read the Bible Online"
 linkTitle: "15"
-description: "Read Psalm 15 Online | A Psalm of David. Jehovah, who doth sojourn in Thy tent? Who doth dwell in Thy holy hill..."
+description: >
+  Read Psalm 15 Online | A Psalm of David. Jehovah, who doth sojourn in Thy tent? Who doth dwell in Thy holy hill...
 weight: 15
 ---
 

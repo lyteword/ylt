@@ -1,7 +1,8 @@
 ---
 title: "Amos 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Amos 4 Online | Hear this word, ye kine of Bashan, Who [are] in the mountain of Samaria, Who are oppressing the poor, Who are bruising the needy, Who are saying to their lords: 'Bring in, and we do drink...."
+description: >
+  Read Amos 4 Online | Hear this word, ye kine of Bashan, Who [are] in the mountain of Samaria, Who are oppressing the poor, Who are bruising the needy, Who are saying to their lords: 'Bring in, and we do drink....
 weight: 4
 ---
 

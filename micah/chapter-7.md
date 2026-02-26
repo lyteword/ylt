@@ -1,7 +1,8 @@
 ---
 title: "Micah 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read Micah 7 Online | My woe [is] to me, for I have been As gatherings of summer-fruit, As gleanings of harvest, There is no cluster to eat, The first-ripe fruit desired hath my soul..."
+description: >
+  Read Micah 7 Online | My woe [is] to me, for I have been As gatherings of summer-fruit, As gleanings of harvest, There is no cluster to eat, The first-ripe fruit desired hath my soul...
 weight: 7
 ---
 

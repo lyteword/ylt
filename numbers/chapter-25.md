@@ -1,7 +1,8 @@
 ---
 title: "Numbers 25 YLT | Read the Bible Online"
 linkTitle: "25"
-description: "Read Numbers 25 Online | And Israel dwelleth in Shittim, and the people begin to go a-whoring unto daughters of Moab..."
+description: >
+  Read Numbers 25 Online | And Israel dwelleth in Shittim, and the people begin to go a-whoring unto daughters of Moab...
 weight: 25
 ---
 

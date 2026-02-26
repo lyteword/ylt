@@ -1,7 +1,8 @@
 ---
 title: "Psalm 63 YLT | Read the Bible Online"
 linkTitle: "63"
-description: "Read Psalm 63 Online | A Psalm of David, in his being in the wilderness of Judah. O God, Thou [art] my God, earnestly do I seek Thee, Thirsted for Thee hath my soul, Longed for Thee hath my flesh, In a land dry and weary, without waters..."
+description: >
+  Read Psalm 63 Online | A Psalm of David, in his being in the wilderness of Judah. O God, Thou [art] my God, earnestly do I seek Thee, Thirsted for Thee hath my soul, Longed for Thee hath my flesh, In a land dry and weary, without waters...
 weight: 63
 ---
 

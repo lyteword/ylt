@@ -1,7 +1,8 @@
 ---
 title: "Ezra 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read Ezra 5 Online | And prophesied have the prophets, (Haggai the prophet, and Zechariah son of Iddo) unto the Jews who [are] in Judah and in Jerusalem, in the name of the God of Israel — unto them..."
+description: >
+  Read Ezra 5 Online | And prophesied have the prophets, (Haggai the prophet, and Zechariah son of Iddo) unto the Jews who [are] in Judah and in Jerusalem, in the name of the God of Israel — unto them...
 weight: 5
 ---
 

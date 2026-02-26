@@ -1,7 +1,8 @@
 ---
 title: "1 John 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read 1 John 4 Online | Beloved, every spirit believe not, but prove the spirits, if of God they are, because many false prophets have gone forth to the world..."
+description: >
+  Read 1 John 4 Online | Beloved, every spirit believe not, but prove the spirits, if of God they are, because many false prophets have gone forth to the world...
 weight: 4
 ---
 

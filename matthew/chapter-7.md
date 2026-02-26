@@ -1,7 +1,8 @@
 ---
 title: "Matthew 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read Matthew 7 Online | 'Judge not, that ye may not be judged..."
+description: >
+  Read Matthew 7 Online | 'Judge not, that ye may not be judged...
 weight: 7
 ---
 

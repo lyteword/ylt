@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 19 YLT | Read the Bible Online"
 linkTitle: "19"
-description: "Read Isaiah 19 Online | The burden of Egypt. Lo, Jehovah is riding on a swift thick cloud, And He hath entered Egypt, And moved have been the idols of Egypt at His presence, And the heart of Egypt melteth in its midst..."
+description: >
+  Read Isaiah 19 Online | The burden of Egypt. Lo, Jehovah is riding on a swift thick cloud, And He hath entered Egypt, And moved have been the idols of Egypt at His presence, And the heart of Egypt melteth in its midst...
 weight: 19
 ---
 

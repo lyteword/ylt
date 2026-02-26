@@ -1,7 +1,8 @@
 ---
 title: "Acts 16 YLT | Read the Bible Online"
 linkTitle: "16"
-description: "Read Acts 16 Online | And he came to Derbe and Lystra, and lo, a certain disciple was there, by name Timotheus son of a certain woman, a believing Jewess, but of a father, a Greek..."
+description: >
+  Read Acts 16 Online | And he came to Derbe and Lystra, and lo, a certain disciple was there, by name Timotheus son of a certain woman, a believing Jewess, but of a father, a Greek...
 weight: 16
 ---
 

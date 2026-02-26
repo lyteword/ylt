@@ -1,7 +1,8 @@
 ---
 title: "Judges 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Judges 1 Online | And it cometh to pass, after the death of Joshua, that the sons of Israel ask at Jehovah, saying, 'Who doth go up for us unto the Canaanite, at the commencement, to fight against it?..."
+description: >
+  Read Judges 1 Online | And it cometh to pass, after the death of Joshua, that the sons of Israel ask at Jehovah, saying, 'Who doth go up for us unto the Canaanite, at the commencement, to fight against it?...
 weight: 1
 ---
 

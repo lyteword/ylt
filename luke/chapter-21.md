@@ -1,7 +1,8 @@
 ---
 title: "Luke 21 YLT | Read the Bible Online"
 linkTitle: "21"
-description: "Read Luke 21 Online | And having looked up, he saw those who did cast their gifts to the treasury — rich men..."
+description: >
+  Read Luke 21 Online | And having looked up, he saw those who did cast their gifts to the treasury — rich men...
 weight: 21
 ---
 

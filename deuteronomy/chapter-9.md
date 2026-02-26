@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read Deuteronomy 9 Online | 'Hear, Israel, thou art passing over to-day the Jordan, to go in to possess nations greater and mightier than thyself; cities great and fenced in the heavens..."
+description: >
+  Read Deuteronomy 9 Online | 'Hear, Israel, thou art passing over to-day the Jordan, to go in to possess nations greater and mightier than thyself; cities great and fenced in the heavens...
 weight: 9
 ---
 

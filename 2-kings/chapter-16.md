@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 16 YLT | Read the Bible Online"
 linkTitle: "16"
-description: "Read 2 Kings 16 Online | In the seventeenth year of Pekah son of Remaliah reigned hath Ahaz son of Jotham king of Judah..."
+description: >
+  Read 2 Kings 16 Online | In the seventeenth year of Pekah son of Remaliah reigned hath Ahaz son of Jotham king of Judah...
 weight: 16
 ---
 

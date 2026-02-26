@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 8 YLT | Read the Bible Online"
 linkTitle: "8"
-description: "Read 1 Corinthians 8 Online | And concerning the things sacrificed to idols, we have known that we all have knowledge: knowledge puffeth up, but love buildeth up..."
+description: >
+  Read 1 Corinthians 8 Online | And concerning the things sacrificed to idols, we have known that we all have knowledge: knowledge puffeth up, but love buildeth up...
 weight: 8
 ---
 

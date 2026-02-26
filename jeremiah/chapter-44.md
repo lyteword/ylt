@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 44 YLT | Read the Bible Online"
 linkTitle: "44"
-description: "Read Jeremiah 44 Online | The word that hath been unto Jeremiah concerning all the Jews who are dwelling in the land of Egypt — who are dwelling in Migdol, and in Tahpanhes, and in Noph, and in the land of Pathros — saying..."
+description: >
+  Read Jeremiah 44 Online | The word that hath been unto Jeremiah concerning all the Jews who are dwelling in the land of Egypt — who are dwelling in Migdol, and in Tahpanhes, and in Noph, and in the land of Pathros — saying...
 weight: 44
 ---
 
