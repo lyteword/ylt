@@ -1,7 +1,8 @@
 ---
 title: "Amos 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read Amos 7 Online | Thus hath the Lord Jehovah shewed me, and lo, He is forming locusts at the beginning of the ascending of the latter growth, and lo, the latter growth [is] after the mowings of the king..."
+description: >
+  Read Amos 7 Online | Thus hath the Lord Jehovah shewed me, and lo, He is forming locusts at the beginning of the ascending of the latter growth, and lo, the latter growth [is] after the mowings of the king...
 weight: 7
 ---
 

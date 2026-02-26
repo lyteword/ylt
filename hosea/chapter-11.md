@@ -1,7 +1,8 @@
 ---
 title: "Hosea 11 YLT | Read the Bible Online"
 linkTitle: "11"
-description: "Read Hosea 11 Online | Because Israel [is] a youth, and I love him, Out of Egypt I have called for My Son..."
+description: >
+  Read Hosea 11 Online | Because Israel [is] a youth, and I love him, Out of Egypt I have called for My Son...
 weight: 11
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Exodus 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Exodus 2 Online | And there goeth a man of the house of Levi, and he taketh the daughter of Levi..."
+description: >
+  Read Exodus 2 Online | And there goeth a man of the house of Levi, and he taketh the daughter of Levi...
 weight: 2
 ---
 

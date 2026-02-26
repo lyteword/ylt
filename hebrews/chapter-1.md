@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Hebrews 1 Online | In many parts, and many ways, God of old having spoken to the fathers in the prophets..."
+description: >
+  Read Hebrews 1 Online | In many parts, and many ways, God of old having spoken to the fathers in the prophets...
 weight: 1
 ---
 

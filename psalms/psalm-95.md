@@ -1,7 +1,8 @@
 ---
 title: "Psalm 95 YLT | Read the Bible Online"
 linkTitle: "95"
-description: "Read Psalm 95 Online | Come, we sing to Jehovah, We shout to the rock of our salvation..."
+description: >
+  Read Psalm 95 Online | Come, we sing to Jehovah, We shout to the rock of our salvation...
 weight: 95
 ---
 

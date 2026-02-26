@@ -1,7 +1,8 @@
 ---
 title: "Luke 14 YLT | Read the Bible Online"
 linkTitle: "14"
-description: "Read Luke 14 Online | And it came to pass, on his going into the house of a certain one of the chiefs of the Pharisees, on a sabbath, to eat bread, that they were watching him..."
+description: >
+  Read Luke 14 Online | And it came to pass, on his going into the house of a certain one of the chiefs of the Pharisees, on a sabbath, to eat bread, that they were watching him...
 weight: 14
 ---
 

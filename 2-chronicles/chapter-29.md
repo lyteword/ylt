@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 29 YLT | Read the Bible Online"
 linkTitle: "29"
-description: "Read 2 Chronicles 29 Online | Hezekiah hath reigned — a son of twenty and five years, and twenty and nine years he hath reigned in Jerusalem, and the name of his mother [is] Abijah daughter of Zechariah..."
+description: >
+  Read 2 Chronicles 29 Online | Hezekiah hath reigned — a son of twenty and five years, and twenty and nine years he hath reigned in Jerusalem, and the name of his mother [is] Abijah daughter of Zechariah...
 weight: 29
 ---
 

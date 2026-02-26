@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 24 YLT | Read the Bible Online"
 linkTitle: "24"
-description: "Read Proverbs 24 Online | Be not envious of evil men, And desire not to be with them..."
+description: >
+  Read Proverbs 24 Online | Be not envious of evil men, And desire not to be with them...
 weight: 24
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 28 YLT | Read the Bible Online"
 linkTitle: "28"
-description: "Read Jeremiah 28 Online | And it cometh to pass, in that year, in the beginning of the reign of Zedekiah king of Judah, in the fourth year, in the fifth month, spoken unto me hath Hananiah son of Azur the prophet, who [is] of Gibeon, in the house of Jehovah, before the eyes of the priests, and all the people, saying..."
+description: >
+  Read Jeremiah 28 Online | And it cometh to pass, in that year, in the beginning of the reign of Zedekiah king of Judah, in the fourth year, in the fifth month, spoken unto me hath Hananiah son of Azur the prophet, who [is] of Gibeon, in the house of Jehovah, before the eyes of the priests, and all the people, saying...
 weight: 28
 ---
 

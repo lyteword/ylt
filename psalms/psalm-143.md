@@ -1,7 +1,8 @@
 ---
 title: "Psalm 143 YLT | Read the Bible Online"
 linkTitle: "143"
-description: "Read Psalm 143 Online | A Psalm of David. O Jehovah, hear my prayer, Give ear unto my supplications, In Thy faithfulness answer me — in Thy righteousness..."
+description: >
+  Read Psalm 143 Online | A Psalm of David. O Jehovah, hear my prayer, Give ear unto my supplications, In Thy faithfulness answer me — in Thy righteousness...
 weight: 143
 ---
 

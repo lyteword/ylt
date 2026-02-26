@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read 2 Chronicles 3 Online | And Solomon beginneth to build the house of Jehovah, in Jerusalem, in the mount of Moriah, where He appeared to David his father, in the place that David had prepared, in the threshing-floor of Ornan the Jebusite..."
+description: >
+  Read 2 Chronicles 3 Online | And Solomon beginneth to build the house of Jehovah, in Jerusalem, in the mount of Moriah, where He appeared to David his father, in the place that David had prepared, in the threshing-floor of Ornan the Jebusite...
 weight: 3
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Matthew 26 YLT | Read the Bible Online"
 linkTitle: "26"
-description: "Read Matthew 26 Online | And it came to pass, when Jesus finished all these words, he said to his disciples..."
+description: >
+  Read Matthew 26 Online | And it came to pass, when Jesus finished all these words, he said to his disciples...
 weight: 26
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 22 YLT | Read the Bible Online"
 linkTitle: "22"
-description: "Read Psalm 22 Online | To the Overseer, on 'The Hind of the Morning.' — A Psalm of David. My God, my God, why hast Thou forsaken me? Far from my salvation, The words of my roaring..."
+description: >
+  Read Psalm 22 Online | To the Overseer, on 'The Hind of the Morning.' — A Psalm of David. My God, my God, why hast Thou forsaken me? Far from my salvation, The words of my roaring...
 weight: 22
 ---
 

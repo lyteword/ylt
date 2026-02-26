@@ -1,7 +1,8 @@
 ---
 title: "Judges 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read Judges 9 Online | and Abimelech son of Jerubbaal goeth to Shechem, unto his mother's brethren, and speaketh unto them, and unto all the family of the house of his mother's father, saying..."
+description: >
+  Read Judges 9 Online | and Abimelech son of Jerubbaal goeth to Shechem, unto his mother's brethren, and speaketh unto them, and unto all the family of the house of his mother's father, saying...
 weight: 9
 ---
 

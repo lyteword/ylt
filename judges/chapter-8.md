@@ -1,7 +1,8 @@
 ---
 title: "Judges 8 YLT | Read the Bible Online"
 linkTitle: "8"
-description: "Read Judges 8 Online | And the men of Ephraim say unto him, 'What [is] this thing thou hast done to us — not to call for us when thou didst go to fight with Midian?' and they strive with him severely..."
+description: >
+  Read Judges 8 Online | And the men of Ephraim say unto him, 'What [is] this thing thou hast done to us — not to call for us when thou didst go to fight with Midian?' and they strive with him severely...
 weight: 8
 ---
 

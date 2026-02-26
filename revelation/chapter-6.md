@@ -1,7 +1,8 @@
 ---
 title: "Revelation 6 YLT | Read the Bible Online"
 linkTitle: "6"
-description: "Read Revelation 6 Online | And I saw when the Lamb opened one of the seals, and I heard one of the four living creatures saying, as it were a voice of thunder, 'Come and behold!..."
+description: >
+  Read Revelation 6 Online | And I saw when the Lamb opened one of the seals, and I heard one of the four living creatures saying, as it were a voice of thunder, 'Come and behold!...
 weight: 6
 ---
 

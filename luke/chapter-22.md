@@ -1,7 +1,8 @@
 ---
 title: "Luke 22 YLT | Read the Bible Online"
 linkTitle: "22"
-description: "Read Luke 22 Online | And the feast of the unleavened food was coming nigh, that is called Passover..."
+description: >
+  Read Luke 22 Online | And the feast of the unleavened food was coming nigh, that is called Passover...
 weight: 22
 ---
 

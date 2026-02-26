@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 38 YLT | Read the Bible Online"
 linkTitle: "38"
-description: "Read Ezekiel 38 Online | And there is a word of Jehovah unto me, saying..."
+description: >
+  Read Ezekiel 38 Online | And there is a word of Jehovah unto me, saying...
 weight: 38
 ---
 

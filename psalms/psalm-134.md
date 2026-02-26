@@ -1,7 +1,8 @@
 ---
 title: "Psalm 134 YLT | Read the Bible Online"
 linkTitle: "134"
-description: "Read Psalm 134 Online | A Song of the Ascents. Lo, bless Jehovah, all servants of Jehovah, Who are standing in the house of Jehovah by night..."
+description: >
+  Read Psalm 134 Online | A Song of the Ascents. Lo, bless Jehovah, all servants of Jehovah, Who are standing in the house of Jehovah by night...
 weight: 134
 ---
 

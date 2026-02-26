@@ -1,7 +1,8 @@
 ---
 title: "Numbers 10 YLT | Read the Bible Online"
 linkTitle: "10"
-description: "Read Numbers 10 Online | And Jehovah speaketh unto Moses, saying..."
+description: >
+  Read Numbers 10 Online | And Jehovah speaketh unto Moses, saying...
 weight: 10
 ---
 

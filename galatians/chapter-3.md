@@ -1,7 +1,8 @@
 ---
 title: "Galatians 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Galatians 3 Online | O thoughtless Galatians, who did bewitch you, not to obey the truth — before whose eyes Jesus Christ was described before among you crucified..."
+description: >
+  Read Galatians 3 Online | O thoughtless Galatians, who did bewitch you, not to obey the truth — before whose eyes Jesus Christ was described before among you crucified...
 weight: 3
 ---
 

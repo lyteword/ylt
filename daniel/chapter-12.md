@@ -1,7 +1,8 @@
 ---
 title: "Daniel 12 YLT | Read the Bible Online"
 linkTitle: "12"
-description: "Read Daniel 12 Online | 'And at that time stand up doth Michael, the great head, who is standing up for the sons of thy people, and there hath been a time of distress, such as hath not been since there hath been a nation till that time, and at that time do thy people escape, every one who is found written in the book..."
+description: >
+  Read Daniel 12 Online | 'And at that time stand up doth Michael, the great head, who is standing up for the sons of thy people, and there hath been a time of distress, such as hath not been since there hath been a nation till that time, and at that time do thy people escape, every one who is found written in the book...
 weight: 12
 ---
 

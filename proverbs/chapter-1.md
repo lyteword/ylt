@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Proverbs 1 Online | Proverbs of Solomon, son of David, king of Israel..."
+description: >
+  Read Proverbs 1 Online | Proverbs of Solomon, son of David, king of Israel...
 weight: 1
 ---
 

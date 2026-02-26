@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read Jeremiah 5 Online | Go to and fro in streets of Jerusalem, And see, I pray you, and know, And seek in her broad places, if ye find a man, If there be one doing judgment, seeking stedfastness — Then am I propitious to her..."
+description: >
+  Read Jeremiah 5 Online | Go to and fro in streets of Jerusalem, And see, I pray you, and know, And seek in her broad places, if ye find a man, If there be one doing judgment, seeking stedfastness — Then am I propitious to her...
 weight: 5
 ---
 

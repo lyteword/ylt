@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 20 YLT | Read the Bible Online"
 linkTitle: "20"
-description: "Read Leviticus 20 Online | And Jehovah speaketh unto Moses, saying..."
+description: >
+  Read Leviticus 20 Online | And Jehovah speaketh unto Moses, saying...
 weight: 20
 ---
 

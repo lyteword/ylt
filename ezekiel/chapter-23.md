@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 23 YLT | Read the Bible Online"
 linkTitle: "23"
-description: "Read Ezekiel 23 Online | And there is a word of Jehovah unto me, saying, 'Son of man..."
+description: >
+  Read Ezekiel 23 Online | And there is a word of Jehovah unto me, saying, 'Son of man...
 weight: 23
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 59 YLT | Read the Bible Online"
 linkTitle: "59"
-description: "Read Isaiah 59 Online | Lo, the hand of Jehovah Hath not been shortened from saving, Nor heavy his ear from hearing..."
+description: >
+  Read Isaiah 59 Online | Lo, the hand of Jehovah Hath not been shortened from saving, Nor heavy his ear from hearing...
 weight: 59
 ---
 

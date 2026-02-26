@@ -1,7 +1,8 @@
 ---
 title: "Exodus 34 YLT | Read the Bible Online"
 linkTitle: "34"
-description: "Read Exodus 34 Online | And Jehovah saith unto Moses, 'Hew for thyself two tables of stone like the first, and I have written on the tables the words which were on the first tables which thou hast broken..."
+description: >
+  Read Exodus 34 Online | And Jehovah saith unto Moses, 'Hew for thyself two tables of stone like the first, and I have written on the tables the words which were on the first tables which thou hast broken...
 weight: 34
 ---
 

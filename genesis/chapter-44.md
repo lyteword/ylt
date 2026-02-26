@@ -1,7 +1,8 @@
 ---
 title: "Genesis 44 YLT | Read the Bible Online"
 linkTitle: "44"
-description: "Read Genesis 44 Online | And he commandeth him who [is] over his house, saying, 'Fill the bags of the men [with] food, as they are able to bear, and put the money of each in the mouth of his bag..."
+description: >
+  Read Genesis 44 Online | And he commandeth him who [is] over his house, saying, 'Fill the bags of the men [with] food, as they are able to bear, and put the money of each in the mouth of his bag...
 weight: 44
 ---
 

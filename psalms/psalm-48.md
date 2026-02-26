@@ -1,7 +1,8 @@
 ---
 title: "Psalm 48 YLT | Read the Bible Online"
 linkTitle: "48"
-description: "Read Psalm 48 Online | A Song, a Psalm, by sons of Korah. Great [is] Jehovah, and praised greatly, In the city of our God — His holy hill..."
+description: >
+  Read Psalm 48 Online | A Song, a Psalm, by sons of Korah. Great [is] Jehovah, and praised greatly, In the city of our God — His holy hill...
 weight: 48
 ---
 

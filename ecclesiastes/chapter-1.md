@@ -1,7 +1,8 @@
 ---
 title: "Ecclesiastes 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Ecclesiastes 1 Online | Words of a preacher, son of David, king in Jerusalem..."
+description: >
+  Read Ecclesiastes 1 Online | Words of a preacher, son of David, king in Jerusalem...
 weight: 1
 ---
 

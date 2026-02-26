@@ -1,7 +1,8 @@
 ---
 title: "Exodus 16 YLT | Read the Bible Online"
 linkTitle: "16"
-description: "Read Exodus 16 Online | And they journey from Elim, and all the company of the sons of Israel come in unto the wilderness of Sin, which [is] between Elim and Sinai, on the fifteenth day of the second month of their going out from the land of Egypt..."
+description: >
+  Read Exodus 16 Online | And they journey from Elim, and all the company of the sons of Israel come in unto the wilderness of Sin, which [is] between Elim and Sinai, on the fifteenth day of the second month of their going out from the land of Egypt...
 weight: 16
 ---
 

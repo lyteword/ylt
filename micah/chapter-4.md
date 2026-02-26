@@ -1,7 +1,8 @@
 ---
 title: "Micah 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Micah 4 Online | And it hath come to pass, In the latter end of the days, The mount of the house of Jehovah Is established above the top of the mounts, And it hath been lifted up above the hills, And flowed unto it have peoples..."
+description: >
+  Read Micah 4 Online | And it hath come to pass, In the latter end of the days, The mount of the house of Jehovah Is established above the top of the mounts, And it hath been lifted up above the hills, And flowed unto it have peoples...
 weight: 4
 ---
 

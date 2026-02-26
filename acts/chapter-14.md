@@ -1,7 +1,8 @@
 ---
 title: "Acts 14 YLT | Read the Bible Online"
 linkTitle: "14"
-description: "Read Acts 14 Online | And it came to pass in Iconium, that they did enter together into the synagogue of the Jews, and spake, so that there believed both of Jews and Greeks a great multitude..."
+description: >
+  Read Acts 14 Online | And it came to pass in Iconium, that they did enter together into the synagogue of the Jews, and spake, so that there believed both of Jews and Greeks a great multitude...
 weight: 14
 ---
 

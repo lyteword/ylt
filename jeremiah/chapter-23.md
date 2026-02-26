@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 23 YLT | Read the Bible Online"
 linkTitle: "23"
-description: "Read Jeremiah 23 Online | Woe to shepherds destroying, And scattering the flock of My pasture, An affirmation of Jehovah..."
+description: >
+  Read Jeremiah 23 Online | Woe to shepherds destroying, And scattering the flock of My pasture, An affirmation of Jehovah...
 weight: 23
 ---
 

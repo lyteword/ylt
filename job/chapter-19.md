@@ -1,7 +1,8 @@
 ---
 title: "Job 19 YLT | Read the Bible Online"
 linkTitle: "19"
-description: "Read Job 19 Online | And Job answereth and saith: ..."
+description: >
+  Read Job 19 Online | And Job answereth and saith: ...
 weight: 19
 ---
 

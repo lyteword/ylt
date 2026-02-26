@@ -1,7 +1,8 @@
 ---
 title: "Job 40 YLT | Read the Bible Online"
 linkTitle: "40"
-description: "Read Job 40 Online | And Jehovah doth answer Job, and saith: ..."
+description: >
+  Read Job 40 Online | And Jehovah doth answer Job, and saith: ...
 weight: 40
 ---
 

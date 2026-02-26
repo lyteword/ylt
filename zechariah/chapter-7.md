@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read Zechariah 7 Online | And it cometh to pass, in the fourth year of Darius the king hath a word of Jehovah been unto Zechariah, in the fourth of the ninth month, in Chisleu..."
+description: >
+  Read Zechariah 7 Online | And it cometh to pass, in the fourth year of Darius the king hath a word of Jehovah been unto Zechariah, in the fourth of the ninth month, in Chisleu...
 weight: 7
 ---
 

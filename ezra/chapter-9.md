@@ -1,7 +1,8 @@
 ---
 title: "Ezra 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read Ezra 9 Online | And at the completion of these things, drawn nigh unto me have the heads, saying, 'The people of Israel, and the priests, and the Levites, have not been separated from the peoples of the lands, as to their abominations, even the Canaanite, the Hittite, the Perizzite, the Jebusite, the Ammonite, the Moabite, the Egyptian, and the Amorite..."
+description: >
+  Read Ezra 9 Online | And at the completion of these things, drawn nigh unto me have the heads, saying, 'The people of Israel, and the priests, and the Levites, have not been separated from the peoples of the lands, as to their abominations, even the Canaanite, the Hittite, the Perizzite, the Jebusite, the Ammonite, the Moabite, the Egyptian, and the Amorite...
 weight: 9
 ---
 

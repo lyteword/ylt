@@ -1,7 +1,8 @@
 ---
 title: "Numbers 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read Numbers 7 Online | And it cometh to pass on the day of Moses' finishing setting up the tabernacle, that he anointeth it, and sanctifieth it, and all its vessels, and the altar, and all its vessels, and he anointeth them, and sanctifieth them..."
+description: >
+  Read Numbers 7 Online | And it cometh to pass on the day of Moses' finishing setting up the tabernacle, that he anointeth it, and sanctifieth it, and all its vessels, and the altar, and all its vessels, and he anointeth them, and sanctifieth them...
 weight: 7
 ---
 

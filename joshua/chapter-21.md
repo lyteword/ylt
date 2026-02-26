@@ -1,7 +1,8 @@
 ---
 title: "Joshua 21 YLT | Read the Bible Online"
 linkTitle: "21"
-description: "Read Joshua 21 Online | And the heads of the fathers of the Levites draw nigh unto Eleazar the priest, and unto Joshua son of Nun, and unto the heads of the fathers of the tribes of the sons of Israel..."
+description: >
+  Read Joshua 21 Online | And the heads of the fathers of the Levites draw nigh unto Eleazar the priest, and unto Joshua son of Nun, and unto the heads of the fathers of the tribes of the sons of Israel...
 weight: 21
 ---
 

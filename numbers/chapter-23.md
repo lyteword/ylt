@@ -1,7 +1,8 @@
 ---
 title: "Numbers 23 YLT | Read the Bible Online"
 linkTitle: "23"
-description: "Read Numbers 23 Online | And Balaam saith unto Balak, 'Build for me in this [place] seven altars, and make ready for me in this [place] seven bullocks and seven rams...."
+description: >
+  Read Numbers 23 Online | And Balaam saith unto Balak, 'Build for me in this [place] seven altars, and make ready for me in this [place] seven bullocks and seven rams....
 weight: 23
 ---
 

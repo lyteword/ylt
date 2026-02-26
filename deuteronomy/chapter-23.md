@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 23 YLT | Read the Bible Online"
 linkTitle: "23"
-description: "Read Deuteronomy 23 Online | 'One wounded, bruised, or cut in the member doth not enter into the assembly of Jehovah..."
+description: >
+  Read Deuteronomy 23 Online | 'One wounded, bruised, or cut in the member doth not enter into the assembly of Jehovah...
 weight: 23
 ---
 

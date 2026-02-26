@@ -1,7 +1,8 @@
 ---
 title: "Matthew 25 YLT | Read the Bible Online"
 linkTitle: "25"
-description: "Read Matthew 25 Online | 'Then shall the reign of the heavens be likened to ten virgins, who, having taken their lamps, went forth to meet the bridegroom..."
+description: >
+  Read Matthew 25 Online | 'Then shall the reign of the heavens be likened to ten virgins, who, having taken their lamps, went forth to meet the bridegroom...
 weight: 25
 ---
 

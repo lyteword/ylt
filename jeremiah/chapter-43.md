@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 43 YLT | Read the Bible Online"
 linkTitle: "43"
-description: "Read Jeremiah 43 Online | And it cometh to pass, when Jeremiah doth finish to speak unto all the people all the words of Jehovah their God, with which Jehovah their God hath sent him unto them — all these words ..."
+description: >
+  Read Jeremiah 43 Online | And it cometh to pass, when Jeremiah doth finish to speak unto all the people all the words of Jehovah their God, with which Jehovah their God hath sent him unto them — all these words ...
 weight: 43
 ---
 

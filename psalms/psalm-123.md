@@ -1,7 +1,8 @@
 ---
 title: "Psalm 123 YLT | Read the Bible Online"
 linkTitle: "123"
-description: "Read Psalm 123 Online | A Song of the Ascents. Unto Thee I have lifted up mine eyes, O dweller in the heavens..."
+description: >
+  Read Psalm 123 Online | A Song of the Ascents. Unto Thee I have lifted up mine eyes, O dweller in the heavens...
 weight: 123
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read 2 Samuel 7 Online | And it cometh to pass, when the king sat in his house, and Jehovah hath given rest to him round about, from all his enemies..."
+description: >
+  Read 2 Samuel 7 Online | And it cometh to pass, when the king sat in his house, and Jehovah hath given rest to him round about, from all his enemies...
 weight: 7
 ---
 

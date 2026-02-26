@@ -1,7 +1,8 @@
 ---
 title: "Numbers 14 YLT | Read the Bible Online"
 linkTitle: "14"
-description: "Read Numbers 14 Online | And all the company lifteth up and give forth their voice, and the people weep during that night..."
+description: >
+  Read Numbers 14 Online | And all the company lifteth up and give forth their voice, and the people weep during that night...
 weight: 14
 ---
 

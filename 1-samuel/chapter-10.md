@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 10 YLT | Read the Bible Online"
 linkTitle: "10"
-description: "Read 1 Samuel 10 Online | And Samuel taketh the vial of the oil, and poureth on his head, and kisseth him, and saith, 'Is it not because Jehovah hath appointed thee over His inheritance for leader..."
+description: >
+  Read 1 Samuel 10 Online | And Samuel taketh the vial of the oil, and poureth on his head, and kisseth him, and saith, 'Is it not because Jehovah hath appointed thee over His inheritance for leader...
 weight: 10
 ---
 

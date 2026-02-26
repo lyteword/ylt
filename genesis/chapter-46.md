@@ -1,7 +1,8 @@
 ---
 title: "Genesis 46 YLT | Read the Bible Online"
 linkTitle: "46"
-description: "Read Genesis 46 Online | And Israel journeyeth, and all that he hath, and cometh in to Beer-Sheba, and sacrificeth sacrifices to the God of his father Isaac..."
+description: >
+  Read Genesis 46 Online | And Israel journeyeth, and all that he hath, and cometh in to Beer-Sheba, and sacrificeth sacrifices to the God of his father Isaac...
 weight: 46
 ---
 

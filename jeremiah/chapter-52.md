@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 52 YLT | Read the Bible Online"
 linkTitle: "52"
-description: "Read Jeremiah 52 Online | A son of twenty and one years [is] Zedekiah in his reigning, and eleven years he hath reigned in Jerusalem, and the name of his mother [is] Hamutal daughter of Jeremiah of Libnah..."
+description: >
+  Read Jeremiah 52 Online | A son of twenty and one years [is] Zedekiah in his reigning, and eleven years he hath reigned in Jerusalem, and the name of his mother [is] Hamutal daughter of Jeremiah of Libnah...
 weight: 52
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read 1 Kings 4 Online | And king Solomon is king over all Israel..."
+description: >
+  Read 1 Kings 4 Online | And king Solomon is king over all Israel...
 weight: 4
 ---
 

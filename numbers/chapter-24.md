@@ -1,7 +1,8 @@
 ---
 title: "Numbers 24 YLT | Read the Bible Online"
 linkTitle: "24"
-description: "Read Numbers 24 Online | And Balaam seeth that [it is] good in the eyes of Jehovah to bless Israel, and he hath not gone as time by time to meet enchantments, and he setteth towards the wilderness his face..."
+description: >
+  Read Numbers 24 Online | And Balaam seeth that [it is] good in the eyes of Jehovah to bless Israel, and he hath not gone as time by time to meet enchantments, and he setteth towards the wilderness his face...
 weight: 24
 ---
 

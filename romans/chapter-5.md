@@ -1,7 +1,8 @@
 ---
 title: "Romans 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read Romans 5 Online | Having been declared righteous, then, by faith, we have peace toward God through our Lord Jesus Christ..."
+description: >
+  Read Romans 5 Online | Having been declared righteous, then, by faith, we have peace toward God through our Lord Jesus Christ...
 weight: 5
 ---
 

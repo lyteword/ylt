@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 56 YLT | Read the Bible Online"
 linkTitle: "56"
-description: "Read Isaiah 56 Online | Thus said Jehovah: 'Keep ye judgment, and do righteousness, For near [is] My salvation to come, And My righteousness to be revealed...."
+description: >
+  Read Isaiah 56 Online | Thus said Jehovah: 'Keep ye judgment, and do righteousness, For near [is] My salvation to come, And My righteousness to be revealed....
 weight: 56
 ---
 

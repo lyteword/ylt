@@ -1,7 +1,8 @@
 ---
 title: "Matthew 10 YLT | Read the Bible Online"
 linkTitle: "10"
-description: "Read Matthew 10 Online | And having called to him his twelve disciples, he gave to them power over unclean spirits, so as to be casting them out, and to be healing every sickness, and every malady..."
+description: >
+  Read Matthew 10 Online | And having called to him his twelve disciples, he gave to them power over unclean spirits, so as to be casting them out, and to be healing every sickness, and every malady...
 weight: 10
 ---
 

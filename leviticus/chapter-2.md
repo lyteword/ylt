@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Leviticus 2 Online | 'And when a person bringeth near an offering, a present to Jehovah, of flour is his offering, and he hath poured on it oil, and hath put on it frankincense..."
+description: >
+  Read Leviticus 2 Online | 'And when a person bringeth near an offering, a present to Jehovah, of flour is his offering, and he hath poured on it oil, and hath put on it frankincense...
 weight: 2
 ---
 

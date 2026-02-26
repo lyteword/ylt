@@ -1,7 +1,8 @@
 ---
 title: "Numbers 22 YLT | Read the Bible Online"
 linkTitle: "22"
-description: "Read Numbers 22 Online | And the sons of Israel journey and encamp in the plains of Moab, beyond the Jordan, [by] Jericho..."
+description: >
+  Read Numbers 22 Online | And the sons of Israel journey and encamp in the plains of Moab, beyond the Jordan, [by] Jericho...
 weight: 22
 ---
 

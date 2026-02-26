@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 17 YLT | Read the Bible Online"
 linkTitle: "17"
-description: "Read Deuteronomy 17 Online | 'Thou dost not sacrifice to Jehovah thy God ox or sheep in which there is a blemish — any evil thing; for it [is] the abomination of Jehovah thy God..."
+description: >
+  Read Deuteronomy 17 Online | 'Thou dost not sacrifice to Jehovah thy God ox or sheep in which there is a blemish — any evil thing; for it [is] the abomination of Jehovah thy God...
 weight: 17
 ---
 

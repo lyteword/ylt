@@ -1,7 +1,8 @@
 ---
 title: "Luke 18 YLT | Read the Bible Online"
 linkTitle: "18"
-description: "Read Luke 18 Online | And he spake also a simile to them, that it behoveth [us] always to pray, and not to faint..."
+description: >
+  Read Luke 18 Online | And he spake also a simile to them, that it behoveth [us] always to pray, and not to faint...
 weight: 18
 ---
 

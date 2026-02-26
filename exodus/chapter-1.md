@@ -1,7 +1,8 @@
 ---
 title: "Exodus 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Exodus 1 Online | And these [are] the names of the sons of Israel who are coming into Egypt with Jacob; a man and his household have they come..."
+description: >
+  Read Exodus 1 Online | And these [are] the names of the sons of Israel who are coming into Egypt with Jacob; a man and his household have they come...
 weight: 1
 ---
 

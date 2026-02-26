@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 30 YLT | Read the Bible Online"
 linkTitle: "30"
-description: "Read Deuteronomy 30 Online | 'And it hath been, when all these things come upon thee, the blessing and the reviling, which I have set before thee, and thou hast brought [them] back unto thy heart, among all the nations whither Jehovah thy God hath driven thee away..."
+description: >
+  Read Deuteronomy 30 Online | 'And it hath been, when all these things come upon thee, the blessing and the reviling, which I have set before thee, and thou hast brought [them] back unto thy heart, among all the nations whither Jehovah thy God hath driven thee away...
 weight: 30
 ---
 

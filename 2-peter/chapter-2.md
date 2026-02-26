@@ -1,7 +1,8 @@
 ---
 title: "2 Peter 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read 2 Peter 2 Online | And there did come also false prophets among the people, as also among you there shall be false teachers, who shall bring in besides destructive sects, and the Master who bought them denying, bringing to themselves quick destruction..."
+description: >
+  Read 2 Peter 2 Online | And there did come also false prophets among the people, as also among you there shall be false teachers, who shall bring in besides destructive sects, and the Master who bought them denying, bringing to themselves quick destruction...
 weight: 2
 ---
 

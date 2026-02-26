@@ -1,7 +1,8 @@
 ---
 title: "Ruth 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Ruth 2 Online | And Naomi hath an acquaintance of her husband's, a man mighty in wealth, of the family of Elimelech, and his name [is] Boaz..."
+description: >
+  Read Ruth 2 Online | And Naomi hath an acquaintance of her husband's, a man mighty in wealth, of the family of Elimelech, and his name [is] Boaz...
 weight: 2
 ---
 

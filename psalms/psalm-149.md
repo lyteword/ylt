@@ -1,7 +1,8 @@
 ---
 title: "Psalm 149 YLT | Read the Bible Online"
 linkTitle: "149"
-description: "Read Psalm 149 Online | Praise ye Jah! Sing ye to Jehovah a new song, His praise in an assembly of saints..."
+description: >
+  Read Psalm 149 Online | Praise ye Jah! Sing ye to Jehovah a new song, His praise in an assembly of saints...
 weight: 149
 ---
 

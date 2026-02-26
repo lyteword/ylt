@@ -1,7 +1,8 @@
 ---
 title: "Song Of Solomon 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Song Of Solomon 4 Online | Lo, thou [art] fair, my friend, lo, thou [art] fair, Thine eyes [are] doves behind thy veil, Thy hair as a row of the goats That have shone from mount Gilead..."
+description: >
+  Read Song Of Solomon 4 Online | Lo, thou [art] fair, my friend, lo, thou [art] fair, Thine eyes [are] doves behind thy veil, Thy hair as a row of the goats That have shone from mount Gilead...
 weight: 4
 ---
 

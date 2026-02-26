@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 25 YLT | Read the Bible Online"
 linkTitle: "25"
-description: "Read 1 Chronicles 25 Online | And David and the heads of the host separate for service, of the sons of Asaph, and Heman, and Jeduthun, who are prophesying with harps, with psalteries, and with cymbals, and the number of the workmen is according to their service..."
+description: >
+  Read 1 Chronicles 25 Online | And David and the heads of the host separate for service, of the sons of Asaph, and Heman, and Jeduthun, who are prophesying with harps, with psalteries, and with cymbals, and the number of the workmen is according to their service...
 weight: 25
 ---
 

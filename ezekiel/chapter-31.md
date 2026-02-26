@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 31 YLT | Read the Bible Online"
 linkTitle: "31"
-description: "Read Ezekiel 31 Online | And it cometh to pass, in the eleventh year, in the third [month], in the first of the month, hath a word of Jehovah been unto me, saying..."
+description: >
+  Read Ezekiel 31 Online | And it cometh to pass, in the eleventh year, in the third [month], in the first of the month, hath a word of Jehovah been unto me, saying...
 weight: 31
 ---
 

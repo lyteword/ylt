@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 25 YLT | Read the Bible Online"
 linkTitle: "25"
-description: "Read Proverbs 25 Online | Also these are Proverbs of Solomon, that men of Hezekiah king of Judah transcribed: ..."
+description: >
+  Read Proverbs 25 Online | Also these are Proverbs of Solomon, that men of Hezekiah king of Judah transcribed: ...
 weight: 25
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read Leviticus 5 Online | 'And when a person doth sin, and hath heard the voice of an oath, and he [is] witness, or hath seen, or hath known — if he declare not, then he hath borne his iniquity..."
+description: >
+  Read Leviticus 5 Online | 'And when a person doth sin, and hath heard the voice of an oath, and he [is] witness, or hath seen, or hath known — if he declare not, then he hath borne his iniquity...
 weight: 5
 ---
 

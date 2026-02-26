@@ -1,7 +1,8 @@
 ---
 title: "John 18 YLT | Read the Bible Online"
 linkTitle: "18"
-description: "Read John 18 Online | These things having said, Jesus went forth with his disciples beyond the brook of Kedron, where was a garden, into which he entered, himself and his disciples..."
+description: >
+  Read John 18 Online | These things having said, Jesus went forth with his disciples beyond the brook of Kedron, where was a garden, into which he entered, himself and his disciples...
 weight: 18
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Luke 17 YLT | Read the Bible Online"
 linkTitle: "17"
-description: "Read Luke 17 Online | And he said unto the disciples, 'It is impossible for the stumbling blocks not to come, but woe [to him] through whom they come..."
+description: >
+  Read Luke 17 Online | And he said unto the disciples, 'It is impossible for the stumbling blocks not to come, but woe [to him] through whom they come...
 weight: 17
 ---
 

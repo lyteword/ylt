@@ -1,7 +1,8 @@
 ---
 title: "Judges 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read Judges 7 Online | And Jerubbaal (he [is] Gideon) riseth early, and all the people who [are] with him, and they encamp by the well of Harod, and the camp of Midian hath been on the south of him, on the height of Moreh, in the valley..."
+description: >
+  Read Judges 7 Online | And Jerubbaal (he [is] Gideon) riseth early, and all the people who [are] with him, and they encamp by the well of Harod, and the camp of Midian hath been on the south of him, on the height of Moreh, in the valley...
 weight: 7
 ---
 

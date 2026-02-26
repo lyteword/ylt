@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 18 YLT | Read the Bible Online"
 linkTitle: "18"
-description: "Read Deuteronomy 18 Online | 'There is not to the priests the Levites — all the tribe of Levi — a portion and inheritance with Israel; fire-offerings of Jehovah, even His inheritance, they eat..."
+description: >
+  Read Deuteronomy 18 Online | 'There is not to the priests the Levites — all the tribe of Levi — a portion and inheritance with Israel; fire-offerings of Jehovah, even His inheritance, they eat...
 weight: 18
 ---
 

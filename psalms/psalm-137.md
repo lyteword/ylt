@@ -1,7 +1,8 @@
 ---
 title: "Psalm 137 YLT | Read the Bible Online"
 linkTitle: "137"
-description: "Read Psalm 137 Online | By rivers of Babylon — There we did sit, Yea, we wept when we remembered Zion..."
+description: >
+  Read Psalm 137 Online | By rivers of Babylon — There we did sit, Yea, we wept when we remembered Zion...
 weight: 137
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 19 YLT | Read the Bible Online"
 linkTitle: "19"
-description: "Read 2 Kings 19 Online | And it cometh to pass, at king Hezekiah's hearing, that he rendeth his garments, and covereth himself with sackcloth, and entereth the house of Jehovah..."
+description: >
+  Read 2 Kings 19 Online | And it cometh to pass, at king Hezekiah's hearing, that he rendeth his garments, and covereth himself with sackcloth, and entereth the house of Jehovah...
 weight: 19
 ---
 

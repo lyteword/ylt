@@ -1,7 +1,8 @@
 ---
 title: "James 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read James 5 Online | Go, now, ye rich! weep, howling over your miseries that are coming upon [you]..."
+description: >
+  Read James 5 Online | Go, now, ye rich! weep, howling over your miseries that are coming upon [you]...
 weight: 5
 ---
 

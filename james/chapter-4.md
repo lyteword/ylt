@@ -1,7 +1,8 @@
 ---
 title: "James 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read James 4 Online | Whence [are] wars and fightings among you? not thence — out of your passions, that are as soldiers in your members..."
+description: >
+  Read James 4 Online | Whence [are] wars and fightings among you? not thence — out of your passions, that are as soldiers in your members...
 weight: 4
 ---
 

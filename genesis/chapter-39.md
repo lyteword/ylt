@@ -1,7 +1,8 @@
 ---
 title: "Genesis 39 YLT | Read the Bible Online"
 linkTitle: "39"
-description: "Read Genesis 39 Online | And Joseph hath been brought down to Egypt, and Potiphar, a eunuch of Pharaoh, head of the executioners, an Egyptian man, buyeth him out of the hands of the Ishmaelites who have brought him thither..."
+description: >
+  Read Genesis 39 Online | And Joseph hath been brought down to Egypt, and Potiphar, a eunuch of Pharaoh, head of the executioners, an Egyptian man, buyeth him out of the hands of the Ishmaelites who have brought him thither...
 weight: 39
 ---
 

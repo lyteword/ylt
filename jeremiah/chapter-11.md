@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 11 YLT | Read the Bible Online"
 linkTitle: "11"
-description: "Read Jeremiah 11 Online | The word that hath been unto Jeremiah from Jehovah, saying..."
+description: >
+  Read Jeremiah 11 Online | The word that hath been unto Jeremiah from Jehovah, saying...
 weight: 11
 ---
 

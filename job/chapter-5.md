@@ -1,7 +1,8 @@
 ---
 title: "Job 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read Job 5 Online | Pray, call, is there any to answer thee? And unto which of the holy ones dost thou turn..."
+description: >
+  Read Job 5 Online | Pray, call, is there any to answer thee? And unto which of the holy ones dost thou turn...
 weight: 5
 ---
 

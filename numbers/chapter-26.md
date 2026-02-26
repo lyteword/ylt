@@ -1,7 +1,8 @@
 ---
 title: "Numbers 26 YLT | Read the Bible Online"
 linkTitle: "26"
-description: "Read Numbers 26 Online | And it cometh to pass, after the plague, that Jehovah speaketh unto Moses, and unto Eleazar son of Aaron the priest, saying..."
+description: >
+  Read Numbers 26 Online | And it cometh to pass, after the plague, that Jehovah speaketh unto Moses, and unto Eleazar son of Aaron the priest, saying...
 weight: 26
 ---
 

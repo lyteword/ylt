@@ -1,7 +1,8 @@
 ---
 title: "Mark 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Mark 1 Online | A beginning of the good news of Jesus Christ, Son of God..."
+description: >
+  Read Mark 1 Online | A beginning of the good news of Jesus Christ, Son of God...
 weight: 1
 ---
 

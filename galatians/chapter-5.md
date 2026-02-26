@@ -1,7 +1,8 @@
 ---
 title: "Galatians 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read Galatians 5 Online | In the freedom, then, with which Christ did make you free — stand ye, and be not held fast again by a yoke of servitude..."
+description: >
+  Read Galatians 5 Online | In the freedom, then, with which Christ did make you free — stand ye, and be not held fast again by a yoke of servitude...
 weight: 5
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Exodus 36 YLT | Read the Bible Online"
 linkTitle: "36"
-description: "Read Exodus 36 Online | And Bezaleel, and Aholiab, and every wise-hearted man, in whom Jehovah hath given wisdom and understanding to know to do every work of the service of the sanctuary, have done according to all that Jehovah commanded..."
+description: >
+  Read Exodus 36 Online | And Bezaleel, and Aholiab, and every wise-hearted man, in whom Jehovah hath given wisdom and understanding to know to do every work of the service of the sanctuary, have done according to all that Jehovah commanded...
 weight: 36
 ---
 

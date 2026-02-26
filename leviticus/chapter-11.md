@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 11 YLT | Read the Bible Online"
 linkTitle: "11"
-description: "Read Leviticus 11 Online | And Jehovah speaketh unto Moses and unto Aaron, saying unto them..."
+description: >
+  Read Leviticus 11 Online | And Jehovah speaketh unto Moses and unto Aaron, saying unto them...
 weight: 11
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ephesians 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Ephesians 4 Online | Call upon you, then, do I — the prisoner of the Lord — to walk worthily of the calling with which ye were called..."
+description: >
+  Read Ephesians 4 Online | Call upon you, then, do I — the prisoner of the Lord — to walk worthily of the calling with which ye were called...
 weight: 4
 ---
 

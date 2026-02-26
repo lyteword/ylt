@@ -1,7 +1,8 @@
 ---
 title: "Song Of Solomon 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read Song Of Solomon 7 Online | As the chorus of 'Mahanaim.' How beautiful were thy feet with sandals, O daughter of Nadib. The turnings of thy sides [are] as ornaments, Work of the hands of an artificer..."
+description: >
+  Read Song Of Solomon 7 Online | As the chorus of 'Mahanaim.' How beautiful were thy feet with sandals, O daughter of Nadib. The turnings of thy sides [are] as ornaments, Work of the hands of an artificer...
 weight: 7
 ---
 

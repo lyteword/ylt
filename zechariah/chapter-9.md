@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read Zechariah 9 Online | The burden of a word of Jehovah against the land of Hadrach, and Demmeseh — his place of rest: (When to Jehovah [is] the eye of man, And of all the tribes of Israel...."
+description: >
+  Read Zechariah 9 Online | The burden of a word of Jehovah against the land of Hadrach, and Demmeseh — his place of rest: (When to Jehovah [is] the eye of man, And of all the tribes of Israel....
 weight: 9
 ---
 

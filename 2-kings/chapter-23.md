@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 23 YLT | Read the Bible Online"
 linkTitle: "23"
-description: "Read 2 Kings 23 Online | And the king sendeth, and they gather unto him all the elders of Judah and Jerusalem..."
+description: >
+  Read 2 Kings 23 Online | And the king sendeth, and they gather unto him all the elders of Judah and Jerusalem...
 weight: 23
 ---
 

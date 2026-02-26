@@ -1,7 +1,8 @@
 ---
 title: "Lamentations 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Lamentations 2 Online | How doth the Lord cloud in His anger the daughter of Zion, He hath cast from heaven [to] earth the beauty of Israel, And hath not remembered His footstool in the day of His anger..."
+description: >
+  Read Lamentations 2 Online | How doth the Lord cloud in His anger the daughter of Zion, He hath cast from heaven [to] earth the beauty of Israel, And hath not remembered His footstool in the day of His anger...
 weight: 2
 ---
 

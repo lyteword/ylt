@@ -1,7 +1,8 @@
 ---
 title: "Psalm 108 YLT | Read the Bible Online"
 linkTitle: "108"
-description: "Read Psalm 108 Online | A Song, a Psalm of David. Prepared is my heart, O God, I sing, yea, I sing praise, also my honour..."
+description: >
+  Read Psalm 108 Online | A Song, a Psalm of David. Prepared is my heart, O God, I sing, yea, I sing praise, also my honour...
 weight: 108
 ---
 

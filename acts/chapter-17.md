@@ -1,7 +1,8 @@
 ---
 title: "Acts 17 YLT | Read the Bible Online"
 linkTitle: "17"
-description: "Read Acts 17 Online | And having passed through Amphipolis, and Apollonia, they came to Thessalonica, where was the synagogue of the Jews..."
+description: >
+  Read Acts 17 Online | And having passed through Amphipolis, and Apollonia, they came to Thessalonica, where was the synagogue of the Jews...
 weight: 17
 ---
 

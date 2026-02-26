@@ -1,7 +1,8 @@
 ---
 title: "Psalm 124 YLT | Read the Bible Online"
 linkTitle: "124"
-description: "Read Psalm 124 Online | A Song of the Ascents, by David. Save [for] Jehovah — who hath been for us, (Pray, let Israel say)..."
+description: >
+  Read Psalm 124 Online | A Song of the Ascents, by David. Save [for] Jehovah — who hath been for us, (Pray, let Israel say)...
 weight: 124
 ---
 

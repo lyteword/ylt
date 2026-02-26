@@ -1,7 +1,8 @@
 ---
 title: "1 Timothy 6 YLT | Read the Bible Online"
 linkTitle: "6"
-description: "Read 1 Timothy 6 Online | As many as are servants under a yoke, their own masters worthy of all honour let them reckon, that the name of God and the teaching may not be evil spoken of..."
+description: >
+  Read 1 Timothy 6 Online | As many as are servants under a yoke, their own masters worthy of all honour let them reckon, that the name of God and the teaching may not be evil spoken of...
 weight: 6
 ---
 

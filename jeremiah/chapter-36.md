@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 36 YLT | Read the Bible Online"
 linkTitle: "36"
-description: "Read Jeremiah 36 Online | And it cometh to pass, in the fourth year of Jehoiakim son of Josiah king of Judah, this word hath been unto Jeremiah from Jehovah, saying..."
+description: >
+  Read Jeremiah 36 Online | And it cometh to pass, in the fourth year of Jehoiakim son of Josiah king of Judah, this word hath been unto Jeremiah from Jehovah, saying...
 weight: 36
 ---
 

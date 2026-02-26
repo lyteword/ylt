@@ -1,7 +1,8 @@
 ---
 title: "Revelation 13 YLT | Read the Bible Online"
 linkTitle: "13"
-description: "Read Revelation 13 Online | And I stood upon the sand of the sea, and I saw out of the sea a beast coming up, having seven heads and ten horns, and upon its horns ten diadems, and upon its heads a name of evil speaking..."
+description: >
+  Read Revelation 13 Online | And I stood upon the sand of the sea, and I saw out of the sea a beast coming up, having seven heads and ten horns, and upon its horns ten diadems, and upon its heads a name of evil speaking...
 weight: 13
 ---
 

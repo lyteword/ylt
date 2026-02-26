@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 25 YLT | Read the Bible Online"
 linkTitle: "25"
-description: "Read Ezekiel 25 Online | And there is a word of Jehovah unto me, saying..."
+description: >
+  Read Ezekiel 25 Online | And there is a word of Jehovah unto me, saying...
 weight: 25
 ---
 

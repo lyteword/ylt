@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 27 YLT | Read the Bible Online"
 linkTitle: "27"
-description: "Read Leviticus 27 Online | And Jehovah speaketh unto Moses, saying..."
+description: >
+  Read Leviticus 27 Online | And Jehovah speaketh unto Moses, saying...
 weight: 27
 ---
 

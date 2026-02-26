@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 58 YLT | Read the Bible Online"
 linkTitle: "58"
-description: "Read Isaiah 58 Online | Call with the throat, restrain not, As a trumpet lift up thy voice, And declare to My people their transgression, And to the house of Jacob their sins..."
+description: >
+  Read Isaiah 58 Online | Call with the throat, restrain not, As a trumpet lift up thy voice, And declare to My people their transgression, And to the house of Jacob their sins...
 weight: 58
 ---
 

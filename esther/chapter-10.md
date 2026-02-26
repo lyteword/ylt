@@ -1,7 +1,8 @@
 ---
 title: "Esther 10 YLT | Read the Bible Online"
 linkTitle: "10"
-description: "Read Esther 10 Online | And the king Ahasuerus setteth a tribute on the land and the isles of the sea..."
+description: >
+  Read Esther 10 Online | And the king Ahasuerus setteth a tribute on the land and the isles of the sea...
 weight: 10
 ---
 

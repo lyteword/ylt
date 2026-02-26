@@ -1,7 +1,8 @@
 ---
 title: "Psalm 42 YLT | Read the Bible Online"
 linkTitle: "42"
-description: "Read Psalm 42 Online | To the Overseer. — An Instruction. By sons of Korah. As a hart doth pant for streams of water, So my soul panteth toward Thee, O God..."
+description: >
+  Read Psalm 42 Online | To the Overseer. — An Instruction. By sons of Korah. As a hart doth pant for streams of water, So my soul panteth toward Thee, O God...
 weight: 42
 ---
 

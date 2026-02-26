@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 66 YLT | Read the Bible Online"
 linkTitle: "66"
-description: "Read Isaiah 66 Online | Thus said Jehovah: The heavens [are] My throne, And the earth My footstool, Where [is] this — the house that ye build for Me? And where [is] this — the place — My rest..."
+description: >
+  Read Isaiah 66 Online | Thus said Jehovah: The heavens [are] My throne, And the earth My footstool, Where [is] this — the house that ye build for Me? And where [is] this — the place — My rest...
 weight: 66
 ---
 

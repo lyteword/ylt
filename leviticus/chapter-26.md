@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 26 YLT | Read the Bible Online"
 linkTitle: "26"
-description: "Read Leviticus 26 Online | 'Ye do not make to yourselves idols; and graven image or standing image ye do not set up to yourselves; and a stone of imagery ye do not put in your land, to bow yourselves to it; for I [am] Jehovah your God..."
+description: >
+  Read Leviticus 26 Online | 'Ye do not make to yourselves idols; and graven image or standing image ye do not set up to yourselves; and a stone of imagery ye do not put in your land, to bow yourselves to it; for I [am] Jehovah your God...
 weight: 26
 ---
 

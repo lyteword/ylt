@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 27 YLT | Read the Bible Online"
 linkTitle: "27"
-description: "Read Isaiah 27 Online | In that day lay a charge doth Jehovah, With his sword — the sharp, and the great, and the strong, On leviathan — a fleeing serpent, And on leviathan — a crooked serpent, And He hath slain the dragon that [is] in the sea..."
+description: >
+  Read Isaiah 27 Online | In that day lay a charge doth Jehovah, With his sword — the sharp, and the great, and the strong, On leviathan — a fleeing serpent, And on leviathan — a crooked serpent, And He hath slain the dragon that [is] in the sea...
 weight: 27
 ---
 

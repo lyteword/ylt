@@ -1,7 +1,8 @@
 ---
 title: "Daniel 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Daniel 1 Online | In the third year of the reign of Jehoiakim king of Judah, come hath Nebuchadnezzar king of Babylon to Jerusalem, and layeth siege against it..."
+description: >
+  Read Daniel 1 Online | In the third year of the reign of Jehoiakim king of Judah, come hath Nebuchadnezzar king of Babylon to Jerusalem, and layeth siege against it...
 weight: 1
 ---
 

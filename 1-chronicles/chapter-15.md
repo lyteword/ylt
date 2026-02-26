@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 15 YLT | Read the Bible Online"
 linkTitle: "15"
-description: "Read 1 Chronicles 15 Online | And he maketh for himself houses in the city of David, and prepareth a place for the ark of God, and stretcheth out for it a tent..."
+description: >
+  Read 1 Chronicles 15 Online | And he maketh for himself houses in the city of David, and prepareth a place for the ark of God, and stretcheth out for it a tent...
 weight: 15
 ---
 

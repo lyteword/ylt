@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 10 YLT | Read the Bible Online"
 linkTitle: "10"
-description: "Read Isaiah 10 Online | Woe [to] those decreeing decrees of iniquity, And writers who have prescribed perverseness..."
+description: >
+  Read Isaiah 10 Online | Woe [to] those decreeing decrees of iniquity, And writers who have prescribed perverseness...
 weight: 10
 ---
 

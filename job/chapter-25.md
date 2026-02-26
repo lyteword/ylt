@@ -1,7 +1,8 @@
 ---
 title: "Job 25 YLT | Read the Bible Online"
 linkTitle: "25"
-description: "Read Job 25 Online | And Bildad the Shuhite answereth and saith: ..."
+description: >
+  Read Job 25 Online | And Bildad the Shuhite answereth and saith: ...
 weight: 25
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Acts 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read Acts 5 Online | And a certain man, Ananias by name, with Sapphira his wife, sold a possession..."
+description: >
+  Read Acts 5 Online | And a certain man, Ananias by name, with Sapphira his wife, sold a possession...
 weight: 5
 ---
 

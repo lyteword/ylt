@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 8 YLT | Read the Bible Online"
 linkTitle: "8"
-description: "Read Jeremiah 8 Online | At that time, an affirmation of Jehovah, They bring the bones of the kings of Judah, And the bones of its princes, And the bones of the priests, And the bones of the prophets, And the bones of inhabitants of Jerusalem, Out of their graves..."
+description: >
+  Read Jeremiah 8 Online | At that time, an affirmation of Jehovah, They bring the bones of the kings of Judah, And the bones of its princes, And the bones of the priests, And the bones of the prophets, And the bones of inhabitants of Jerusalem, Out of their graves...
 weight: 8
 ---
 

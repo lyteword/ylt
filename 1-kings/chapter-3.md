@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read 1 Kings 3 Online | And Solomon joineth in marriage with Pharaoh king of Egypt, and taketh the daughter of Pharaoh, and bringeth her in unto the city of David, till he completeth to build his own house, and the house of Jehovah, and the wall of Jerusalem round about..."
+description: >
+  Read 1 Kings 3 Online | And Solomon joineth in marriage with Pharaoh king of Egypt, and taketh the daughter of Pharaoh, and bringeth her in unto the city of David, till he completeth to build his own house, and the house of Jehovah, and the wall of Jerusalem round about...
 weight: 3
 ---
 

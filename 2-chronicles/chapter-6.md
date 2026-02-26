@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 6 YLT | Read the Bible Online"
 linkTitle: "6"
-description: "Read 2 Chronicles 6 Online | Then said Solomon, 'Jehovah said — to dwell in thick darkness..."
+description: >
+  Read 2 Chronicles 6 Online | Then said Solomon, 'Jehovah said — to dwell in thick darkness...
 weight: 6
 ---
 

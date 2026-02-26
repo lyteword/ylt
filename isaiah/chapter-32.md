@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 32 YLT | Read the Bible Online"
 linkTitle: "32"
-description: "Read Isaiah 32 Online | Lo, for righteousness doth a king reign, As to princes, for judgment they rule..."
+description: >
+  Read Isaiah 32 Online | Lo, for righteousness doth a king reign, As to princes, for judgment they rule...
 weight: 32
 ---
 

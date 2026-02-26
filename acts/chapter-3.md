@@ -1,7 +1,8 @@
 ---
 title: "Acts 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Acts 3 Online | And Peter and John were going up at the same time to the temple, at the hour of the prayer, the ninth [hour]..."
+description: >
+  Read Acts 3 Online | And Peter and John were going up at the same time to the temple, at the hour of the prayer, the ninth [hour]...
 weight: 3
 ---
 

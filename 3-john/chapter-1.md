@@ -1,7 +1,8 @@
 ---
 title: "3 John 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read 3 John 1 Online | The Elder to Gaius the beloved, whom I love in truth..."
+description: >
+  Read 3 John 1 Online | The Elder to Gaius the beloved, whom I love in truth...
 weight: 1
 ---
 

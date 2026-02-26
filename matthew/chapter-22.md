@@ -1,7 +1,8 @@
 ---
 title: "Matthew 22 YLT | Read the Bible Online"
 linkTitle: "22"
-description: "Read Matthew 22 Online | And Jesus answering, again spake to them in similes, saying..."
+description: >
+  Read Matthew 22 Online | And Jesus answering, again spake to them in similes, saying...
 weight: 22
 ---
 

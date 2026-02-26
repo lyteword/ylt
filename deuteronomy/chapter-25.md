@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 25 YLT | Read the Bible Online"
 linkTitle: "25"
-description: "Read Deuteronomy 25 Online | 'When there is a strife between men, and they have come nigh unto the judgment, and they have judged, and declared righteous the righteous, and declared wrong the wrong-doer..."
+description: >
+  Read Deuteronomy 25 Online | 'When there is a strife between men, and they have come nigh unto the judgment, and they have judged, and declared righteous the righteous, and declared wrong the wrong-doer...
 weight: 25
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Joel 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Joel 2 Online | Blow ye a trumpet in Zion, And shout ye in My holy hill, Tremble do all inhabitants of the earth, For coming is the day of Jehovah, for [it is] near..."
+description: >
+  Read Joel 2 Online | Blow ye a trumpet in Zion, And shout ye in My holy hill, Tremble do all inhabitants of the earth, For coming is the day of Jehovah, for [it is] near...
 weight: 2
 ---
 

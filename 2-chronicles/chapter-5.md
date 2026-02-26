@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read 2 Chronicles 5 Online | And all the work that Solomon made for the house of Jehovah is finished, and Solomon bringeth in the sanctified things of David his father, and the silver, and the gold, and all the vessels he hath put among the treasures of the house of God..."
+description: >
+  Read 2 Chronicles 5 Online | And all the work that Solomon made for the house of Jehovah is finished, and Solomon bringeth in the sanctified things of David his father, and the silver, and the gold, and all the vessels he hath put among the treasures of the house of God...
 weight: 5
 ---
 

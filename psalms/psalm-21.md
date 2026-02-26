@@ -1,7 +1,8 @@
 ---
 title: "Psalm 21 YLT | Read the Bible Online"
 linkTitle: "21"
-description: "Read Psalm 21 Online | To the Overseer. — A Psalm of David. Jehovah, in Thy strength is the king joyful, In Thy salvation how greatly he rejoiceth..."
+description: >
+  Read Psalm 21 Online | To the Overseer. — A Psalm of David. Jehovah, in Thy strength is the king joyful, In Thy salvation how greatly he rejoiceth...
 weight: 21
 ---
 

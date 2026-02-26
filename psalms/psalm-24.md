@@ -1,7 +1,8 @@
 ---
 title: "Psalm 24 YLT | Read the Bible Online"
 linkTitle: "24"
-description: "Read Psalm 24 Online | A Psalm of David. To Jehovah [is] the earth and its fulness, The world and the inhabitants in it..."
+description: >
+  Read Psalm 24 Online | A Psalm of David. To Jehovah [is] the earth and its fulness, The world and the inhabitants in it...
 weight: 24
 ---
 

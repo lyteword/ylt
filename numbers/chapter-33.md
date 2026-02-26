@@ -1,7 +1,8 @@
 ---
 title: "Numbers 33 YLT | Read the Bible Online"
 linkTitle: "33"
-description: "Read Numbers 33 Online | These [are] journeys of the sons of Israel who have come out of the land of Egypt, by their hosts, by the hand of Moses and Aaron..."
+description: >
+  Read Numbers 33 Online | These [are] journeys of the sons of Israel who have come out of the land of Egypt, by their hosts, by the hand of Moses and Aaron...
 weight: 33
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Revelation 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read Revelation 5 Online | And I saw upon the right hand of Him who is sitting upon the throne a scroll, written within and on the back, sealed with seven seals..."
+description: >
+  Read Revelation 5 Online | And I saw upon the right hand of Him who is sitting upon the throne a scroll, written within and on the back, sealed with seven seals...
 weight: 5
 ---
 

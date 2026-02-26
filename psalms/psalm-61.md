@@ -1,7 +1,8 @@
 ---
 title: "Psalm 61 YLT | Read the Bible Online"
 linkTitle: "61"
-description: "Read Psalm 61 Online | To the Overseer, on stringed instruments. — By David. Hear, O God, my loud cry, attend to my prayer..."
+description: >
+  Read Psalm 61 Online | To the Overseer, on stringed instruments. — By David. Hear, O God, my loud cry, attend to my prayer...
 weight: 61
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ecclesiastes 11 YLT | Read the Bible Online"
 linkTitle: "11"
-description: "Read Ecclesiastes 11 Online | Send forth thy bread on the face of the waters, For in the multitude of the days thou dost find it..."
+description: >
+  Read Ecclesiastes 11 Online | Send forth thy bread on the face of the waters, For in the multitude of the days thou dost find it...
 weight: 11
 ---
 

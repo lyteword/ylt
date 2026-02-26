@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 32 YLT | Read the Bible Online"
 linkTitle: "32"
-description: "Read Jeremiah 32 Online | The word that hath been unto Jeremiah from Jehovah, in the tenth year of Zedekiah king of Judah — it [is] the eighteenth year of Nebuchadrezzar..."
+description: >
+  Read Jeremiah 32 Online | The word that hath been unto Jeremiah from Jehovah, in the tenth year of Zedekiah king of Judah — it [is] the eighteenth year of Nebuchadrezzar...
 weight: 32
 ---
 

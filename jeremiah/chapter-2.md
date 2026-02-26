@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Jeremiah 2 Online | And there is a word of Jehovah unto me, saying..."
+description: >
+  Read Jeremiah 2 Online | And there is a word of Jehovah unto me, saying...
 weight: 2
 ---
 

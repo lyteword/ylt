@@ -1,7 +1,8 @@
 ---
 title: "Ecclesiastes 10 YLT | Read the Bible Online"
 linkTitle: "10"
-description: "Read Ecclesiastes 10 Online | Dead flies cause a perfumer's perfume To send forth a stink; The precious by reason of wisdom — By reason of honour — a little folly..."
+description: >
+  Read Ecclesiastes 10 Online | Dead flies cause a perfumer's perfume To send forth a stink; The precious by reason of wisdom — By reason of honour — a little folly...
 weight: 10
 ---
 

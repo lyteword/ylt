@@ -1,7 +1,8 @@
 ---
 title: "Micah 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Micah 3 Online | And I say, 'Hear, I pray you, heads of Jacob, And ye judges of the house of Israel, Is it not for you to know the judgment..."
+description: >
+  Read Micah 3 Online | And I say, 'Hear, I pray you, heads of Jacob, And ye judges of the house of Israel, Is it not for you to know the judgment...
 weight: 3
 ---
 

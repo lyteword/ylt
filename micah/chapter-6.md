@@ -1,7 +1,8 @@
 ---
 title: "Micah 6 YLT | Read the Bible Online"
 linkTitle: "6"
-description: "Read Micah 6 Online | Hear, I pray you, that which Jehovah is saying: 'Rise — strive thou with the mountains, And cause thou the hills to hear thy voice...."
+description: >
+  Read Micah 6 Online | Hear, I pray you, that which Jehovah is saying: 'Rise — strive thou with the mountains, And cause thou the hills to hear thy voice....
 weight: 6
 ---
 

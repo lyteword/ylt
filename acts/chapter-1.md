@@ -1,7 +1,8 @@
 ---
 title: "Acts 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Acts 1 Online | The former account, indeed, I made concerning all things, O Theophilus, that Jesus began both to do and to teach..."
+description: >
+  Read Acts 1 Online | The former account, indeed, I made concerning all things, O Theophilus, that Jesus began both to do and to teach...
 weight: 1
 ---
 

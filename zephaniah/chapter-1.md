@@ -1,7 +1,8 @@
 ---
 title: "Zephaniah 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Zephaniah 1 Online | A word of Jehovah that hath been unto Zephaniah son of Cushi, son of Gedaliah, son of Amariah, son of Hezikiah, in the days of Josiah son of Amoz, king of Judah..."
+description: >
+  Read Zephaniah 1 Online | A word of Jehovah that hath been unto Zephaniah son of Cushi, son of Gedaliah, son of Amariah, son of Hezikiah, in the days of Josiah son of Amoz, king of Judah...
 weight: 1
 ---
 

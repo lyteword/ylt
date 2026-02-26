@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 21 YLT | Read the Bible Online"
 linkTitle: "21"
-description: "Read Jeremiah 21 Online | The word that hath been unto Jeremiah from Jehovah, in the king Zedekiah's sending unto him Pashhur son of Malchiah, and Zephaniah son of Maaseiah the priest, saying..."
+description: >
+  Read Jeremiah 21 Online | The word that hath been unto Jeremiah from Jehovah, in the king Zedekiah's sending unto him Pashhur son of Malchiah, and Zephaniah son of Maaseiah the priest, saying...
 weight: 21
 ---
 

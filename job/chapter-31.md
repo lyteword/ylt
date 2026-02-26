@@ -1,7 +1,8 @@
 ---
 title: "Job 31 YLT | Read the Bible Online"
 linkTitle: "31"
-description: "Read Job 31 Online | A covenant I made for mine eyes, And what — do I attend to a virgin..."
+description: >
+  Read Job 31 Online | A covenant I made for mine eyes, And what — do I attend to a virgin...
 weight: 31
 ---
 

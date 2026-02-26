@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 57 YLT | Read the Bible Online"
 linkTitle: "57"
-description: "Read Isaiah 57 Online | The righteous hath perished, And there is none laying [it] to heart, And men of kindness are gathered, Without any considering that from the face of evil Gathered is the righteous one..."
+description: >
+  Read Isaiah 57 Online | The righteous hath perished, And there is none laying [it] to heart, And men of kindness are gathered, Without any considering that from the face of evil Gathered is the righteous one...
 weight: 57
 ---
 

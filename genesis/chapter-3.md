@@ -1,7 +1,8 @@
 ---
 title: "Genesis 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Genesis 3 Online | And the serpent hath been subtile above every beast of the field which Jehovah God hath made, and he saith unto the woman, 'Is it true that God hath said, Ye do not eat of every tree of the garden?..."
+description: >
+  Read Genesis 3 Online | And the serpent hath been subtile above every beast of the field which Jehovah God hath made, and he saith unto the woman, 'Is it true that God hath said, Ye do not eat of every tree of the garden?...
 weight: 3
 ---
 

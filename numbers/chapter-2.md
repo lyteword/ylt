@@ -1,7 +1,8 @@
 ---
 title: "Numbers 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Numbers 2 Online | And Jehovah speaketh unto Moses, and unto Aaron, saying..."
+description: >
+  Read Numbers 2 Online | And Jehovah speaketh unto Moses, and unto Aaron, saying...
 weight: 2
 ---
 

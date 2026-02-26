@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read Isaiah 5 Online | Let me sing, I pray you, for my beloved, A song of my beloved as to his vineyard: My beloved hath a vineyard in a fruitful hill..."
+description: >
+  Read Isaiah 5 Online | Let me sing, I pray you, for my beloved, A song of my beloved as to his vineyard: My beloved hath a vineyard in a fruitful hill...
 weight: 5
 ---
 

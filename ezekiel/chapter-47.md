@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 47 YLT | Read the Bible Online"
 linkTitle: "47"
-description: "Read Ezekiel 47 Online | And he causeth me to turn back unto the opening of the house; and lo, water is coming forth from under the threshold of the house eastward, for the front of the house [is] eastward, and the water is coming down from beneath, from the right side of the house, from the south of the altar..."
+description: >
+  Read Ezekiel 47 Online | And he causeth me to turn back unto the opening of the house; and lo, water is coming forth from under the threshold of the house eastward, for the front of the house [is] eastward, and the water is coming down from beneath, from the right side of the house, from the south of the altar...
 weight: 47
 ---
 

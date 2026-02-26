@@ -1,7 +1,8 @@
 ---
 title: "Job 36 YLT | Read the Bible Online"
 linkTitle: "36"
-description: "Read Job 36 Online | And Elihu addeth and saith: ..."
+description: >
+  Read Job 36 Online | And Elihu addeth and saith: ...
 weight: 36
 ---
 

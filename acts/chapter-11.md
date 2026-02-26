@@ -1,7 +1,8 @@
 ---
 title: "Acts 11 YLT | Read the Bible Online"
 linkTitle: "11"
-description: "Read Acts 11 Online | And the apostles and the brethren who are in Judea heard that also the nations did receive the word of God..."
+description: >
+  Read Acts 11 Online | And the apostles and the brethren who are in Judea heard that also the nations did receive the word of God...
 weight: 11
 ---
 

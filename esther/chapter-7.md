@@ -1,7 +1,8 @@
 ---
 title: "Esther 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read Esther 7 Online | And the king cometh in, and Haman, to drink with Esther the queen..."
+description: >
+  Read Esther 7 Online | And the king cometh in, and Haman, to drink with Esther the queen...
 weight: 7
 ---
 

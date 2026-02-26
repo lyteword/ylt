@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 30 YLT | Read the Bible Online"
 linkTitle: "30"
-description: "Read Isaiah 30 Online | Woe [to] apostate sons, The affirmation of Jehovah! To do counsel, and not from Me, And to spread out a covering, and not of My spirit, So as to add sin to sin..."
+description: >
+  Read Isaiah 30 Online | Woe [to] apostate sons, The affirmation of Jehovah! To do counsel, and not from Me, And to spread out a covering, and not of My spirit, So as to add sin to sin...
 weight: 30
 ---
 

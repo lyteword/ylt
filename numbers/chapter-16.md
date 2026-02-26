@@ -1,7 +1,8 @@
 ---
 title: "Numbers 16 YLT | Read the Bible Online"
 linkTitle: "16"
-description: "Read Numbers 16 Online | And Korah, son of Izhar, son of Kohath, son of Levi, taketh both Dathan and Abiram sons of Eliab, and On son of Peleth, sons of Reuben..."
+description: >
+  Read Numbers 16 Online | And Korah, son of Izhar, son of Kohath, son of Levi, taketh both Dathan and Abiram sons of Eliab, and On son of Peleth, sons of Reuben...
 weight: 16
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 22 YLT | Read the Bible Online"
 linkTitle: "22"
-description: "Read 2 Kings 22 Online | A son of eight years [is] Josiah in his reigning, and thirty and one years he hath reigned in Jerusalem, and the name of his mother [is] Jedidah daughter of Adaiah of Boskath..."
+description: >
+  Read 2 Kings 22 Online | A son of eight years [is] Josiah in his reigning, and thirty and one years he hath reigned in Jerusalem, and the name of his mother [is] Jedidah daughter of Adaiah of Boskath...
 weight: 22
 ---
 

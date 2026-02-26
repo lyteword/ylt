@@ -1,7 +1,8 @@
 ---
 title: "Matthew 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Matthew 1 Online | A roll of the birth of Jesus Christ, son of David, son of Abraham..."
+description: >
+  Read Matthew 1 Online | A roll of the birth of Jesus Christ, son of David, son of Abraham...
 weight: 1
 ---
 

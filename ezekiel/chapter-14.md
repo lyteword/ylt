@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 14 YLT | Read the Bible Online"
 linkTitle: "14"
-description: "Read Ezekiel 14 Online | And come in unto me do certain of the elders of Israel, and sit before me..."
+description: >
+  Read Ezekiel 14 Online | And come in unto me do certain of the elders of Israel, and sit before me...
 weight: 14
 ---
 

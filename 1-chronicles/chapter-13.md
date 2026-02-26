@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 13 YLT | Read the Bible Online"
 linkTitle: "13"
-description: "Read 1 Chronicles 13 Online | And David consulteth with the heads of the thousands, and of the hundreds, every leader..."
+description: >
+  Read 1 Chronicles 13 Online | And David consulteth with the heads of the thousands, and of the hundreds, every leader...
 weight: 13
 ---
 

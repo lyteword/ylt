@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 12 YLT | Read the Bible Online"
 linkTitle: "12"
-description: "Read Hebrews 12 Online | Therefore, we also having so great a cloud of witnesses set around us, every weight having put off, and the closely besetting sin, through endurance may we run the contest that is set before us..."
+description: >
+  Read Hebrews 12 Online | Therefore, we also having so great a cloud of witnesses set around us, every weight having put off, and the closely besetting sin, through endurance may we run the contest that is set before us...
 weight: 12
 ---
 

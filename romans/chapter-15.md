@@ -1,7 +1,8 @@
 ---
 title: "Romans 15 YLT | Read the Bible Online"
 linkTitle: "15"
-description: "Read Romans 15 Online | And we ought — we who are strong — to bear the infirmities of the weak, and not to please ourselves..."
+description: >
+  Read Romans 15 Online | And we ought — we who are strong — to bear the infirmities of the weak, and not to please ourselves...
 weight: 15
 ---
 

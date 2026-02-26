@@ -1,7 +1,8 @@
 ---
 title: "Revelation 18 YLT | Read the Bible Online"
 linkTitle: "18"
-description: "Read Revelation 18 Online | And after these things I saw another messenger coming down out of the heaven, having great authority, and the earth was lightened from his glory..."
+description: >
+  Read Revelation 18 Online | And after these things I saw another messenger coming down out of the heaven, having great authority, and the earth was lightened from his glory...
 weight: 18
 ---
 

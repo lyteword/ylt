@@ -1,7 +1,8 @@
 ---
 title: "2 Timothy 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read 2 Timothy 4 Online | I do fully testify, then, before God, and the Lord Jesus Christ, who is about to judge living and dead at his manifestation and his reign ..."
+description: >
+  Read 2 Timothy 4 Online | I do fully testify, then, before God, and the Lord Jesus Christ, who is about to judge living and dead at his manifestation and his reign ...
 weight: 4
 ---
 

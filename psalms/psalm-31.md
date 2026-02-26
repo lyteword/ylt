@@ -1,7 +1,8 @@
 ---
 title: "Psalm 31 YLT | Read the Bible Online"
 linkTitle: "31"
-description: "Read Psalm 31 Online | To the Overseer. — A Psalm of David. In Thee, O Jehovah, I have trusted, Let me not be ashamed to the age, In Thy righteousness deliver me..."
+description: >
+  Read Psalm 31 Online | To the Overseer. — A Psalm of David. In Thee, O Jehovah, I have trusted, Let me not be ashamed to the age, In Thy righteousness deliver me...
 weight: 31
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ecclesiastes 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read Ecclesiastes 7 Online | Better [is] a name than good perfume, And the day of death than the day of birth..."
+description: >
+  Read Ecclesiastes 7 Online | Better [is] a name than good perfume, And the day of death than the day of birth...
 weight: 7
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Numbers 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Numbers 4 Online | And Jehovah speaketh unto Moses, and unto Aaron, saying..."
+description: >
+  Read Numbers 4 Online | And Jehovah speaketh unto Moses, and unto Aaron, saying...
 weight: 4
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Song Of Solomon 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Song Of Solomon 2 Online | As a lily among the thorns..."
+description: >
+  Read Song Of Solomon 2 Online | As a lily among the thorns...
 weight: 2
 ---
 

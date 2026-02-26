@@ -1,7 +1,8 @@
 ---
 title: "Psalm 96 YLT | Read the Bible Online"
 linkTitle: "96"
-description: "Read Psalm 96 Online | Sing to Jehovah a new song, Sing to Jehovah all the earth..."
+description: >
+  Read Psalm 96 Online | Sing to Jehovah a new song, Sing to Jehovah all the earth...
 weight: 96
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Zephaniah 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Zephaniah 2 Online | Bend yourselves, yea, bend ye, O nation not desired..."
+description: >
+  Read Zephaniah 2 Online | Bend yourselves, yea, bend ye, O nation not desired...
 weight: 2
 ---
 

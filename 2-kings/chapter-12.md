@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 12 YLT | Read the Bible Online"
 linkTitle: "12"
-description: "Read 2 Kings 12 Online | In the seventh year of Jehu reigned hath Jehoash, and forty years he hath reigned in Jerusalem, and the name of his mother [is] Zibiah of Beer-Sheba..."
+description: >
+  Read 2 Kings 12 Online | In the seventh year of Jehu reigned hath Jehoash, and forty years he hath reigned in Jerusalem, and the name of his mother [is] Zibiah of Beer-Sheba...
 weight: 12
 ---
 

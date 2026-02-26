@@ -1,7 +1,8 @@
 ---
 title: "Psalm 29 YLT | Read the Bible Online"
 linkTitle: "29"
-description: "Read Psalm 29 Online | A Psalm of David. Ascribe to Jehovah, ye sons of the mighty, Ascribe to Jehovah honour and strength..."
+description: >
+  Read Psalm 29 Online | A Psalm of David. Ascribe to Jehovah, ye sons of the mighty, Ascribe to Jehovah honour and strength...
 weight: 29
 ---
 

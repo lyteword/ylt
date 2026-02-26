@@ -1,7 +1,8 @@
 ---
 title: "Philippians 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Philippians 4 Online | So then, my brethren, beloved and longed for, my joy and crown, so stand ye in the Lord, beloved..."
+description: >
+  Read Philippians 4 Online | So then, my brethren, beloved and longed for, my joy and crown, so stand ye in the Lord, beloved...
 weight: 4
 ---
 

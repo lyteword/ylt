@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 50 YLT | Read the Bible Online"
 linkTitle: "50"
-description: "Read Isaiah 50 Online | Thus said Jehovah: 'Where [is] this — the bill of your mother's divorce, Whom I sent away? Or to which of My creditors have I sold you? Lo, for your iniquities ye have been sold, And for your transgressions Hath your mother been sent away..."
+description: >
+  Read Isaiah 50 Online | Thus said Jehovah: 'Where [is] this — the bill of your mother's divorce, Whom I sent away? Or to which of My creditors have I sold you? Lo, for your iniquities ye have been sold, And for your transgressions Hath your mother been sent away...
 weight: 50
 ---
 

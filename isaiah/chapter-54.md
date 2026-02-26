@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 54 YLT | Read the Bible Online"
 linkTitle: "54"
-description: "Read Isaiah 54 Online | Sing, O barren, she hath not borne! Break forth with singing, and cry aloud, She hath not brought forth! For more [are] the sons of the desolate, Than the sons of the married one, said Jehovah..."
+description: >
+  Read Isaiah 54 Online | Sing, O barren, she hath not borne! Break forth with singing, and cry aloud, She hath not brought forth! For more [are] the sons of the desolate, Than the sons of the married one, said Jehovah...
 weight: 54
 ---
 

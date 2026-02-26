@@ -1,7 +1,8 @@
 ---
 title: "Psalm 103 YLT | Read the Bible Online"
 linkTitle: "103"
-description: "Read Psalm 103 Online | By David. Bless, O my soul, Jehovah, And all my inward parts — His Holy Name..."
+description: >
+  Read Psalm 103 Online | By David. Bless, O my soul, Jehovah, And all my inward parts — His Holy Name...
 weight: 103
 ---
 

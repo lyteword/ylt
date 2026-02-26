@@ -1,7 +1,8 @@
 ---
 title: "Ezra 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Ezra 3 Online | And the seventh month cometh, and the sons of Israel [are] in the cities, and the people are gathered, as one men, unto Jerusalem..."
+description: >
+  Read Ezra 3 Online | And the seventh month cometh, and the sons of Israel [are] in the cities, and the people are gathered, as one men, unto Jerusalem...
 weight: 3
 ---
 

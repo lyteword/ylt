@@ -1,7 +1,8 @@
 ---
 title: "Job 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Job 4 Online | And Eliphaz the Temanite answereth and saith: ..."
+description: >
+  Read Job 4 Online | And Eliphaz the Temanite answereth and saith: ...
 weight: 4
 ---
 

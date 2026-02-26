@@ -1,7 +1,8 @@
 ---
 title: "1 Peter 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read 1 Peter 3 Online | In like manner, the wives, be ye subject to your own husbands, that even if certain are disobedient to the word, through the conversation of the wives, without the word, they may be won..."
+description: >
+  Read 1 Peter 3 Online | In like manner, the wives, be ye subject to your own husbands, that even if certain are disobedient to the word, through the conversation of the wives, without the word, they may be won...
 weight: 3
 ---
 

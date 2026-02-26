@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 6 YLT | Read the Bible Online"
 linkTitle: "6"
-description: "Read Leviticus 6 Online | And Jehovah speaketh unto Moses, saying..."
+description: >
+  Read Leviticus 6 Online | And Jehovah speaketh unto Moses, saying...
 weight: 6
 ---
 

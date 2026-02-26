@@ -1,7 +1,8 @@
 ---
 title: "Matthew 18 YLT | Read the Bible Online"
 linkTitle: "18"
-description: "Read Matthew 18 Online | At that hour came the disciples near to Jesus, saying, 'Who, now, is greater in the reign of the heavens?..."
+description: >
+  Read Matthew 18 Online | At that hour came the disciples near to Jesus, saying, 'Who, now, is greater in the reign of the heavens?...
 weight: 18
 ---
 

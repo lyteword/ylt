@@ -1,7 +1,8 @@
 ---
 title: "Jonah 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Jonah 3 Online | And there is a word of Jehovah unto Jonah a second time, saying..."
+description: >
+  Read Jonah 3 Online | And there is a word of Jehovah unto Jonah a second time, saying...
 weight: 3
 ---
 

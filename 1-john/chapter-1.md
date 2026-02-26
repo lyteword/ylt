@@ -1,7 +1,8 @@
 ---
 title: "1 John 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read 1 John 1 Online | That which was from the beginning, that which we have heard, that which we have seen with our eyes, that which we did behold, and our hands did handle, concerning the Word of the Life ..."
+description: >
+  Read 1 John 1 Online | That which was from the beginning, that which we have heard, that which we have seen with our eyes, that which we did behold, and our hands did handle, concerning the Word of the Life ...
 weight: 1
 ---
 

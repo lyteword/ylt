@@ -1,7 +1,8 @@
 ---
 title: "Daniel 10 YLT | Read the Bible Online"
 linkTitle: "10"
-description: "Read Daniel 10 Online | In the third year of Cyrus king of Persia, a thing is revealed to Daniel, whose name is called Belteshazzar, and the thing [is] true, and the warfare [is] great: and he hath understood the thing, and hath understanding about the appearance..."
+description: >
+  Read Daniel 10 Online | In the third year of Cyrus king of Persia, a thing is revealed to Daniel, whose name is called Belteshazzar, and the thing [is] true, and the warfare [is] great: and he hath understood the thing, and hath understanding about the appearance...
 weight: 10
 ---
 

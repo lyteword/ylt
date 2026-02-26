@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 15 YLT | Read the Bible Online"
 linkTitle: "15"
-description: "Read Isaiah 15 Online | The burden of Moab. Because in a night destroyed was Ar of Moab — It hath been cut off, Because in a night destroyed was Kir of Moab — It hath been cut off..."
+description: >
+  Read Isaiah 15 Online | The burden of Moab. Because in a night destroyed was Ar of Moab — It hath been cut off, Because in a night destroyed was Kir of Moab — It hath been cut off...
 weight: 15
 ---
 

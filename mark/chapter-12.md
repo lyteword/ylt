@@ -1,7 +1,8 @@
 ---
 title: "Mark 12 YLT | Read the Bible Online"
 linkTitle: "12"
-description: "Read Mark 12 Online | And he began to speak to them in similes: 'A man planted a vineyard, and put a hedge around, and digged an under-wine-vat, and built a tower, and gave it out to husbandmen, and went abroad..."
+description: >
+  Read Mark 12 Online | And he began to speak to them in similes: 'A man planted a vineyard, and put a hedge around, and digged an under-wine-vat, and built a tower, and gave it out to husbandmen, and went abroad...
 weight: 12
 ---
 

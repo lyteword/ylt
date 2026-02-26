@@ -1,7 +1,8 @@
 ---
 title: "2 Peter 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read 2 Peter 1 Online | Simeon Peter, a servant and an apostle of Jesus Christ, to those who did obtain a like precious faith with us in the righteousness of our God and Saviour Jesus Christ..."
+description: >
+  Read 2 Peter 1 Online | Simeon Peter, a servant and an apostle of Jesus Christ, to those who did obtain a like precious faith with us in the righteousness of our God and Saviour Jesus Christ...
 weight: 1
 ---
 

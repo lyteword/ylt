@@ -1,7 +1,8 @@
 ---
 title: "Luke 11 YLT | Read the Bible Online"
 linkTitle: "11"
-description: "Read Luke 11 Online | And it came to pass, in his being in a certain place praying, as he ceased, a certain one of his disciples said unto him, 'Sir, teach us to pray, as also John taught his disciples...."
+description: >
+  Read Luke 11 Online | And it came to pass, in his being in a certain place praying, as he ceased, a certain one of his disciples said unto him, 'Sir, teach us to pray, as also John taught his disciples....
 weight: 11
 ---
 

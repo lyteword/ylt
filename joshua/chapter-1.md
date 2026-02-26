@@ -1,7 +1,8 @@
 ---
 title: "Joshua 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Joshua 1 Online | And it cometh to pass after the death of Moses, servant of Jehovah, that Jehovah speaketh unto Joshua son of Nun, minister of Moses, saying..."
+description: >
+  Read Joshua 1 Online | And it cometh to pass after the death of Moses, servant of Jehovah, that Jehovah speaketh unto Joshua son of Nun, minister of Moses, saying...
 weight: 1
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 16 YLT | Read the Bible Online"
 linkTitle: "16"
-description: "Read 1 Kings 16 Online | And a word of Jehovah is unto Jehu son of Hanani, against Baasha, saying..."
+description: >
+  Read 1 Kings 16 Online | And a word of Jehovah is unto Jehu son of Hanani, against Baasha, saying...
 weight: 16
 ---
 

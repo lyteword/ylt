@@ -1,7 +1,8 @@
 ---
 title: "1 Timothy 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read 1 Timothy 1 Online | Paul, an apostle of Jesus Christ, according to a command of God our Saviour, and of the Lord Jesus Christ our hope..."
+description: >
+  Read 1 Timothy 1 Online | Paul, an apostle of Jesus Christ, according to a command of God our Saviour, and of the Lord Jesus Christ our hope...
 weight: 1
 ---
 

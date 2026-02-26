@@ -1,7 +1,8 @@
 ---
 title: "Esther 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Esther 3 Online | After these things hath the king Ahasuerus exalted Haman son of Hammedatha the Agagite, and lifteth him up, and setteth his throne above all the heads who [are] with him..."
+description: >
+  Read Esther 3 Online | After these things hath the king Ahasuerus exalted Haman son of Hammedatha the Agagite, and lifteth him up, and setteth his throne above all the heads who [are] with him...
 weight: 3
 ---
 

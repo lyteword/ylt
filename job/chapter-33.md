@@ -1,7 +1,8 @@
 ---
 title: "Job 33 YLT | Read the Bible Online"
 linkTitle: "33"
-description: "Read Job 33 Online | And yet, I pray thee, O Job, Hear my speech and [to] all my words give ear..."
+description: >
+  Read Job 33 Online | And yet, I pray thee, O Job, Hear my speech and [to] all my words give ear...
 weight: 33
 ---
 

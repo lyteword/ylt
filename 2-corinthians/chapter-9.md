@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read 2 Corinthians 9 Online | For, indeed, concerning the ministration that [is] for the saints, it is superfluous for me to write to you..."
+description: >
+  Read 2 Corinthians 9 Online | For, indeed, concerning the ministration that [is] for the saints, it is superfluous for me to write to you...
 weight: 9
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read 1 Kings 5 Online | And Hiram king of Tyre sendeth his servants unto Solomon, for he heard that they had anointed him for king instead of his father, for Hiram was a lover of David all the days..."
+description: >
+  Read 1 Kings 5 Online | And Hiram king of Tyre sendeth his servants unto Solomon, for he heard that they had anointed him for king instead of his father, for Hiram was a lover of David all the days...
 weight: 5
 ---
 

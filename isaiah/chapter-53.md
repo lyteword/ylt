@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 53 YLT | Read the Bible Online"
 linkTitle: "53"
-description: "Read Isaiah 53 Online | Who hath given credence to that which we heard? And the arm of Jehovah, On whom hath it been revealed..."
+description: >
+  Read Isaiah 53 Online | Who hath given credence to that which we heard? And the arm of Jehovah, On whom hath it been revealed...
 weight: 53
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Joshua 14 YLT | Read the Bible Online"
 linkTitle: "14"
-description: "Read Joshua 14 Online | And these [are] they [of] the sons of Israel who inherited in the land of Canaan, whom Eleazar the priest, and Joshua son of Nun, and the heads of the fathers of the tribes of the sons of Israel, caused to inherit..."
+description: >
+  Read Joshua 14 Online | And these [are] they [of] the sons of Israel who inherited in the land of Canaan, whom Eleazar the priest, and Joshua son of Nun, and the heads of the fathers of the tribes of the sons of Israel, caused to inherit...
 weight: 14
 ---
 

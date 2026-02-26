@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 8 YLT | Read the Bible Online"
 linkTitle: "8"
-description: "Read 2 Chronicles 8 Online | And it cometh to pass, at the end of twenty years, that Solomon hath built the house of Jehovah, and his own house..."
+description: >
+  Read 2 Chronicles 8 Online | And it cometh to pass, at the end of twenty years, that Solomon hath built the house of Jehovah, and his own house...
 weight: 8
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Nehemiah 2 Online | And it cometh to pass, in the month of Nisan, the twentieth year of Artaxerxes the king, wine [is] before him, and I lift up the wine, and give to the king, and I had not been sad before him..."
+description: >
+  Read Nehemiah 2 Online | And it cometh to pass, in the month of Nisan, the twentieth year of Artaxerxes the king, wine [is] before him, and I lift up the wine, and give to the king, and I had not been sad before him...
 weight: 2
 ---
 

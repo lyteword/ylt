@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 35 YLT | Read the Bible Online"
 linkTitle: "35"
-description: "Read Isaiah 35 Online | They joy from the wilderness and dry place, And rejoice doth the desert, and flourish as the rose..."
+description: >
+  Read Isaiah 35 Online | They joy from the wilderness and dry place, And rejoice doth the desert, and flourish as the rose...
 weight: 35
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ephesians 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Ephesians 1 Online | Paul, an apostle of Jesus Christ through the will of God, to the saints who are in Ephesus, and to the faithful in Christ Jesus..."
+description: >
+  Read Ephesians 1 Online | Paul, an apostle of Jesus Christ through the will of God, to the saints who are in Ephesus, and to the faithful in Christ Jesus...
 weight: 1
 ---
 

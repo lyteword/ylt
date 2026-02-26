@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 6 YLT | Read the Bible Online"
 linkTitle: "6"
-description: "Read Deuteronomy 6 Online | 'And this [is] the command, the statutes and the judgments which Jehovah your God hath commanded to teach you, to do in the land which ye are passing over thither to possess it..."
+description: >
+  Read Deuteronomy 6 Online | 'And this [is] the command, the statutes and the judgments which Jehovah your God hath commanded to teach you, to do in the land which ye are passing over thither to possess it...
 weight: 6
 ---
 

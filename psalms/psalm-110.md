@@ -1,7 +1,8 @@
 ---
 title: "Psalm 110 YLT | Read the Bible Online"
 linkTitle: "110"
-description: "Read Psalm 110 Online | A Psalm of David. The affirmation of Jehovah to my Lord: 'Sit at My right hand, Till I make thine enemies thy footstool...."
+description: >
+  Read Psalm 110 Online | A Psalm of David. The affirmation of Jehovah to my Lord: 'Sit at My right hand, Till I make thine enemies thy footstool....
 weight: 110
 ---
 

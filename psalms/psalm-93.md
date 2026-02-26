@@ -1,7 +1,8 @@
 ---
 title: "Psalm 93 YLT | Read the Bible Online"
 linkTitle: "93"
-description: "Read Psalm 93 Online | Jehovah hath reigned, Excellency He hath put on, Jehovah put on strength, He girded Himself, Also — established is the world, unmoved..."
+description: >
+  Read Psalm 93 Online | Jehovah hath reigned, Excellency He hath put on, Jehovah put on strength, He girded Himself, Also — established is the world, unmoved...
 weight: 93
 ---
 

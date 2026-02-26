@@ -1,7 +1,8 @@
 ---
 title: "Job 18 YLT | Read the Bible Online"
 linkTitle: "18"
-description: "Read Job 18 Online | And Bildad the Shuhite answereth and saith: ..."
+description: >
+  Read Job 18 Online | And Bildad the Shuhite answereth and saith: ...
 weight: 18
 ---
 

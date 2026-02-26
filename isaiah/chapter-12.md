@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 12 YLT | Read the Bible Online"
 linkTitle: "12"
-description: "Read Isaiah 12 Online | And thou hast said in that day: 'I thank thee, O Jehovah, Though Thou hast been angry with me, Turn back doth Thine anger, And Thou dost comfort me..."
+description: >
+  Read Isaiah 12 Online | And thou hast said in that day: 'I thank thee, O Jehovah, Though Thou hast been angry with me, Turn back doth Thine anger, And Thou dost comfort me...
 weight: 12
 ---
 

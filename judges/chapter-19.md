@@ -1,7 +1,8 @@
 ---
 title: "Judges 19 YLT | Read the Bible Online"
 linkTitle: "19"
-description: "Read Judges 19 Online | And it cometh to pass, in those days, when there is no king in Israel, that there is a man a Levite, a sojourner in the sides of the hill-country of Ephraim, and he taketh to him a wife, a concubine, out of Beth-Lehem-Judah..."
+description: >
+  Read Judges 19 Online | And it cometh to pass, in those days, when there is no king in Israel, that there is a man a Levite, a sojourner in the sides of the hill-country of Ephraim, and he taketh to him a wife, a concubine, out of Beth-Lehem-Judah...
 weight: 19
 ---
 

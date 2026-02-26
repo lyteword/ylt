@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 12 YLT | Read the Bible Online"
 linkTitle: "12"
-description: "Read 1 Kings 12 Online | And Rehoboam goeth to Shechem, for to Shechem hath all Israel come to make him king..."
+description: >
+  Read 1 Kings 12 Online | And Rehoboam goeth to Shechem, for to Shechem hath all Israel come to make him king...
 weight: 12
 ---
 

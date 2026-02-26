@@ -1,7 +1,8 @@
 ---
 title: "Judges 6 YLT | Read the Bible Online"
 linkTitle: "6"
-description: "Read Judges 6 Online | And the sons of Israel do the evil thing in the eyes of Jehovah, and Jehovah giveth them into the hand of Midian seven years..."
+description: >
+  Read Judges 6 Online | And the sons of Israel do the evil thing in the eyes of Jehovah, and Jehovah giveth them into the hand of Midian seven years...
 weight: 6
 ---
 

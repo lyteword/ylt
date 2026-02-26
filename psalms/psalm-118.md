@@ -1,7 +1,8 @@
 ---
 title: "Psalm 118 YLT | Read the Bible Online"
 linkTitle: "118"
-description: "Read Psalm 118 Online | Give ye thanks to Jehovah, For good, for to the age [is] His kindness..."
+description: >
+  Read Psalm 118 Online | Give ye thanks to Jehovah, For good, for to the age [is] His kindness...
 weight: 118
 ---
 

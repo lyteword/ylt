@@ -1,7 +1,8 @@
 ---
 title: "Jude 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Jude 1 Online | Judas, of Jesus Christ a servant, and brother of James, to those sanctified in God the Father, and in Jesus Christ kept — called..."
+description: >
+  Read Jude 1 Online | Judas, of Jesus Christ a servant, and brother of James, to those sanctified in God the Father, and in Jesus Christ kept — called...
 weight: 1
 ---
 

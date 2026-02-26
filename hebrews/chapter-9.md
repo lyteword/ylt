@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read Hebrews 9 Online | It had, indeed, then (even the first tabernacle) ordinances of service, also a worldly sanctuary..."
+description: >
+  Read Hebrews 9 Online | It had, indeed, then (even the first tabernacle) ordinances of service, also a worldly sanctuary...
 weight: 9
 ---
 

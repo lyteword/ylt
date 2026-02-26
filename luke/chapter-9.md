@@ -1,7 +1,8 @@
 ---
 title: "Luke 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read Luke 9 Online | And having called together his twelve disciples, he gave them power and authority over all the demons, and to cure sicknesses..."
+description: >
+  Read Luke 9 Online | And having called together his twelve disciples, he gave them power and authority over all the demons, and to cure sicknesses...
 weight: 9
 ---
 

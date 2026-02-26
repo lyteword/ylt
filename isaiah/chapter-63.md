@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 63 YLT | Read the Bible Online"
 linkTitle: "63"
-description: "Read Isaiah 63 Online | 'Who [is] this coming from Edom? With dyed garments from Bozrah? This that is honourable in his clothing, Travelling in the abundance of his power?' — 'I, speaking in righteousness, mighty to save...."
+description: >
+  Read Isaiah 63 Online | 'Who [is] this coming from Edom? With dyed garments from Bozrah? This that is honourable in his clothing, Travelling in the abundance of his power?' — 'I, speaking in righteousness, mighty to save....
 weight: 63
 ---
 

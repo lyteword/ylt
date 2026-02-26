@@ -1,7 +1,8 @@
 ---
 title: "Acts 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read Acts 7 Online | And the chief priest said, 'Are then these things so?..."
+description: >
+  Read Acts 7 Online | And the chief priest said, 'Are then these things so?...
 weight: 7
 ---
 

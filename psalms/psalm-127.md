@@ -1,7 +1,8 @@
 ---
 title: "Psalm 127 YLT | Read the Bible Online"
 linkTitle: "127"
-description: "Read Psalm 127 Online | A Song of the Ascents, by Solomon. If Jehovah doth not build the house, In vain have its builders laboured at it, If Jehovah doth not watch a city, In vain hath a watchman waked..."
+description: >
+  Read Psalm 127 Online | A Song of the Ascents, by Solomon. If Jehovah doth not build the house, In vain have its builders laboured at it, If Jehovah doth not watch a city, In vain hath a watchman waked...
 weight: 127
 ---
 

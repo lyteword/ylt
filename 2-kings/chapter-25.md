@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 25 YLT | Read the Bible Online"
 linkTitle: "25"
-description: "Read 2 Kings 25 Online | And it cometh to pass, in the ninth year of his reign, in the tenth month, in the tenth of the month, come hath Nebuchadnezzar king of Babylon, he and all his force, against Jerusalem, and encampeth against it, and buildeth against it a fortification round about..."
+description: >
+  Read 2 Kings 25 Online | And it cometh to pass, in the ninth year of his reign, in the tenth month, in the tenth of the month, come hath Nebuchadnezzar king of Babylon, he and all his force, against Jerusalem, and encampeth against it, and buildeth against it a fortification round about...
 weight: 25
 ---
 

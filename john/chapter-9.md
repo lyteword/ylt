@@ -1,7 +1,8 @@
 ---
 title: "John 9 YLT | Read the Bible Online"
 linkTitle: "9"
-description: "Read John 9 Online | And passing by, he saw a man blind from birth..."
+description: >
+  Read John 9 Online | And passing by, he saw a man blind from birth...
 weight: 9
 ---
 

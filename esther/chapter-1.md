@@ -1,7 +1,8 @@
 ---
 title: "Esther 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Esther 1 Online | And it cometh to pass, in the days of Ahasuerus — he [is] Ahasuerus who is reigning from Hodu even unto Cush, seven and twenty and a hundred provinces ..."
+description: >
+  Read Esther 1 Online | And it cometh to pass, in the days of Ahasuerus — he [is] Ahasuerus who is reigning from Hodu even unto Cush, seven and twenty and a hundred provinces ...
 weight: 1
 ---
 

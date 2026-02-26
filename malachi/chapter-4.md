@@ -1,7 +1,8 @@
 ---
 title: "Malachi 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Malachi 4 Online | For, lo, the day hath come, burning as a furnace, And all the proud, and every wicked doer, have been stubble, And burnt them hath the day that came, Said Jehovah of Hosts, That there is not left to them root or branch..."
+description: >
+  Read Malachi 4 Online | For, lo, the day hath come, burning as a furnace, And all the proud, and every wicked doer, have been stubble, And burnt them hath the day that came, Said Jehovah of Hosts, That there is not left to them root or branch...
 weight: 4
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 58 YLT | Read the Bible Online"
 linkTitle: "58"
-description: "Read Psalm 58 Online | To the Overseer. — 'Destroy not.' — A secret treasure, by David. Is it true, O dumb one, righteously ye speak? Uprightly ye judge, O sons of men..."
+description: >
+  Read Psalm 58 Online | To the Overseer. — 'Destroy not.' — A secret treasure, by David. Is it true, O dumb one, righteously ye speak? Uprightly ye judge, O sons of men...
 weight: 58
 ---
 

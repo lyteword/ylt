@@ -1,7 +1,8 @@
 ---
 title: "Psalm 62 YLT | Read the Bible Online"
 linkTitle: "62"
-description: "Read Psalm 62 Online | To the Overseer, for Jeduthun. — A Psalm of David. Only — toward God [is] my soul silent, From Him [is] my salvation..."
+description: >
+  Read Psalm 62 Online | To the Overseer, for Jeduthun. — A Psalm of David. Only — toward God [is] my soul silent, From Him [is] my salvation...
 weight: 62
 ---
 

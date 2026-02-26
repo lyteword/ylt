@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 49 YLT | Read the Bible Online"
 linkTitle: "49"
-description: "Read Jeremiah 49 Online | Concerning the sons of Ammon: 'Thus said Jehovah: Sons — hath Israel none? heir — hath he none? Wherefore hath Malcam possessed Gad? And his people in its cities have dwelt..."
+description: >
+  Read Jeremiah 49 Online | Concerning the sons of Ammon: 'Thus said Jehovah: Sons — hath Israel none? heir — hath he none? Wherefore hath Malcam possessed Gad? And his people in its cities have dwelt...
 weight: 49
 ---
 

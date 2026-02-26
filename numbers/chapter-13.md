@@ -1,7 +1,8 @@
 ---
 title: "Numbers 13 YLT | Read the Bible Online"
 linkTitle: "13"
-description: "Read Numbers 13 Online | And Jehovah speaketh unto Moses, saying..."
+description: >
+  Read Numbers 13 Online | And Jehovah speaketh unto Moses, saying...
 weight: 13
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Acts 21 YLT | Read the Bible Online"
 linkTitle: "21"
-description: "Read Acts 21 Online | And it came to pass, at our sailing, having been parted from them, having run direct, we came to Coos, and the succeeding [day] to Rhodes, and thence to Patara..."
+description: >
+  Read Acts 21 Online | And it came to pass, at our sailing, having been parted from them, having run direct, we came to Coos, and the succeeding [day] to Rhodes, and thence to Patara...
 weight: 21
 ---
 

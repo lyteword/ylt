@@ -1,7 +1,8 @@
 ---
 title: "Lamentations 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read Lamentations 4 Online | How is the gold become dim, Changed the best — the pure gold? Poured out are stones of the sanctuary At the head of all out-places..."
+description: >
+  Read Lamentations 4 Online | How is the gold become dim, Changed the best — the pure gold? Poured out are stones of the sanctuary At the head of all out-places...
 weight: 4
 ---
 

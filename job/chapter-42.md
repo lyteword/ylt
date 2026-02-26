@@ -1,7 +1,8 @@
 ---
 title: "Job 42 YLT | Read the Bible Online"
 linkTitle: "42"
-description: "Read Job 42 Online | And Job answereth Jehovah and saith: ..."
+description: >
+  Read Job 42 Online | And Job answereth Jehovah and saith: ...
 weight: 42
 ---
 

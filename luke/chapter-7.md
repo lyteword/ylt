@@ -1,7 +1,8 @@
 ---
 title: "Luke 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read Luke 7 Online | And when he completed all his sayings in the ears of the people, he went into Capernaum..."
+description: >
+  Read Luke 7 Online | And when he completed all his sayings in the ears of the people, he went into Capernaum...
 weight: 7
 ---
 

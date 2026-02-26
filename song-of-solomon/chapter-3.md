@@ -1,7 +1,8 @@
 ---
 title: "Song Of Solomon 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Song Of Solomon 3 Online | On my couch by night, I sought him whom my soul hath loved; I sought him, and I found him not..."
+description: >
+  Read Song Of Solomon 3 Online | On my couch by night, I sought him whom my soul hath loved; I sought him, and I found him not...
 weight: 3
 ---
 

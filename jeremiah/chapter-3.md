@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 3 YLT | Read the Bible Online"
 linkTitle: "3"
-description: "Read Jeremiah 3 Online | Saying, 'Lo, one sendeth away his wife, And she hath gone from him, And she hath been to another man, Doth he turn back unto her again? Greatly defiled is not that land? And thou hast committed whoredom with many lovers, And turn again to Me, an affirmation of Jehovah..."
+description: >
+  Read Jeremiah 3 Online | Saying, 'Lo, one sendeth away his wife, And she hath gone from him, And she hath been to another man, Doth he turn back unto her again? Greatly defiled is not that land? And thou hast committed whoredom with many lovers, And turn again to Me, an affirmation of Jehovah...
 weight: 3
 ---
 

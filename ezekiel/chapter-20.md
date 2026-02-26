@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 20 YLT | Read the Bible Online"
 linkTitle: "20"
-description: "Read Ezekiel 20 Online | And it cometh to pass, in the seventh year, in the fifth [month], in the tenth of the month, come in have certain of the elders of Israel to seek Jehovah, and they sit before me..."
+description: >
+  Read Ezekiel 20 Online | And it cometh to pass, in the seventh year, in the fifth [month], in the tenth of the month, come in have certain of the elders of Israel to seek Jehovah, and they sit before me...
 weight: 20
 ---
 

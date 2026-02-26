@@ -1,7 +1,8 @@
 ---
 title: "Exodus 6 YLT | Read the Bible Online"
 linkTitle: "6"
-description: "Read Exodus 6 Online | And Jehovah saith unto Moses, 'Now dost thou see that which I do to Pharaoh, for with a strong hand he doth send them away, yea, with a strong hand he doth cast them out of his land...."
+description: >
+  Read Exodus 6 Online | And Jehovah saith unto Moses, 'Now dost thou see that which I do to Pharaoh, for with a strong hand he doth send them away, yea, with a strong hand he doth cast them out of his land....
 weight: 6
 ---
 

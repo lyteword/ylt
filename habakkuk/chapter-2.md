@@ -1,7 +1,8 @@
 ---
 title: "Habakkuk 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Habakkuk 2 Online | On my charge I stand, and I station myself on a bulwark, and I watch to see what He doth speak against me, and what I do reply to my reproof..."
+description: >
+  Read Habakkuk 2 Online | On my charge I stand, and I station myself on a bulwark, and I watch to see what He doth speak against me, and what I do reply to my reproof...
 weight: 2
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 29 YLT | Read the Bible Online"
 linkTitle: "29"
-description: "Read Ezekiel 29 Online | In the tenth year, in the tenth [month], in the twelfth of the month, hath a word of Jehovah been unto me, saying..."
+description: >
+  Read Ezekiel 29 Online | In the tenth year, in the tenth [month], in the twelfth of the month, hath a word of Jehovah been unto me, saying...
 weight: 29
 ---
 

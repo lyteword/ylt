@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 41 YLT | Read the Bible Online"
 linkTitle: "41"
-description: "Read Jeremiah 41 Online | And it cometh to pass, in the seventh month, come hath Ishmael son of Nethaniah, son of Elishama, of the seed royal, and of the chiefs of the king, and ten men with him, unto Gedaliah son of Ahikam, to Mizpah, and they eat there bread together in Mizpah..."
+description: >
+  Read Jeremiah 41 Online | And it cometh to pass, in the seventh month, come hath Ishmael son of Nethaniah, son of Elishama, of the seed royal, and of the chiefs of the king, and ten men with him, unto Gedaliah son of Ahikam, to Mizpah, and they eat there bread together in Mizpah...
 weight: 41
 ---
 

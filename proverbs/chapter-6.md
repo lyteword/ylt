@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 6 YLT | Read the Bible Online"
 linkTitle: "6"
-description: "Read Proverbs 6 Online | My son! if thou hast been surety for thy friend, Hast stricken for a stranger thy hand..."
+description: >
+  Read Proverbs 6 Online | My son! if thou hast been surety for thy friend, Hast stricken for a stranger thy hand...
 weight: 6
 ---
 

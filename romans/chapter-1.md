@@ -1,7 +1,8 @@
 ---
 title: "Romans 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Romans 1 Online | Paul, a servant of Jesus Christ, a called apostle, having been separated to the good news of God ..."
+description: >
+  Read Romans 1 Online | Paul, a servant of Jesus Christ, a called apostle, having been separated to the good news of God ...
 weight: 1
 ---
 

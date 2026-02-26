@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 39 YLT | Read the Bible Online"
 linkTitle: "39"
-description: "Read Ezekiel 39 Online | And thou, son of man, prophesy concerning Gog, and thou hast said: Thus said the Lord Jehovah: Lo, I [am] against thee, O Gog, Prince of Rosh, Meshech, and Tubal..."
+description: >
+  Read Ezekiel 39 Online | And thou, son of man, prophesy concerning Gog, and thou hast said: Thus said the Lord Jehovah: Lo, I [am] against thee, O Gog, Prince of Rosh, Meshech, and Tubal...
 weight: 39
 ---
 

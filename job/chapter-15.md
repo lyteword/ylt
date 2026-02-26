@@ -1,7 +1,8 @@
 ---
 title: "Job 15 YLT | Read the Bible Online"
 linkTitle: "15"
-description: "Read Job 15 Online | And Eliphaz the Temanite answereth and saith: ..."
+description: >
+  Read Job 15 Online | And Eliphaz the Temanite answereth and saith: ...
 weight: 15
 ---
 

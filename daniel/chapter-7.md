@@ -1,7 +1,8 @@
 ---
 title: "Daniel 7 YLT | Read the Bible Online"
 linkTitle: "7"
-description: "Read Daniel 7 Online | In the first year of Belshazzar king of Babylon, Daniel hath seen a dream, and the visions of his head on his bed, then the dream he hath written, the chief of the things he hath said..."
+description: >
+  Read Daniel 7 Online | In the first year of Belshazzar king of Babylon, Daniel hath seen a dream, and the visions of his head on his bed, then the dream he hath written, the chief of the things he hath said...
 weight: 7
 ---
 

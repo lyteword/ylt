@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 17 YLT | Read the Bible Online"
 linkTitle: "17"
-description: "Read Proverbs 17 Online | Better [is] a dry morsel, and rest with it, Than a house full of the sacrifices of strife..."
+description: >
+  Read Proverbs 17 Online | Better [is] a dry morsel, and rest with it, Than a house full of the sacrifices of strife...
 weight: 17
 ---
 

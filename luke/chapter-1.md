@@ -1,7 +1,8 @@
 ---
 title: "Luke 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read Luke 1 Online | Seeing that many did take in hand to set in order a narration of the matters that have been fully assured among us..."
+description: >
+  Read Luke 1 Online | Seeing that many did take in hand to set in order a narration of the matters that have been fully assured among us...
 weight: 1
 ---
 

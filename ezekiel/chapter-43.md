@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 43 YLT | Read the Bible Online"
 linkTitle: "43"
-description: "Read Ezekiel 43 Online | And he causeth me to go to the gate, the gate that is looking eastward..."
+description: >
+  Read Ezekiel 43 Online | And he causeth me to go to the gate, the gate that is looking eastward...
 weight: 43
 ---
 

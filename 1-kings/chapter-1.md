@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 1 YLT | Read the Bible Online"
 linkTitle: "1"
-description: "Read 1 Kings 1 Online | And king David [is] old, entering into days, and they cover him with garments, and he hath no heat..."
+description: >
+  Read 1 Kings 1 Online | And king David [is] old, entering into days, and they cover him with garments, and he hath no heat...
 weight: 1
 ---
 

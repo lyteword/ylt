@@ -1,7 +1,8 @@
 ---
 title: "Luke 5 YLT | Read the Bible Online"
 linkTitle: "5"
-description: "Read Luke 5 Online | And it came to pass, in the multitude pressing on him to hear the word of God, that he was standing beside the lake of Gennesaret..."
+description: >
+  Read Luke 5 Online | And it came to pass, in the multitude pressing on him to hear the word of God, that he was standing beside the lake of Gennesaret...
 weight: 5
 ---
 

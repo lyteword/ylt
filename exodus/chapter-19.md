@@ -1,7 +1,8 @@
 ---
 title: "Exodus 19 YLT | Read the Bible Online"
 linkTitle: "19"
-description: "Read Exodus 19 Online | In the third month of the going out of the sons of Israel from the land of Egypt, in this day they have come into the wilderness of Sinai..."
+description: >
+  Read Exodus 19 Online | In the third month of the going out of the sons of Israel from the land of Egypt, in this day they have come into the wilderness of Sinai...
 weight: 19
 ---
 

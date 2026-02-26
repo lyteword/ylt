@@ -1,7 +1,8 @@
 ---
 title: "Psalm 11 YLT | Read the Bible Online"
 linkTitle: "11"
-description: "Read Psalm 11 Online | To the Overseer. — By David. In Jehovah I trusted, how say ye to my soul, 'They moved [to] Thy mountain for the bird..."
+description: >
+  Read Psalm 11 Online | To the Overseer. — By David. In Jehovah I trusted, how say ye to my soul, 'They moved [to] Thy mountain for the bird...
 weight: 11
 ---
 

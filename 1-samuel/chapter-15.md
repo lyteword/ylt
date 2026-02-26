@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 15 YLT | Read the Bible Online"
 linkTitle: "15"
-description: "Read 1 Samuel 15 Online | And Samuel saith unto Saul, 'Me did Jehovah send to anoint thee for king over His people, over Israel; and now, hearken to the voice of the words of Jehovah..."
+description: >
+  Read 1 Samuel 15 Online | And Samuel saith unto Saul, 'Me did Jehovah send to anoint thee for king over His people, over Israel; and now, hearken to the voice of the words of Jehovah...
 weight: 15
 ---
 

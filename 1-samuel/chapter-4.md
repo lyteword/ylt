@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 4 YLT | Read the Bible Online"
 linkTitle: "4"
-description: "Read 1 Samuel 4 Online | And the word of Samuel is to all Israel, and Israel goeth out to meet the Philistines for battle, and they encamp by Eben-Ezer, and the Philistines have encamped in Aphek..."
+description: >
+  Read 1 Samuel 4 Online | And the word of Samuel is to all Israel, and Israel goeth out to meet the Philistines for battle, and they encamp by Eben-Ezer, and the Philistines have encamped in Aphek...
 weight: 4
 ---
 

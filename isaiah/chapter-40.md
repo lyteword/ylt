@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 40 YLT | Read the Bible Online"
 linkTitle: "40"
-description: "Read Isaiah 40 Online | Comfort ye, comfort ye, My people, saith your God..."
+description: >
+  Read Isaiah 40 Online | Comfort ye, comfort ye, My people, saith your God...
 weight: 40
 ---
 

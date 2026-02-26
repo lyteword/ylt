@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 21 YLT | Read the Bible Online"
 linkTitle: "21"
-description: "Read Isaiah 21 Online | The burden of the wilderness of the sea. 'Like hurricanes in the south for passing through, From the wilderness it hath come, From a fearful land..."
+description: >
+  Read Isaiah 21 Online | The burden of the wilderness of the sea. 'Like hurricanes in the south for passing through, From the wilderness it hath come, From a fearful land...
 weight: 21
 ---
 

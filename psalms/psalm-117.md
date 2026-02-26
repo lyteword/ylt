@@ -1,7 +1,8 @@
 ---
 title: "Psalm 117 YLT | Read the Bible Online"
 linkTitle: "117"
-description: "Read Psalm 117 Online | Praise Jehovah, all ye nations, Glorify Him, all ye peoples..."
+description: >
+  Read Psalm 117 Online | Praise Jehovah, all ye nations, Glorify Him, all ye peoples...
 weight: 117
 ---
 

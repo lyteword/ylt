@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 19 YLT | Read the Bible Online"
 linkTitle: "19"
-description: "Read 1 Kings 19 Online | And Ahab declareth to Jezebel all that Elijah did, and all how he slew all the prophets by the sword..."
+description: >
+  Read 1 Kings 19 Online | And Ahab declareth to Jezebel all that Elijah did, and all how he slew all the prophets by the sword...
 weight: 19
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Matthew 17 YLT | Read the Bible Online"
 linkTitle: "17"
-description: "Read Matthew 17 Online | And after six days Jesus taketh Peter, and James, and John his brother, and doth bring them up to a high mount by themselves..."
+description: >
+  Read Matthew 17 Online | And after six days Jesus taketh Peter, and James, and John his brother, and doth bring them up to a high mount by themselves...
 weight: 17
 ---
 

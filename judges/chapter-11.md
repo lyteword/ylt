@@ -1,7 +1,8 @@
 ---
 title: "Judges 11 YLT | Read the Bible Online"
 linkTitle: "11"
-description: "Read Judges 11 Online | And Jephthah the Gileadite hath been a mighty man of valour, and he [is] son of a woman, a harlot; and Gilead begetteth Jephthah..."
+description: >
+  Read Judges 11 Online | And Jephthah the Gileadite hath been a mighty man of valour, and he [is] son of a woman, a harlot; and Gilead begetteth Jephthah...
 weight: 11
 ---
 

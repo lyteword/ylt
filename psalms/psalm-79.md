@@ -1,7 +1,8 @@
 ---
 title: "Psalm 79 YLT | Read the Bible Online"
 linkTitle: "79"
-description: "Read Psalm 79 Online | A Psalm of Asaph. O God, nations have come into Thy inheritance, They have defiled Thy holy temple, They made Jerusalem become heaps..."
+description: >
+  Read Psalm 79 Online | A Psalm of Asaph. O God, nations have come into Thy inheritance, They have defiled Thy holy temple, They made Jerusalem become heaps...
 weight: 79
 ---
 

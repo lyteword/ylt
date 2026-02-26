@@ -1,7 +1,8 @@
 ---
 title: "Haggai 2 YLT | Read the Bible Online"
 linkTitle: "2"
-description: "Read Haggai 2 Online | In the seventh [month], in the twenty and first of the month, hath a word of Jehovah been by the hand of Haggai the prophet, saying..."
+description: >
+  Read Haggai 2 Online | In the seventh [month], in the twenty and first of the month, hath a word of Jehovah been by the hand of Haggai the prophet, saying...
 weight: 2
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Joshua 6 YLT | Read the Bible Online"
 linkTitle: "6"
-description: "Read Joshua 6 Online | (And Jericho shutteth itself up, and is shut up, because of the presence of the sons of Israel — none going out, and none coming in;..."
+description: >
+  Read Joshua 6 Online | (And Jericho shutteth itself up, and is shut up, because of the presence of the sons of Israel — none going out, and none coming in;...
 weight: 6
 ---
 
