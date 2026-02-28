@@ -22,7 +22,7 @@ This repository contains a complete **Young's Literal Translation (YLT)** of the
 
 `john/chapter-1.md`
 ```
-# Chapter 1
+# John 1
 
 **¹** In the beginning was the Word, and the Word was with God, and the Word was God; 
 
