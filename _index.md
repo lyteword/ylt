@@ -1,11 +1,22 @@
 ---
-title: Young's Literal Translation
-linkTitle: YLT
+title: "Young's Literal Translation (YLT) | Read the Bible Online"
+linkTitle: "YLT"
+description: >
+  A highly literal translation that attempts to preserve the grammatical structure and verb tenses of the Hebrew and Greek.
 sidebar:
   exclude: true
 cascade:
   toc: true
+layout: single-section
 ---
+
+# Young's Literal Translation
+
+The Young’s Literal Translation (YLT) is an English translation of the Bible produced by the Scottish publisher and biblical scholar Robert Young. First published in 1862 and later revised in 1887 and 1898, it was created with the goal of presenting the biblical text as closely as possible to the original Hebrew and Greek wording. Young is also known for compiling Young’s Analytical Concordance to the Bible, and his translation reflects the same scholarly emphasis on direct engagement with the original languages.
+
+Young’s Literal Translation is often described as “a highly literal translation that attempts to preserve the grammatical structure and verb tenses of the Hebrew and Greek.” Instead of smoothing the text into natural English style, the translation frequently mirrors the word order and grammatical forms of the source languages. This approach sometimes results in awkward or unusual phrasing in English, but it allows readers to see how the original biblical languages function more directly than in many more idiomatic translations.
+
+Because of its strict literal approach, the Young’s Literal Translation is commonly used for detailed Bible study, linguistic comparison, and by readers interested in examining the structure of the original texts.
 
 ## The Old Testament
 
