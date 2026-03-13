@@ -1,7 +1,13 @@
 ---
-title: Hebrews
+title: "Hebrews YLT | Read the Bible Online"
+linkTitle: "Hebrews"
 weight: 58
+description: >
+  Read Hebrews from the Young's Literal Translation (YLT) Online
+layout: single-section
 ---
+
+# Hebrews
 
 {{< cards >}}
 {{< card link="./chapter-1" title="Chapter 1" icon="book-open" >}}

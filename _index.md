@@ -1,5 +1,5 @@
 ---
-title: "Young's Literal Translation (YLT) | Read the Bible Online"
+title: "Young's Literal Translation (YLT) | Read the Bible Online YLT | Read the Bible Online"
 linkTitle: "YLT"
 description: >
   A highly literal translation that attempts to preserve the grammatical structure and verb tenses of the Hebrew and Greek.
