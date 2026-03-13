@@ -1,7 +1,13 @@
 ---
-title: Numbers
+title: "Numbers YLT | Read the Bible Online"
+linkTitle: "Numbers"
 weight: 4
+description: >
+  Read Numbers from the Young's Literal Translation (YLT) Online
+layout: single-section
 ---
+
+# Numbers
 
 {{< cards >}}
 {{< card link="./chapter-1" title="Chapter 1" icon="book-open" >}}

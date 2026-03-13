@@ -1,7 +1,13 @@
 ---
-title: James
+title: "James YLT | Read the Bible Online"
+linkTitle: "James"
 weight: 59
+description: >
+  Read James from the Young's Literal Translation (YLT) Online
+layout: single-section
 ---
+
+# James
 
 {{< cards >}}
 {{< card link="./chapter-1" title="Chapter 1" icon="book-open" >}}

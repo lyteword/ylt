@@ -1,7 +1,13 @@
 ---
-title: Nahum
+title: "Nahum YLT | Read the Bible Online"
+linkTitle: "Nahum"
 weight: 34
+description: >
+  Read Nahum from the Young's Literal Translation (YLT) Online
+layout: single-section
 ---
+
+# Nahum
 
 {{< cards >}}
 {{< card link="./chapter-1" title="Chapter 1" icon="book-open" >}}

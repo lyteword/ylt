@@ -1,7 +1,13 @@
 ---
-title: Habakkuk
+title: "Habakkuk YLT | Read the Bible Online"
+linkTitle: "Habakkuk"
 weight: 35
+description: >
+  Read Habakkuk from the Young's Literal Translation (YLT) Online
+layout: single-section
 ---
+
+# Habakkuk
 
 {{< cards >}}
 {{< card link="./chapter-1" title="Chapter 1" icon="book-open" >}}
